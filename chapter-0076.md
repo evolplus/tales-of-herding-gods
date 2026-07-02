@@ -148,7 +148,7 @@ Trên lâu thuyền cũng đứng đầy tướng sĩ. Tại trung tâm mỗi ch
 
 Những linh đan diệu dược kia vừa được ném vào lò lớn, lập tức hóa thành pháp lực cuồng bạo, từ lò lớn tràn vào hai tượng Cổ Phong thú ở đuôi lâu thuyền. Từ miệng tượng Cổ Phong thú phun ra luồng khí dữ dội, khiến lâu thuyền bay lên, tiến về phía trước.
 
-Đại quân Diên Khang quốc từ biên quan tiến tới. Hơn nữa đây mới chỉ là bộ đội tiên phong. Phía sau còn có quân đội mạnh mẽ hơn đang tập kết ở biên quan!
+Đại quân Diên Khang quốc từ biên quan tiến tới. Hơn nữa đây mới chỉ là quân tiên phong. Phía sau còn có quân đội mạnh mẽ hơn đang tập kết ở biên quan!
 
 Ở đó, cờ hiệu của Quốc sư bay phấp phới.
 

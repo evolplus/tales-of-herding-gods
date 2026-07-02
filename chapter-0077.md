@@ -2,13 +2,13 @@
 
 Trên long trụ, Tần Mục ngẩng đầu nhìn lên, chỉ thấy phạm vi lôi vân bao phủ càng lúc càng rộng, không ngừng khuếch tán ra ngoài, giống như một xoáy nước khổng lồ. Vô số sấm sét không ngừng bổ xuống, nhưng vẫn xoay quanh xoáy nước ấy.
 
-Lôi vân đang di chuyển, lao về phía bộ đội tiên phong của Diên Khang quốc. Đột nhiên một tia sét đánh xuống mặt đất. Mặt đất bị sét bổ trúng lập tức có lửa và điện quang bắn loạn bốn phía như từng con rắn vàng, đồng thời vang lên một tiếng nổ long trời lở đất.
+Lôi vân đang di chuyển, lao về phía quân tiên phong của Diên Khang quốc. Đột nhiên một tia sét đánh xuống mặt đất. Mặt đất bị sét bổ trúng lập tức có lửa và điện quang bắn loạn bốn phía như từng con rắn vàng, đồng thời vang lên một tiếng nổ long trời lở đất.
 
 Kế đó, vô số sấm sét như tìm được mục tiêu, từ trên trời điên cuồng đánh xuống. Cảnh tượng ấy hệt như trên trời thả xuống từng chiếc cày khổng lồ để cày đất, cày từ phía trước đại quân Diên Khang về phía đội quân này!
 
 Ầm ầm ầm!
 
-Vô số lôi đình va vào bộ đội tiên phong của Diên Khang quốc. Chưa tới một hơi thở, từng con mãnh thú khổng lồ đã bị đánh cháy ngoài sống trong. Rắc rắc, lôi điện bổ trúng cự thú, có con thậm chí như bị lợi kiếm chém phải, bị mổ bụng phanh thây.
+Vô số lôi đình va vào quân tiên phong của Diên Khang quốc. Chưa tới một hơi thở, từng con mãnh thú khổng lồ đã bị đánh cháy ngoài sống trong. Rắc rắc, lôi điện bổ trúng cự thú, có con thậm chí như bị lợi kiếm chém phải, bị mổ bụng phanh thây.
 
 Cự thú gào thảm, chạy tán loạn bốn phía, thậm chí xông ngược về phía sau, giẫm đạp suốt đường, không biết đã giẫm chết bao nhiêu binh sĩ.
 

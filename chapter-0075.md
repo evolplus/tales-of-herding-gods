@@ -34,7 +34,7 @@ Tư bà bà cũng rất đau đầu, nói:
 
 Bà đột nhiên bay lên không, đi về phía Tương Long thành. Giọng nói truyền tới:
 
-"Ta vào thành bố trí trước, chờ bộ đội tiên phong của Diên Khang quốc! Các ngươi tới trong thành thì an ổn trước đã!"
+"Ta vào thành bố trí trước, chờ quân tiên phong của Diên Khang quốc! Các ngươi tới trong thành thì an ổn trước đã!"
 
 Không lâu sau, Tần Mục và Lão mù lại trở về Tương Long thành. Tương Long thành ban ngày đã không còn náo nhiệt như tối qua, nhưng vẫn có không ít thôn dân các nơi chưa rời đi.
 
