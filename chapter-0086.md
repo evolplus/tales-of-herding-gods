@@ -32,7 +32,7 @@ Chỉ đáng tiếc là thời gian thúc người già đi. Dù năm xưa phong
 
 Thôn trưởng cười nói:
 
-"Ông ta giỏi luồn lách hơn ta, cũng từng thấy nhiều điều thần bí hơn. Thật ra ta rất hâm mộ ông ta sống tiêu sái, nhẹ nhõm hơn ta. Mục nhi, cháu có thể sẽ gặp ông ta. Người này không có chỗ ở cố định, thích chạy khắp nơi xem náo nhiệt. Ông ta tên Lăng Cảnh, dưới mắt trái có một nốt ruồi đen, tay phải thiếu một ngón áp út, là ta chém đứt."
+"Ông ta giỏi luồn lách hơn ta, cũng từng thấy nhiều điều thần bí hơn. Thật ra ta rất hâm mộ ông ta sống tiêu sái, nhẹ nhõm hơn ta. Mục nhi, con có thể sẽ gặp ông ta. Người này không có chỗ ở cố định, thích chạy khắp nơi xem náo nhiệt. Ông ta tên Lăng Cảnh, dưới mắt trái có một nốt ruồi đen, tay phải thiếu một ngón áp út, là ta chém đứt."
 
 "Thôn trưởng, chiếc thuyền này sẽ đưa chúng ta tới đâu?"
 
@@ -46,7 +46,7 @@ Thôn trưởng hơi nhíu mày. Ngọc bội của Tần Mục dẫn họ tới
 
 Hiện giờ họ không biết mình đang ở đâu, không thể xuống thuyền, chỉ có thể mặc cho chiếc thuyền và người chèo thuyền kỳ quái đưa họ đi tới điều chưa biết.
 
-"Mục nhi, nếu không dẫn cháu ra ngoài, có lẽ ta vĩnh viễn cũng sẽ không phát hiện nơi này."
+"Mục nhi, nếu không dẫn con ra ngoài, có lẽ ông vĩnh viễn cũng sẽ không phát hiện nơi này."
 
 Đang nói, sương xám phía trước dần nhạt đi, lộ ra mặt đất rộng lớn. Núi non nguy nga, không còn là núi khô lâu nữa. Gần rìa biển sương, một bến thuyền bằng gỗ xuất hiện, có thể cho thuyền cập bến.
 
@@ -122,11 +122,11 @@ Thôn trưởng nói:
 
 Tần Mục ngoảnh lại, nói:
 
-"Thôn trưởng, cháu cảm thấy có cổ quái... Mù gia gia đã mở Thần Nhãn Cửu Trọng Thiên cho cháu. Bây giờ mắt tuy không còn, nhưng cháu vẫn có thể mơ hồ nhìn thấy một ít thứ..."
+"Thôn trưởng, con cảm thấy có cổ quái... Mù gia gia đã mở Thần Nhãn Cửu Trọng Thiên cho con. Bây giờ mắt tuy không còn, nhưng con vẫn có thể mơ hồ nhìn thấy một ít thứ..."
 
 Thôn trưởng dừng bước:
 
-"Cháu thấy gì?"
+"Con thấy gì?"
 
 Tần Mục nói:
 
@@ -134,7 +134,7 @@ Tần Mục nói:
 
 Thôn trưởng suy nghĩ, nói:
 
-"Tử Giả Sinh Giới hẳn là thay đổi quy tắc sống và chết, đây là sức mạnh của thần ma. Chúng ta vào đây, nhìn như không còn máu thịt, nhưng sau khi rời khỏi Tử Giả Sinh Giới, máu thịt lập tức hiện ra, chứng tỏ máu thịt thật ra vẫn tồn tại, chỉ bị quy tắc vặn cong nên không thể nhìn thấy, không thể chạm tới. Mục nhi, Thần Nhãn Cửu Trọng Thiên của cháu vẫn còn, cháu vẫn có thể điều động nguyên khí. Có thể dùng nguyên khí thúc giục Thần Nhãn Cửu Trọng Thiên trong mắt mình không?"
+"Tử Giả Sinh Giới hẳn là thay đổi quy tắc sống và chết, đây là sức mạnh của thần ma. Chúng ta vào đây, nhìn như không còn máu thịt, nhưng sau khi rời khỏi Tử Giả Sinh Giới, máu thịt lập tức hiện ra, chứng tỏ máu thịt thật ra vẫn tồn tại, chỉ bị quy tắc vặn cong nên không thể nhìn thấy, không thể chạm tới. Mục nhi, Thần Nhãn Cửu Trọng Thiên của con vẫn còn, con vẫn có thể điều động nguyên khí. Có thể dùng nguyên khí thúc giục Thần Nhãn Cửu Trọng Thiên trong mắt mình không?"
 
 Tần Mục lập tức thử. Rất nhanh cậu cảm giác được đôi mắt của mình. Sau đó nguyên khí của cậu tiến vào trong mắt, thúc giục trận văn Thần Nhãn Cửu Trọng Thiên mà Lão mù in dấu trong mắt cậu. Lập tức cậu chỉ cảm thấy mọi thứ trước mắt trở nên rõ ràng vô cùng.
 
@@ -148,7 +148,7 @@ Tần Mục kể lại những gì mình thấy. Thôn trưởng suy nghĩ một
 
 "Thiên Ma chúng?" Tần Mục ngẩn ra.
 
-"Thiên Ma chúng là ma tộc. Thiên Ma giáo của các cháu tuy có hai chữ Thiên Ma, nhưng thực tế vẫn đều là nhân loại, chỉ treo danh Thiên Ma giáo mà thôi. Nhưng Thiên Ma chúng thì khác. Thiên Ma chúng là chủng tộc trong truyền thuyết đến từ dị vực, tính xâm lược cực mạnh. Còn chúng đến từ nơi nào thì không biết được, có vài truyền thuyết..."
+"Thiên Ma chúng là ma tộc. Thiên Ma giáo của con tuy có hai chữ Thiên Ma, nhưng thực tế vẫn đều là nhân loại, chỉ treo danh Thiên Ma giáo mà thôi. Nhưng Thiên Ma chúng thì khác. Thiên Ma chúng là chủng tộc trong truyền thuyết đến từ dị vực, tính xâm lược cực mạnh. Còn chúng đến từ nơi nào thì không biết được, có vài truyền thuyết..."
 
 Thôn trưởng ngừng lại, không nói tiếp, nhìn về phía trước, nói:
 

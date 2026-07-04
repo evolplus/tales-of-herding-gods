@@ -2,7 +2,7 @@
 
 Thôn trưởng, Dược sư và mọi người đều nhìn về phía cậu. Trong lòng họ thắc mắc, Dược sư tò mò hỏi:
 
-"Mục nhi, cháu từng thấy con thuyền này?"
+"Mục nhi, con từng thấy con thuyền này?"
 
 "Từng thấy trên địa lý đồ Đại Khư..."
 

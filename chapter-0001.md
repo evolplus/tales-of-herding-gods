@@ -160,7 +160,7 @@ Tần Mục chân cao chân thấp đi về thôn. Cậu ngoảnh đầu nhìn l
 
 Cảnh tượng này đánh vào cậu quá mạnh, đến mức cậu cũng không biết mình trở về thôn từ lúc nào.
 
-“Tần Mục! Tiểu tử thối, ta đã dặn ngươi thế nào? Trời tối đừng ra khỏi cửa!”
+“Tần Mục! Tiểu tử thối, bà đã dặn con thế nào? Trời tối đừng ra khỏi cửa!”
 
 Màn đêm buông xuống. Tượng đá ở bốn góc Tàn Lão Thôn lại tự động sáng lên. Tư bà bà gọi Tần Mục đang định lén ra khỏi thôn đến bờ sông xem da bò, kéo cậu trở về.
 
@@ -182,7 +182,7 @@ Tư bà bà gật đầu, sắc mặt lại hơi lo lắng, không ngừng nhìn
 
 Tần Mục chần chừ một chút, kể lại chuyện trong bụng bò chui ra một người phụ nữ. Tư bà bà hờ hững nói:
 
-“Ngươi nói nữ nhân kia à? Lão què đã nói với ta rồi, ông ta xử lý rất tốt. Từ khi ngươi bốn tuổi cai sữa, ta đã nói phải bán con bò đi, chỉ là ngươi không nỡ, nên mới để ngươi nuôi. Ngươi xem, giờ xảy ra chuyện rồi đấy? Ta đã bảo mà, bú sữa đến bốn tuổi thì sẽ có tình cảm với bò sữa.”
+“Con nói nữ nhân kia à? Lão què đã nói với bà rồi, ông ta xử lý rất tốt. Từ khi con bốn tuổi cai sữa, bà đã nói phải bán con bò đi, chỉ là con không nỡ, nên mới để con nuôi. Con xem, giờ xảy ra chuyện rồi đấy? Bà đã bảo mà, bú sữa đến bốn tuổi thì sẽ có tình cảm với bò sữa.”
 
 Tần Mục đỏ mặt. Bốn tuổi mới cai sữa quả thật hơi lâu, nhưng hình như trọng điểm đâu phải chuyện bốn tuổi cai sữa?
 

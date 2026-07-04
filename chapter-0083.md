@@ -70,7 +70,7 @@ Tần Mục suy nghĩ một lát rồi đi tới phủ thành chủ. Lúc này t
 
 Nhưng đây là tấm lòng của Tần Mục, các lão gia tử đều rất vui.
 
-"Mục nhi, Thôn trưởng xuất quan rồi, chuẩn bị dẫn cháu vào Ám giới trong bóng tối để tìm nơi cháu chào đời."
+"Mục nhi, Thôn trưởng xuất quan rồi, chuẩn bị dẫn con vào Ám giới trong bóng tối để tìm nơi con chào đời."
 
 Dược sư vẫy tay với cậu, cười nói:
 
@@ -84,7 +84,7 @@ Tim Tần Mục đập dữ dội, kích động vô cùng, ném hết những s
 
 Thôn trưởng ôn hòa cười, nói:
 
-"Bộ xương già này của ta vẫn còn gánh được. Mục nhi, lần này đi vào bóng tối, cháu tuyệt đối không được rời khỏi bên cạnh ta. Bà bà, đưa Đại Dục Thiên Ma Kinh cho nó phòng thân."
+"Bộ xương già này của ta vẫn còn gánh được. Mục nhi, lần này đi vào bóng tối, con tuyệt đối không được rời khỏi bên cạnh ông. Bà bà, đưa Đại Dục Thiên Ma Kinh cho nó phòng thân."
 
 Tư bà bà lấy từ trong chiếc giỏ nhỏ ra một cuộn chỉ, búng ngón tay. Chỉ thấy một sợi tơ tự bay tới, nhanh chóng xuyên qua quanh bàn tay Tần Mục. Không bao lâu sau, nó đã kết thành một chiếc găng tay.
 
@@ -162,7 +162,7 @@ Thế giới mà hiện giờ cậu nhìn thấy hoàn toàn khác với ngày t
 
 Thân hình Thôn trưởng bay lên, lơ lửng trong không trung, cách mặt đất ba thước, cười nói:
 
-"Bây giờ hẳn là đủ rồi. Mục nhi, đi theo ta, hai ông cháu ta đi một chuyến vào Ám giới."
+"Bây giờ hẳn là đủ rồi. Mục nhi, đi theo ông, hai thầy trò mình đi một chuyến vào Ám giới."
 
 Tư bà bà há miệng muốn nói, nhưng cuối cùng không ngăn cản, chỉ nói:
 

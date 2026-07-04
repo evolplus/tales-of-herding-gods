@@ -16,7 +16,7 @@ Tư bà bà cũng thất thanh:
 
 Lão què nói:
 
-“Mục nhi, ngươi trộm đồ của Ngô Nữ rồi thoát khỏi tay ả thế nào?”
+“Mục nhi, con trộm đồ của Ngô Nữ rồi thoát khỏi tay ả thế nào?”
 
 Tần Mục thấy không thể giấu được, bèn kể cho mọi người chuyện mình học được ma ngữ từ di tích trong hẻm núi, lại đem chuyện mình dẫn động ba loại âm thanh thần, ma, Phật luyện Ngô Nữ kể lại đầu đuôi.
 

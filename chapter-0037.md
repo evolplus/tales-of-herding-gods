@@ -26,7 +26,7 @@ Lông mày trắng của lão hòa thượng rung động:
 
 Mã gia đờ đẫn nói:
 
-“Năm đó ta giết ra ngoài. Nếu muốn trở về, tự nhiên cũng phải giết trở về!”
+“Năm đó ta đánh ra ngoài. Nếu muốn trở về, tự nhiên cũng phải đánh trở về!”
 
 Sắc mặt lão hòa thượng kia trầm xuống, thở dài:
 

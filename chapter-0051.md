@@ -4,13 +4,13 @@
 
 Tư bà bà từ trong thảo lư đi ra, nghẹn ngào nói:
 
-"Ta vất vả nuôi ngươi lớn tới chừng này, vậy mà ngươi không nói không rằng đã chạy theo hồ ly tinh, bỏ bà bà một mình. Ngươi còn hỏi sao ta lại ở đây? Cánh ngươi cứng rồi, có hồ ly tinh là không cần bà bà nữa! Tiểu hồ ly tinh, ngươi muốn chết kiểu gì?"
+"Bà vất vả nuôi con lớn tới chừng này, vậy mà con không nói không rằng đã chạy theo hồ ly tinh, bỏ bà bà một mình. Con còn hỏi sao bà lại ở đây? Cánh con cứng rồi, có hồ ly tinh là không cần bà bà nữa! Tiểu hồ ly tinh, ngươi muốn chết kiểu gì?"
 
 Tần Mục vội cười nói:
 
 "Bà bà, bà hiểu lầm rồi. Con vô tình gặp Hồ Linh Nhi, nghe nó nói tới Dũng Giang Long Cung nên đi xem thử. Vì ở trong Long Cung tham ngộ chân long, nhất thời quên mình, nên ở đó thêm hai ngày."
 
-"Không phải hai ngày, là bốn ngày! Ồ, ngươi nói tham ngộ chân long?"
+"Không phải hai ngày, là bốn ngày! Ồ, con nói tham ngộ chân long?"
 
 Tư bà bà kinh ngạc:
 
@@ -56,7 +56,7 @@ Lôi Âm Bát Thức tiêu hao ít. Lại thêm "Bá Thể Tam Đan Công" càng
 
 Cậu kể lại một lượt những gì mình gặp trong Long Cung. Tư bà bà nghe đến mê mẩn. Khi nghe Tần Mục nói tới việc gặp xương khô mặc quan phục và thây khô, ánh mắt Tư bà bà lóe lên, nói:
 
-"Hai cách chết khác nhau, có điều cổ quái. Lúc ngươi vào trong đó nhất định phải cẩn thận."
+"Hai cách chết khác nhau, có điều cổ quái. Lúc con vào trong đó nhất định phải cẩn thận."
 
 Tần Mục lại kể tới ấu long bị huyền băng long châu phong ấn và Cố Li Noãn. Tư bà bà vỗ tay một cái, cười nói:
 
@@ -96,7 +96,7 @@ Tần Mục khó hiểu. Cố Li Noãn là đại quan tòng nhất phẩm của
 
 Tư bà bà cười nói:
 
-"Mục nhi, chúng ta về nhà. Người trong thôn chắc sốt ruột chết mất, còn tưởng ngươi lần đầu ra ngoài săn bắn đã bị dị thú ăn rồi. Chỉ có bà bà thông minh, biết ngươi bị tiểu hồ ly dụ đi, nên vẫn chờ ở đây. Đúng rồi tiểu hồ ly, mấy quyển cổ tịch của ngươi bà bà đã lật xem một lượt, viết chú giải cho ngươi. Ngươi tự mình xem, có thể giúp ngươi bớt đi đường vòng."
+"Mục nhi, chúng ta về nhà. Người trong thôn chắc sốt ruột chết mất, còn tưởng con lần đầu ra ngoài săn bắn đã bị dị thú ăn rồi. Chỉ có bà bà thông minh, biết con bị tiểu hồ ly dụ đi, nên vẫn chờ ở đây. Đúng rồi tiểu hồ ly, mấy quyển cổ tịch của ngươi bà bà đã lật xem một lượt, viết chú giải cho ngươi. Ngươi tự mình xem, có thể giúp ngươi bớt đi đường vòng."
 
 Hồ Linh Nhi xấu hổ, ủ rũ nói:
 

@@ -130,7 +130,7 @@ Mọi người không hiểu, nhao nhao nhìn về phía ông.
 
 Đồ phu cười hề hề:
 
-“Nếu công pháp Bá Thể là do con người sáng tạo ra, người khác có thể sáng tạo ra, vì sao chúng ta không thể sáng tạo ra? Cho dù chúng ta không sáng tạo được, Mục nhi tự nó cũng có thể sáng tạo ra! Lão tử không phục bất cứ ai, cho nên Sát Trư đao pháp của lão tử chính là do lão tử tự sáng tạo. Nếu mọi người bị khó khăn trước mắt dọa ngã, lão tử cũng sẽ xem thường! Mục nhi, đừng để ta xem thường ngươi!”
+“Nếu công pháp Bá Thể là do con người sáng tạo ra, người khác có thể sáng tạo ra, vì sao chúng ta không thể sáng tạo ra? Cho dù chúng ta không sáng tạo được, Mục nhi tự nó cũng có thể sáng tạo ra! Lão tử không phục bất cứ ai, cho nên Sát Trư đao pháp của lão tử chính là do lão tử tự sáng tạo. Nếu mọi người bị khó khăn trước mắt dọa ngã, lão tử cũng sẽ xem thường! Mục nhi, đừng để ta xem thường con!”
 
 Tần Mục gật đầu thật mạnh, chỉ cảm thấy nhiệt huyết trong lồng ngực dâng lên, lớn tiếng:
 

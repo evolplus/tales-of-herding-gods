@@ -72,11 +72,11 @@ Tần Mục rèn xong dao mổ lợn, thử độ sắc bén, rất hài lòng. 
 
 Lão mù cười nói:
 
-"Mục nhi, khoan hãy thử đao, ải của ta còn chưa qua. Lần này, cháu và ta thi ngâm thơ."
+"Mục nhi, khoan hãy thử đao, ải của ta còn chưa qua. Lần này, con và ta thi ngâm thơ."
 
 Sắc mặt Tần Mục trắng bệch, ấp úng nói:
 
-"Mù gia gia, cháu chắc chắn không bằng ông..."
+"Mù gia gia, con chắc chắn không bằng ông..."
 
 Lão điếc phụt một tiếng rút hai tai sắt của mình ra, tỏ ý không nghe. Tư bà bà và những người khác cũng đầy vẻ ghét bỏ, lần lượt nói:
 
@@ -106,7 +106,7 @@ Tần Mục lộ nụ cười. Nơi ngực cậu bắn tung tóe nước, xuất
 
 Lão mù lộn người rơi xuống, bước chân loạng choạng, vội mở Thần Tàng bị phong ấn, lúc này mới đứng vững, giận dữ nói:
 
-"Cháu ăn gian, đồng thời dùng hai loại nguyên khí! Về kỹ xảo mà nói, cháu đã thua. Cháu chỉ ỷ vào Bá Thể nguyên khí lợi hại mà bắt nạt ta!"
+"Con ăn gian, đồng thời dùng hai loại nguyên khí! Về kỹ xảo mà nói, con đã thua. Con chỉ ỷ vào Bá Thể nguyên khí lợi hại mà bắt nạt ta!"
 
 Tần Mục ấp úng nói:
 
@@ -114,11 +114,11 @@ Tần Mục ấp úng nói:
 
 Lão mù chuyển giận thành vui, nói:
 
-"Bá Thể chẳng phải dùng để bắt nạt người ta sao? Đây là thực lực của cháu. Ải của ta, cháu qua. Bà bà, tới lượt bà."
+"Bá Thể chẳng phải dùng để bắt nạt người ta sao? Đây là thực lực của con. Ải của ta, con qua. Bà bà, tới lượt bà."
 
 Ánh mắt Tư bà bà phức tạp, nhìn Tần Mục vừa giành chiến thắng, nói:
 
-"Mục nhi, trong lòng bà, cháu đã sớm qua ải của bà rồi. Khi cháu đả thông ba trăm sáu mươi phòng, cháu đã qua."
+"Mục nhi, trong lòng bà, con đã sớm qua ải của bà rồi. Khi con đả thông ba trăm sáu mươi phòng, con đã qua."
 
 Tần Mục hơi ngẩn ra:
 
@@ -128,13 +128,13 @@ Tần Mục hơi ngẩn ra:
 
 Tư bà bà thấp giọng nói:
 
-"Lớn rồi đều phải đi. Bà không thể giữ cháu cả đời. Mấy lão già này đều cho cháu qua ải, nếu bà không cho thì quá ích kỷ..." Bà xách giỏ quay về phòng, khép cửa lại.
+"Lớn rồi đều phải đi. Bà không thể giữ con cả đời. Mấy lão già này đều cho con qua ải, nếu bà không cho thì quá ích kỷ..." Bà xách giỏ quay về phòng, khép cửa lại.
 
 Tần Mục ngẩn ngơ.
 
 Thôn trưởng ho một tiếng, khiến cậu tỉnh lại, nói:
 
-"Mục nhi, nếu cháu qua được ải của ta, cháu có thể đi khỏi Tàn Lão Thôn, rời Đại Khư, tới ngoại giới rèn luyện."
+"Mục nhi, nếu con qua được ải của ta, con có thể đi khỏi Tàn Lão Thôn, rời Đại Khư, tới ngoại giới rèn luyện."
 
 Tần Mục xoay người, nói:
 
@@ -142,15 +142,15 @@ Tần Mục xoay người, nói:
 
 Thôn trưởng khẽ cười, nói:
 
-"Những thứ mấy lão già chúng ta dạy cháu đều là bản lĩnh giúp cháu sinh tồn trong thế giới này. Mã gia dạy cháu sức mạnh và trang nghiêm, Đồ phu dạy cháu dũng khí và vô úy, Lão điếc dạy cháu nghệ thuật và phong độ, Lão què dạy cháu chạy trốn và gian xảo, Lão mù dạy cháu nhìn thấu biểu tượng để thấy chân thật, Dược sư dạy cháu luyện thuốc và cứu mạng, bà bà dạy cháu trí tuệ và thiện lương, Lão câm dạy cháu biến thông và ung dung. Còn thứ ta có thể dạy cháu là một cây thước, lấy lương tâm làm mốc để đo lường đúng sai thiện ác. Giơ kiếm của cháu lên."
+"Những thứ mấy lão già chúng ta dạy con đều là bản lĩnh giúp con sinh tồn trong thế giới này. Mã gia dạy con sức mạnh và trang nghiêm, Đồ phu dạy con dũng khí và vô úy, Lão điếc dạy con nghệ thuật và phong độ, Lão què dạy con chạy trốn và gian xảo, Lão mù dạy con nhìn thấu biểu tượng để thấy chân thật, Dược sư dạy con luyện thuốc và cứu mạng, bà bà dạy con trí tuệ và thiện lương, Lão câm dạy con biến thông và ung dung. Còn thứ ta có thể dạy con là một cây thước, lấy lương tâm làm mốc để đo lường đúng sai thiện ác. Giơ kiếm của con lên."
 
 Tần Mục rút Thiếu Bảo Kiếm, đặt ngang trước mặt. Sống kiếm hướng về phía Tần Mục chia lưỡi kiếm thành hai bên, một bên phản chiếu gương mặt Tần Mục, bên kia cũng phản chiếu gương mặt Tần Mục.
 
-"Kiếm có bốn mặt. Mặt hướng về cháu phản chiếu lòng cháu, một bên là thiện, một bên là ác."
+"Kiếm có bốn mặt. Mặt hướng về con phản chiếu lòng con, một bên là thiện, một bên là ác."
 
 Sắc mặt Thôn trưởng bình tĩnh:
 
-"Mặt hướng về kẻ địch của cháu phản chiếu lương tâm của kẻ địch, một bên là thiện, một bên là ác. Kiếm chính là cây thước của cháu, dùng để đo lường thiện ác đúng sai, vừa đo cháu, cũng đo kẻ địch. Kiếm pháp là đo thiện ác của đối thủ, cũng là đo cháu. Bây giờ ta truyền cho cháu thức đầu tiên trong kiếm pháp của ta. Học xong, xem như cháu qua ải của ta, có thể rời thôn đi ra ngoài xông xáo."
+"Mặt hướng về kẻ địch của con phản chiếu lương tâm của kẻ địch, một bên là thiện, một bên là ác. Kiếm chính là cây thước của con, dùng để đo lường thiện ác đúng sai, vừa đo con, cũng đo kẻ địch. Kiếm pháp là đo thiện ác của đối thủ, cũng là đo con. Bây giờ ta truyền cho con thức đầu tiên trong kiếm pháp của ta. Học xong, xem như con qua ải của ta, có thể rời thôn đi ra ngoài xông xáo."
 
 Tần Mục kích động. Thôn trưởng cuối cùng cũng muốn truyền kiếm chiêu cho cậu!
 

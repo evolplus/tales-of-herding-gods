@@ -78,7 +78,7 @@ Cửa sòng bạc kẽo kẹt mở ra. Một cây trúc trượng bị ném ra, 
 
 Lão mù nhặt trúc trượng lên, cười nói:
 
-"Lần này vận may không tốt. Lần sau bảo đảm các ngươi không nhìn ra ta gian lận, nhất định có thể thắng lại cả vốn lẫn lời! Mục nhi, là cháu sao? Nói này, tối nay ta gặp một chuyện thú vị. Ta nhìn thấy một con chim mái lớn trang điểm thật đẹp ra ngoài lượn một vòng, bên cạnh còn có một con chim trống nhỏ lượn theo."
+"Lần này vận may không tốt. Lần sau bảo đảm các ngươi không nhìn ra ta gian lận, nhất định có thể thắng lại cả vốn lẫn lời! Mục nhi, là con sao? Nói này, tối nay ta gặp một chuyện thú vị. Ta nhìn thấy một con chim mái lớn trang điểm thật đẹp ra ngoài lượn một vòng, bên cạnh còn có một con chim trống nhỏ lượn theo."
 
 Tần Mục thắc mắc:
 
@@ -108,15 +108,15 @@ Cậu định thần lại, kể lại những gì mình gặp trong con hẻm.
 
 Sắc mặt Tư bà bà cổ quái, cười khúc khích:
 
-"Cháu dùng một đồng long tệ kiếm được hơn ba ngàn long tệ? Sớm biết cháu có nhiều tiền như vậy, bà bà đã ra ngoài ăn chơi trác táng từ lâu rồi, cũng không cần đi lừa ăn lừa uống."
+"Con dùng một đồng long tệ kiếm được hơn ba ngàn long tệ? Sớm biết con có nhiều tiền như vậy, bà bà đã ra ngoài ăn chơi trác táng từ lâu rồi, cũng không cần đi lừa ăn lừa uống."
 
 Tần Mục kể lại chuyện mình gặp mỹ phụ và chuyện xảy ra trong phủ thành chủ, nói:
 
-"Bà bà, cháu đánh chết con trai thành chủ. Nơi này không nên ở lâu, chúng ta phải rời đi càng sớm càng tốt!"
+"Bà bà, con đánh chết con trai thành chủ. Nơi này không nên ở lâu, chúng ta phải rời đi càng sớm càng tốt!"
 
 Tư bà bà rút trâm ngọc trên đầu xuống, vẫy tay. Đột nhiên một sợi chỉ từ ngoài cửa sổ bay vào. Sợi chỉ tự động xoay quanh trâm ngọc, chỉ trong một hơi thở đã quấn thành cuộn chỉ, được bà ném vào trong giỏ. Bà cười nói:
 
-"Ta biến phu nhân Tương Long thành chủ thành bò, cháu đánh chết con trai hắn. Vị Tương Long thành chủ này đúng là xui xẻo. Có điều còn có chuyện xui xẻo hơn chờ hắn. Hắn làm ác quá nhiều, đáng có báo ứng này. Những long tệ này là tự cháu kiếm được, cháu tự giữ lấy. Tương lai nói không chừng có ích."
+"Ta biến phu nhân Tương Long thành chủ thành bò, con đánh chết con trai hắn. Vị Tương Long thành chủ này đúng là xui xẻo. Có điều còn có chuyện xui xẻo hơn chờ hắn. Hắn làm ác quá nhiều, đáng có báo ứng này. Những long tệ này là tự con kiếm được, con tự giữ lấy. Tương lai nói không chừng có ích."
 
 Bên ngoài truyền tới từng tiếng gầm giận kinh thiên động địa. Một trong những giọng nói ấy chính là Hắc tôn giả, nghiêm giọng kêu:
 

@@ -36,7 +36,7 @@ Khuôn mặt nữ tử ấy mơ hồ không rõ. Cậu muốn nhìn rõ, nhưng 
 
 Trước ngực cậu, ngọc bội khẽ bay lên, dường như muốn bay về phía thế giới trong bóng tối kia.
 
-"Mục nhi, cháu làm gì vậy?"
+"Mục nhi, con làm gì vậy?"
 
 Phía sau truyền tới một giọng nói vừa kinh vừa giận. Tần Mục rụt bàn tay lại. Lão điếc xuất hiện sau lưng, đánh thức cậu. Tần Mục tỉnh khỏi cơn u trầm, vội rụt tay lại, không khỏi toát mồ hôi lạnh toàn thân.
 
@@ -48,7 +48,7 @@ Trong cơn hoảng hốt, Tần Mục cảm thấy trong bóng tối dường nh
 
 Lão điếc nổi giận, kéo cậu đi, giận dữ nói:
 
-"Trong bóng tối có ma vật, giỏi mê hoặc lòng người. Cẩn thận nó bắt cháu đi!"
+"Trong bóng tối có ma vật, giỏi mê hoặc lòng người. Cẩn thận nó bắt con đi!"
 
 "Ma vật mê hoặc lòng người?"
 
@@ -56,19 +56,19 @@ Lúc này Tần Mục mới thấy sợ, giơ tay giấu ngọc bội trước n
 
 "Rồi sẽ có một ngày, ta sẽ đi khắp bóng tối, tìm kiếm nguồn gốc của bóng tối, tìm được Vô Ưu Hương!"
 
-"Điếc gia gia, vừa rồi thứ trong bóng tối rốt cuộc là gì? Vì sao cháu đột nhiên có thể nhìn thấy thứ trong bóng tối?" Tần Mục nghĩ một chút rồi hỏi.
+"Điếc gia gia, vừa rồi thứ trong bóng tối rốt cuộc là gì? Vì sao con đột nhiên có thể nhìn thấy thứ trong bóng tối?" Tần Mục nghĩ một chút rồi hỏi.
 
 "Trong bóng tối là Ám giới."
 
 Lão điếc nói:
 
-"Chuyện Ám giới, Thôn trưởng hiểu rõ. Ông ấy từng tới đó. Chúng ta đi phủ thành chủ, Thôn trưởng cũng ở đó, để Thôn trưởng kể cho cháu nghe."
+"Chuyện Ám giới, Thôn trưởng hiểu rõ. Ông ấy từng tới đó. Chúng ta đi phủ thành chủ, Thôn trưởng cũng ở đó, để Thôn trưởng kể cho con nghe."
 
 Tần Mục chấn động trong lòng. Thôn trưởng từng tới thế giới trong bóng tối?
 
 Thôn trưởng mạnh mẽ đến vậy sao, vào bóng tối mà vẫn có thể sống trở về?
 
-"Mục nhi, cháu vậy mà nhìn thấy thế giới trong bóng tối?"
+"Mục nhi, con vậy mà nhìn thấy thế giới trong bóng tối?"
 
 Trong phủ thành chủ, mọi người Tàn Lão Thôn tề tựu một chỗ. Tư bà bà vẫn khoác lớp da Phó Vân Địch. Dược sư, Lão câm, Mã gia, Lão điếc, Lão mù, Lão què và Đồ phu đều ở đó, nghe Tần Mục kể lại chuyện cậu gặp trên Thuyền Mặt Trời và khi đối mặt với bàn tay trong bóng tối.
 
@@ -100,13 +100,13 @@ Thế giới trong bóng tối rốt cuộc là cảnh tượng gì?
 
 Thôn trưởng trầm giọng nói:
 
-"Sau đó ta từng thử bước vào bóng tối lần nữa, tìm thế giới ẩn giấu trong bóng tối, nhưng không tìm được. Thế giới Mục nhi thấy hẳn chính là thế giới ta từng thấy. Thế giới trong bóng tối ấy, ta gọi là Ám giới. Còn thế giới nơi chúng ta đang ở, ta gọi là Minh giới. Minh và ám đối ứng, thay phiên nhau. Ban ngày là Minh giới chiếm chủ đạo, đến đêm thì là Ám giới chiếm chủ đạo. Mục nhi, Thái Dương Thủ của Mục Nhật tộc nói với cháu rằng cháu có thể đến từ Vô Ưu Hương, mà Vô Ưu Hương có đôi lúc sẽ xuất hiện trong bóng tối?"
+"Sau đó ta từng thử bước vào bóng tối lần nữa, tìm thế giới ẩn giấu trong bóng tối, nhưng không tìm được. Thế giới Mục nhi thấy hẳn chính là thế giới ta từng thấy. Thế giới trong bóng tối ấy, ta gọi là Ám giới. Còn thế giới nơi chúng ta đang ở, ta gọi là Minh giới. Minh và ám đối ứng, thay phiên nhau. Ban ngày là Minh giới chiếm chủ đạo, đến đêm thì là Ám giới chiếm chủ đạo. Mục nhi, Thái Dương Thủ của Mục Nhật tộc nói với con rằng con có thể đến từ Vô Ưu Hương, mà Vô Ưu Hương có đôi lúc sẽ xuất hiện trong bóng tối?"
 
 Tần Mục gật đầu.
 
 Mọi người nhìn nhau. Dược sư cười nói:
 
-"Mục nhi, cháu về nghỉ ngơi trước đi. Đại quân Diên Khang vừa lui, trong thành cá rồng lẫn lộn, chúng ta đều cần gác đêm."
+"Mục nhi, con về nghỉ ngơi trước đi. Đại quân Diên Khang vừa lui, trong thành cá rồng lẫn lộn, chúng ta đều cần gác đêm."
 
 Tần Mục vâng lời, rời phủ thành chủ, về khách điếm nghỉ ngơi.
 

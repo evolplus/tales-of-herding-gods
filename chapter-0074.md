@@ -12,7 +12,7 @@ Thiếu niên rửa mặt xong, ăn bữa sáng, xuống lầu tìm Tư bà bà 
 
 Sáu con bò thiến lớn kia thấy Tần Mục thì trong mắt lộ vẻ sợ hãi, run lẩy bẩy.
 
-"Bà bà, chẳng phải sáu con bò nhà ta đã bán rồi sao?" Tần Mục hỏi.
+"Bà bà, chẳng phải sáu con bò nhà mình đã bán rồi sao?" Tần Mục hỏi.
 
 Tư bà bà ngáp một cái, hờ hững nói:
 

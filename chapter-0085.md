@@ -36,7 +36,7 @@ Tần Mục ngẩn ra, nói:
 
 Thôn trưởng nói:
 
-"Không chỉ Đại Khư mới có những nơi như vậy, thật ra bên ngoài Đại Khư cũng có nơi tương tự. Nếu cháu rời khỏi Đại Khư, gặp thôn xóm như vậy, lão giả như vậy, đừng tiến lên hỏi han. Chỉ cần không trêu chọc họ, họ cũng sẽ không can thiệp thế giới hiện thực. Có điều, họ biết rất nhiều chuyện, có thể hỏi đường họ. Đạo huynh, xin hỏi đi Vô Ưu Hương thế nào?"
+"Không chỉ Đại Khư mới có những nơi như vậy, thật ra bên ngoài Đại Khư cũng có nơi tương tự. Nếu con rời khỏi Đại Khư, gặp thôn xóm như vậy, lão giả như vậy, đừng tiến lên hỏi han. Chỉ cần không trêu chọc họ, họ cũng sẽ không can thiệp thế giới hiện thực. Có điều, họ biết rất nhiều chuyện, có thể hỏi đường họ. Đạo huynh, xin hỏi đi Vô Ưu Hương thế nào?"
 
 Lão giả trong thôn giơ một ngón tay, chỉ vào trong bóng tối:
 

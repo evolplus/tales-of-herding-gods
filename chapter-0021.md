@@ -28,7 +28,7 @@ Tần Mục kinh thán. Lão mù kia ở giữa không trung vẫn chống gậy
 
 Tần Mục dậy mặc áo rửa mặt, nấu bữa sáng, rồi ăn sáng cùng Tư bà bà, rửa nồi bát muôi thìa. Sau đó cậu thấy lão mù hào hứng chạy từ ngoài thôn về, kêu lên:
 
-“Lão thái bà chết tiệt, một cước này của ngươi thật ác, ta suýt nữa không lần mò về được! Mục nhi, mau qua đây, Dược sư làm cho ngươi một vị thuốc!”
+“Lão thái bà chết tiệt, một cước này của ngươi thật ác, ta suýt nữa không lần mò về được! Mục nhi, mau qua đây, Dược sư làm cho con một vị thuốc!”
 
 Sắc mặt Tư bà bà không tốt, hung hăng trừng lão mù một cái, đứng dậy lảo đảo rời đi, nói:
 
@@ -64,7 +64,7 @@ Dược sư cười âm trầm:
 
 “Hay là ngươi ăn hết chum thuốc này thử xem?”
 
-“Mục nhi, ngươi bốc một nắm nếm thử đi?” Lão mù dụ dỗ.
+“Mục nhi, con bốc một nắm nếm thử đi?” Lão mù dụ dỗ.
 
 Tần Mục căn bản sẽ không bị ông dụ dỗ, chỉ nhón một viên đưa vào miệng.
 

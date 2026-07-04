@@ -28,7 +28,7 @@ Lão câm rất đồng tình, liên tục gật đầu:
 
 Lão điếc rất tán thành:
 
-"Chỉ không biết lão đầu tử chống đỡ được bao lâu. Nếu không chống nổi thì hai ông cháu đều tiêu đời."
+"Chỉ không biết lão đầu tử chống đỡ được bao lâu. Nếu không chống nổi thì hai người đều tiêu đời."
 
 Tư bà bà nhổ liền hai cái:
 
@@ -40,17 +40,17 @@ Trong bóng tối, ngọc bội trước ngực Tần Mục sáng lên. Thiếu 
 
 Cậu đột nhiên nhớ tới một chuyện, vội nói:
 
-"Linh Thai của cháu lại lặng xuống rồi."
+"Linh Thai của con lại lặng xuống rồi."
 
 Thân hình Thôn trưởng lảo đảo, quầng lửa sáng quanh người gần như tắt ngấm. Ông vội ổn định tâm thần, nói:
 
-"Mục nhi, cháu chưa nói với mấy lão già khác chứ?"
+"Mục nhi, con chưa nói với mấy lão già khác chứ?"
 
 Ngay khoảnh khắc tâm thần ông dao động, trong bóng tối truyền tới ma âm kỳ quái, như thể ma đầu trong bóng tối đang thì thầm, định nhân lúc quầng lửa tắt mà xông vào.
 
 Tần Mục cẩn thận nhìn quanh, lắc đầu nói:
 
-"Cháu còn chưa kịp nói với bà bà bọn họ. Thôn trưởng, không phải ông nói Bá Thể Tam Đan Công, mỗi lần thức tỉnh chính là một đan sao? Cháu đã thức tỉnh ba lần, ba đan đều thức tỉnh. Bây giờ Linh Thai lại ngủ say, chờ nó thức tỉnh lần nữa thì chính là thức tỉnh lần thứ tư. Có phải cháu tu luyện xảy ra vấn đề không..."
+"Con còn chưa kịp nói với bà bà bọn họ. Thôn trưởng, không phải ông nói Bá Thể Tam Đan Công, mỗi lần thức tỉnh chính là một đan sao? Con đã thức tỉnh ba lần, ba đan đều thức tỉnh. Bây giờ Linh Thai lại ngủ say, chờ nó thức tỉnh lần nữa thì chính là thức tỉnh lần thứ tư. Có phải con tu luyện xảy ra vấn đề không..."
 
 Thôn trưởng thở phào nhẹ nhõm, cười nói:
 
@@ -90,7 +90,7 @@ Tần Mục đi theo Thôn trưởng về phía trước, đi chừng trăm trư
 
 Sắc mặt Thôn trưởng nghiêm trọng, nhìn quanh bốn phía. Chỉ thấy trong bóng tối mơ hồ có bóng đen đang phủ phục, di động, biến hóa, tựa như không biết có bao nhiêu ma quái đang ẩn nấp quanh họ. Ông nói:
 
-"Giọt máu đó là máu Ma Thần. Nếu cháu chạm vào, thần tượng Lão điếc vẽ trên người cháu e rằng sẽ bị ô nhiễm, không dùng được nữa. Mục nhi, cháu trôi từ thượng du xuống, vậy chúng ta cứ men theo Dũng Giang đi lên."
+"Giọt máu đó là máu Ma Thần. Nếu con chạm vào, thần tượng Lão điếc vẽ trên người con e rằng sẽ bị ô nhiễm, không dùng được nữa. Mục nhi, con trôi từ thượng du xuống, vậy chúng ta cứ men theo Dũng Giang đi lên."
 
 Không bao lâu sau, họ tới bên Dũng Giang. Nước sông cuồn cuộn. Thôn trưởng bay trên mặt sông, Tần Mục cũng theo ông đạp sông mà đi. Tần Mục nhìn bốn phía, bóng đen trong bóng tối vẫn không ngừng di chuyển, thỉnh thoảng còn truyền tới tiếng thì thầm quỷ dị, như thể ma quái trong bóng tối đang bàn bạc cách ăn thịt họ, khiến người ta sởn gai ốc.
 
@@ -98,7 +98,7 @@ Nhưng có Thôn trưởng bên cạnh, lòng cậu yên ổn hơn nhiều.
 
 Thôn trưởng nói:
 
-"Chúng ta tới tận nguồn Dũng Giang. Dọc đường phải chạy năm nghìn dặm, tốc độ cháu quá chậm, ta mang cháu đi."
+"Chúng ta tới tận nguồn Dũng Giang. Dọc đường phải chạy năm nghìn dặm, tốc độ con quá chậm, ông mang con đi."
 
 Tần Mục chỉ cảm thấy thân thể nhẹ đi, như một sợi lông ngỗng bay lên. Ngay sau đó, cậu thấy quanh người Thôn trưởng quầng lửa sáng bừng bừng, trong thần quang, thân hình ông càng thêm vĩ ngạn, tựa như người khổng lồ đội trời đạp đất, sải bước men theo Dũng Giang đi về phía thượng du!
 

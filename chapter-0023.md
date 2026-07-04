@@ -16,7 +16,7 @@ Trên tượng đá khắc là vị thần nào? Vì sao chỉ khắc thành dá
 
 Hồi nhỏ mình bò lên tượng đá đi ngoài đi tiểu, liệu có bị thần ghi hận không?
 
-“Con yên tâm, vị thần điêu khắc pho tượng này đã chết từ lâu rồi. Mục nhi, ta bảo con nhìn tượng đá, thật ra là để tu luyện đôi mắt của con. Thứ ta bảo con nhìn không phải tượng đá bình thường, mà là tượng do thần tạo ra cho thần!”
+“Con yên tâm, vị thần điêu khắc pho tượng này đã chết từ lâu rồi. Mục nhi, ông bảo con nhìn tượng đá, thật ra là để tu luyện đôi mắt của con. Thứ ông bảo con nhìn không phải tượng đá bình thường, mà là tượng do thần tạo ra cho thần!”
 
 Giọng lão mù như chuông lớn gõ bên tai, khiến màng nhĩ Tần Mục ong ong. Lão mù quay sang một chiếc sọt trúc bên cạnh tượng đá mà gào:
 
