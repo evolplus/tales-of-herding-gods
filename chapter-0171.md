@@ -24,7 +24,7 @@ Ngọc thụ trang thành, công pháp thành tựu, hết thảy đều thuận
 
 Một lát sau, Tần Mục "giết" tới dưới gốc tùng bách. Ba vị trấn giáo Thiên Vương dưới gốc cây căng thẳng vạn phần, chỉ sợ hắn thừa dịp mình không phòng bị, chặt ngã cổ thụ tượng trưng cho Thánh giáo này.
 
-Không ngờ Tần Mục giết tới dưới cây, lại không tiếp tục giết về phía tùng bách, mà ngồi xuống trên Thánh Nhân Thạch, ngồi kiết già, nhập định.
+Không ngờ Tần Mục giết tới dưới cây, lại không tiếp tục xông về phía tùng bách, mà ngồi xuống trên Thánh Nhân Thạch, ngồi kiết già, nhập định.
 
 Quanh người hắn nguyên khí lượn lờ, linh thai động, ngũ tinh rung, Ngũ Hành thần mỗi vị bay lên không, đáp xuống Ngũ Diệu tinh.
 

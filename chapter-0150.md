@@ -112,7 +112,7 @@ Quanh Bá Sơn Tế Tửu lửa cháy hừng hực, chỉ riêng nơi ông đứ
 
 Linh Dục Tú giật mình, lập tức nhìn ra mấu chốt. Bá Sơn Tế Tửu giấu Viêm Hỏa thần thông trong cây búa sắt lớn. Thiếu Bảo Kiếm chạm vào búa sắt lớn, Viêm Hỏa thần thông bộc phát, đánh bay Thiếu Bảo Kiếm.
 
-Tần Mục nguyên khí thành tơ, cuốn lấy Thiếu Bảo Kiếm. Kiếm quang lóe lên, giết về phía Bá Sơn Tế Tửu.
+Tần Mục nguyên khí thành tơ, cuốn lấy Thiếu Bảo Kiếm. Kiếm quang lóe lên, đâm về phía Bá Sơn Tế Tửu.
 
 Hai người cách nhau khá xa. Bá Sơn Tế Tửu vung búa sắt, lên xuống tung bay. Mỗi đòn đều vừa khéo chặn Thiếu Bảo Kiếm, tiếp đó là từng tiếng nổ ầm ầm, sóng lửa cuồn cuộn, kinh người vô cùng.
 

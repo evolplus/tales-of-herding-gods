@@ -144,7 +144,7 @@ Chấp pháp trưởng lão chấn động trong lòng, khó tin nhìn về phí
 
 Một vị hộ giáo trưởng lão nói:
 
-"Ta nghe nói ông ta phát cuồng, vung đao lên trời, giết thẳng vào thương khung. Có người thấy bóng chư thần hiện ra trên trời, tên điên đó giết về phía chư thần. Nghe nói lúc ấy trời đầy mây đen, đao quang xuyên qua lôi vân. Chẳng bao lâu sau, thi thể Thiên Đao từ trên trời rơi xuống. Nếu Đồ phu này chính là Thiên Đao kia, vậy ông ta sống sót bằng cách nào?"
+"Ta nghe nói ông ta phát cuồng, vung đao lên trời, giết thẳng vào thương khung. Có người thấy bóng chư thần hiện ra trên trời, tên điên đó đánh thẳng về phía chư thần. Nghe nói lúc ấy trời đầy mây đen, đao quang xuyên qua lôi vân. Chẳng bao lâu sau, thi thể Thiên Đao từ trên trời rơi xuống. Nếu Đồ phu này chính là Thiên Đao kia, vậy ông ta sống sót bằng cách nào?"
 
 Thiếu niên Tổ sư nói:
 

@@ -132,13 +132,13 @@ Chiến trường này ở trên không. Ngoài từng chiếc lầu thuyền ch
 
 May mà chiếc lầu thuyền bọn họ đang ngồi ở rìa chiến trường. Nhà thuyền thấy tình hình không ổn, lập tức bẻ hết lái sang trái. Lầu thuyền gần như nghiêng hẳn đi, tránh một chiếc chiến hạm trong gang tấc, lướt qua bên cạnh chiến trường.
 
-Tần Mục đứng vững thân thể, tránh rơi xuống. Đột nhiên một đội kỵ binh cưỡi Kim Sí Điêu giết tới. Từ xa đã thấy sau lưng đội kỵ binh kia, từng thanh phi kiếm trong kiếm hạp phóng lên trời, vạch ra từng đường cong giết về phía mọi người trên thuyền.
+Tần Mục đứng vững thân thể, tránh rơi xuống. Đột nhiên một đội kỵ binh cưỡi Kim Sí Điêu giết tới. Từ xa đã thấy sau lưng đội kỵ binh kia, từng thanh phi kiếm trong kiếm hạp phóng lên trời, vạch ra từng đường cong bắn về phía mọi người trên thuyền.
 
 Thuyền lão đại kia vội cao giọng kêu:
 
 "Chúng ta là thương nhân đi ngang, không phải binh sĩ!"
 
-Đội kỵ binh kia làm như không nghe thấy. Từng thanh lợi kiếm bay lên boong thuyền, giết về phía mọi người trên thuyền. Còn có mấy thanh kiếm chém về phía buồm, chặt đứt dây thừng của buồm. Tốc độ lầu thuyền lập tức giảm mạnh.
+Đội kỵ binh kia làm như không nghe thấy. Từng thanh lợi kiếm bay lên boong thuyền, đâm về phía mọi người trên thuyền. Còn có mấy thanh kiếm chém về phía buồm, chặt đứt dây thừng của buồm. Tốc độ lầu thuyền lập tức giảm mạnh.
 
 Mọi người trên thuyền tê cả da đầu. Đây là chiến đấu giữa quân chính quy. Hiển nhiên hai bên chém giết, một bên là quân bình phản của Diên Khang quốc, bên kia là phản quân địa phương, không phải môn phái làm loạn đơn giản.
 

@@ -58,7 +58,7 @@ Nguyên khí của cậu thử xông vào cành liễu. Nhưng nguyên khí vào
 
 Một thước ba tấc thật sự quá ngắn, dùng nó đối kháng phi kiếm của đối phương thật sự quá hung hiểm.
 
-Khúc sư huynh giết tới trước mặt. Bảo kiếm vây quanh hắn bay múa trên dưới, đâm, gọt, miết, hất, bổ, rung, cắt, như có một kiếm khách vô hình nắm thanh bảo kiếm này, từ đủ góc độ xảo trá vô cùng giết về phía Tần Mục.
+Khúc sư huynh giết tới trước mặt. Bảo kiếm vây quanh hắn bay múa trên dưới, đâm, gọt, miết, hất, bổ, rung, cắt, như có một kiếm khách vô hình nắm thanh bảo kiếm này, từ đủ góc độ xảo trá vô cùng tấn công về phía Tần Mục.
 
 Xoẹt xoẹt xoẹt xoẹt, mấy tiếng khẽ vang. Cành liễu trong tay Tần Mục chỉ còn lại một thước ba tấc. Thanh bảo kiếm kia lại bổ xuống, va vào cành liễu, phát ra một tiếng đinh khẽ, như đụng phải sắt thép.
 
