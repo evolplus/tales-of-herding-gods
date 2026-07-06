@@ -159,3 +159,5 @@ Tiểu bạch hồ run lẩy bẩy, làm da đầu Tần Mục cũng rung theo.
 "Rồng kìa!"
 
 Bạch hồ thét lên, cực nhanh rời khỏi đầu Tần Mục, bò ra sau lưng cậu. Bốn móng vuốt bấu chặt hai bên eo Tần Mục, trông như Tần Mục đang đeo một chiếc ba lô trắng.
+
+[Xem chương tiếp theo](chapter-0047.md)

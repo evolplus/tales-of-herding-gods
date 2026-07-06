@@ -129,3 +129,5 @@ Kiếm chỉ Tần Mục đâm ra. Thiếu Bảo Kiếm xông vào trong trườ
 Trường hà lập tức bị máu nhuộm thành màu đỏ, hóa thành một dòng sông đỏ. Trong dòng sông nổi lên từng thi thể, đó là Thiên Ma chúng bị cậu chém giết.
 
 Dưới chân Tần Mục, ào một tiếng, sóng nước bốc lên. Một con Huyền Quy hiện ra, chở cậu chìm nổi trong sông, tiến về phía cửa thôn. Còn sau lưng cậu, cả thôn đã bị san thành đất bằng. Sau khi nước lớn qua đi, thi thể đầy đất!
+
+[Xem chương tiếp theo](chapter-0090.md)

@@ -163,3 +163,5 @@ Giữa không trung bắt đầu đổ mưa máu.
 Còn có vài thiên ma rõ ràng địa vị cao hơn, tay cầm quyền trượng rơi từ trên trời xuống, đáp lên tế đàn Thiên Ba thành, vây quanh tế đàn niệm tụng ma ngữ cổ xưa tối nghĩa. Trên không tế đàn lập tức xuất hiện vô số phù văn rực rỡ, sáng chói vô cùng.
 
 "Có lẽ ta đã gây ra họa còn lớn hơn đánh ngất cả Thái Học Viện..." Khóe mắt Tần Mục giật giật, thầm nghĩ.
+
+[Xem chương tiếp theo](chapter-0189.md)

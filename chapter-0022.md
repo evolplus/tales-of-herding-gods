@@ -155,3 +155,5 @@ Lão mù nâng gậy trúc chỉ vào tượng đá, nói:
 Sắc mặt ông cổ quái. Qua một lát, ông nói:
 
 “Tương đương với cõng một vị thần!”
+
+[Xem chương tiếp theo](chapter-0023.md)

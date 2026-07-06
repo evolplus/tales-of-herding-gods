@@ -159,3 +159,5 @@ Tư bà bà lấy từ trong giỏ ra một chiếc gương sáng đặt trướ
 Cậu muốn nói chuyện, nhưng trong miệng lại phát ra tiếng nai kêu u u.
 
 “Thiên Ma Tạo Hóa Công! Pháp thuật hay lắm! Không ngờ ở nơi Đại Khư hoang man thê lương này, còn gặp được dư nghiệt Thiên Ma và tiểu ma đầu đang truyền dạy mấy thủ đoạn hại người!”
+
+[Xem chương tiếp theo](chapter-0005.md)

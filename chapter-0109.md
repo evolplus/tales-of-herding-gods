@@ -103,3 +103,5 @@ Tần Mục và Vệ Dung nhảy lên lưng chim, chỉ thấy lưng chim rất 
 Con cự điểu lông đen mào đỏ này sải bước, chạy như bay về phía Kinh thành.
 
 Tướng lĩnh kia thở phào, thấp giọng nói: "Vệ Quốc Công là đại quan nhất phẩm trong triều, may mà người nhà ông ấy không gặp chuyện. Nếu không chức quan của ta khó giữ rồi... Thiếu niên họ Tần kia không biết Tần gia? Y phục của hắn trông rất không tầm thường, thực lực cũng rất bất phàm, chỉ có gia đình đại phiệt mới dạy ra con em xuất sắc như vậy. Chẳng lẽ phủ Lệ Châu cũng có một Tần gia?"
+
+[Xem chương tiếp theo](chapter-0110.md)

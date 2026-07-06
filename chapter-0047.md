@@ -129,3 +129,5 @@ Nguyên khí của Tần Mục chấn động, theo cánh tay tràn vào Khích 
 Phạn âm từ miệng bóng Phật chấn động:
 
 "Hết thảy chúng sinh từ vô thủy tới nay, sinh tử tiếp nối, đều bởi không biết chân tâm thường trụ, thể tính tịnh minh, lại dùng mọi vọng tưởng. Vọng tưởng ấy không thật, nên có luân chuyển - luân chuyển - luân chuyển - chuyển -"
+
+[Xem chương tiếp theo](chapter-0048.md)

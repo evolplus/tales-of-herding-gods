@@ -167,3 +167,5 @@ Trước ngực canh phu nổ tung hai lỗ máu, xuyên thẳng từ trước r
 Canh phu phun ra hơi thở cuối cùng, khí tuyệt mà chết.
 
 Một lá cờ phướn trắng hình tam giác từ không trung rơi xuống, phủ lên mặt hắn.
+
+[Xem chương tiếp theo](chapter-0043.md)

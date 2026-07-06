@@ -128,4 +128,6 @@ Tần Mục và Hồ Linh Nhi cùng rên khẽ. Pháp thuật bị phá, một n
 
 "Con trai chưởng giáo Thi Tiên giáo ta mà các ngươi cũng dám giết, chẳng lẽ mộ tổ nhà các ngươi bốc khói đen rồi?"
 
-Hạ Ẩn sải bước từ trên không chạy tới. Từng cỗ Phi cương từ không trung lao xuống giết về phía Tần Mục, đồng thời năm cỗ Phi cương dưới mặt đất cũng gào rít nhào tới!
+Hạ Ẩn sải bước từ trên không chạy tới. Từng cỗ Phi cương từ không trung lao xuống đánh về phía Tần Mục, đồng thời năm cỗ Phi cương dưới mặt đất cũng gào rít nhào tới!
+
+[Xem chương tiếp theo](chapter-0102.md)

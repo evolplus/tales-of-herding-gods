@@ -233,3 +233,5 @@ Quốc sư Diên Khang cất bước, theo kịp ông, nói:
 Thiếu niên tổ sư dừng bước, nhìn vào mắt ông:
 
 "Chúng ta lập tiểu học, đại học, Thái học, cải cách môn phái, gom sở học của rất nhiều môn phái để truyền dạy sĩ tử, để lê dân ngang hàng với đệ tử môn phái. Trong mắt bọn họ, đây là phản kinh ly đạo, tội không thể tha. Nhưng trong lòng chúng ta, đây chính là chính đạo! Ngươi đừng quan tâm người khác nói thế nào. Đúng, chính là đúng! Nó sẽ không vì tiếng sủa cuồng của hạng tiểu nhân mà biến thành sai."
+
+[Xem chương tiếp theo](chapter-0163.md)

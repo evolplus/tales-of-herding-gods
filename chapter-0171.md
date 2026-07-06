@@ -215,3 +215,5 @@ Ngoài Tiêu Lôi cấm khu, Tần Mục ngẩng đầu nhìn lên không một 
 "May mà ta dùng Thanh Tiêu Thiên Nhãn nhìn ra mảnh lôi khu ẩn giấu này, trực tiếp truyền ra ngoài. Ồ, trong lôi khu hình như có người..."
 
 Hắn không kịp nhìn kỹ, thân hình đã từ giữa không trung rơi xuống. Bên dưới chính là non xanh nước biếc của Diên Khang quốc, bị từng đóa mây che phủ, vô cùng tráng lệ.
+
+[Xem chương tiếp theo](chapter-0172.md)

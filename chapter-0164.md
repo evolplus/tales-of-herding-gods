@@ -239,3 +239,5 @@ Tần Mục cười nói:
 Tần Mục đang định nói ra tên Tư Vân Hương, đột nhiên thấy Tư Vân Hương đi vào từ ngoài cửa. Bên tai truyền tới giọng Tư bà bà:
 
 "Thánh nữ và giáo chủ còn là đồng môn đấy, cùng thi vào Thái Học Viện."
+
+[Xem chương tiếp theo](chapter-0165.md)

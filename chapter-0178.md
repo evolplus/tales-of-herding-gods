@@ -167,3 +167,5 @@ Sắc mặt đạo nhân kia đại biến, vội cao giọng quát:
 Hồ Linh Nhi vội nói:
 
 "Long Đại, nhanh lên, nhanh lên!"
+
+[Xem chương tiếp theo](chapter-0179.md)

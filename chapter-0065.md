@@ -165,3 +165,5 @@ Tần Mục rút ra nhìn. Đó là một món y phục màu trắng ngà, thêu
 Nụ cười trên mặt Lão què cứng đờ. Ông hậm hực nói:
 
 "Khăn lau mồ hôi, con giữ lại lau mồ hôi đi. Xúi quẩy, thật xúi quẩy, sao lại sờ trúng thứ này chứ? Sờ một cái xui ba năm..."
+
+[Xem chương tiếp theo](chapter-0066.md)

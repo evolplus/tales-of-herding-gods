@@ -131,3 +131,5 @@ Ví dụ Cửu Khúc Liên Giang kiếm pháp tổng cộng có chín chiêu. Kh
 Có thể thấy Cửu Khúc kiếm phái chưa dâng ra kiếm pháp hoàn chỉnh, mà còn giấu một tay.
 
 Tình huống tương tự còn rất nhiều. Rõ ràng, những thế lực này không cam tâm tình nguyện giao tuyệt học của mình cho Diên Khang quốc. Hẳn họ đều có giữ lại.
+
+[Xem chương tiếp theo](chapter-0148.md)

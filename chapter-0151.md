@@ -183,3 +183,5 @@ Tần Mục nghiêm túc nói:
 Bá Sơn tế tửu xua tay, phấn chấn tinh thần, nói:
 
 "Chân cũng bị người ta chém mất, chỉ có thể nói là tài nghệ chưa tinh. Ngươi không cần nghĩ cách trộm lại nửa thân dưới của ân sư. Chuyện này để ta giải quyết. Hai ngươi chỉ cần yên tâm chặn sơn môn Hoàng Kim Cung! Việc khác giao cho ta."
+
+[Xem chương tiếp theo](chapter-0152.md)

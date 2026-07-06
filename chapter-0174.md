@@ -237,3 +237,5 @@ Hồ Linh Nhi thầm kinh ngạc.
 Tần Mục dẫn Long Kỳ Lân lên núi, tới Ngọc Long Hồ, trước hết để con Long Kỳ Lân này uống nước, thầm nghĩ:
 
 "Ta còn chưa biết một bình nhỏ long diên có thể bán bao nhiêu tiền, nhưng đây là linh dược trị thương, giá hẳn không thấp nhỉ? Mong là kiếm lại được vốn mua dược liệu, nếu không thật sự phải ngồi ăn núi lở..."
+
+[Xem chương tiếp theo](chapter-0175.md)

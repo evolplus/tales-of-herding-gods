@@ -201,3 +201,5 @@ Hồ Linh Nhi bĩu môi. Tần Mục nhìn sang, quả nhiên có vài chiếc l
 Bá Sơn tế tửu nói:
 
 "Vu giáo có công pháp kỳ lạ dùng hồn phách để tu luyện, dùng để thay đổi cấu tạo thân thể. Ví dụ hấp thu hồn phách của chim có thể mọc cánh, hoặc đầu mọc ra đầu chim; hấp thu hồn phách của dê, thân thể cũng sẽ chuyển biến theo hướng dê. Luyện thành thần thông thì là đại vu, chưa luyện thành thần thông thì gọi là vu sĩ, còn tới cảnh giới Thiên Nhân thì gọi là Vu Vương. Lâu Lan Hoàng Kim Cung là thánh địa trong vu giáo, công pháp của nó gọi là Vu Tôn Lâu La Kinh, khá bất phàm."
+
+[Xem chương tiếp theo](chapter-0153.md)

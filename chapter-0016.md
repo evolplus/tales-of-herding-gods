@@ -149,3 +149,5 @@ Tần Mục đỏ bừng mặt, ấp úng:
 “Ta từ nhỏ thận hư...”
 
 “Ngươi vào đây!” Tiếng gầm như sấm sét vang lên từ miệng cô bé.
+
+[Xem chương tiếp theo](chapter-0017.md)

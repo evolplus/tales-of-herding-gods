@@ -123,3 +123,5 @@ Rất nhiều sĩ tử trừng mắt nhìn hắn. Vệ Dung vội rụt đầu.
 Đợi tới trên núi, chỉ thấy trước Thái Học điện đã là biển người. Bất kể hoàng tử, vương công quý tộc hay sĩ tử bình dân đều tập trung ở đây.
 
 Qua một lát, người đã tới đông đủ. Thiếu niên tổ sư cười nói: "Quốc sư, xin mời."
+
+[Xem chương tiếp theo](chapter-0135.md)

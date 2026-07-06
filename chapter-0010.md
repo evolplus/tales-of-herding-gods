@@ -109,3 +109,5 @@ Vậy vì sao còn gọi là “Bá Thể”? Gọi là Ma Thể chẳng phải 
 Cậu nghĩ là làm. Trước tiên, cậu lặp đi lặp lại ghi nhớ, thầm tụng ngữ điệu, khí thế chuyển chiết, ý cảnh, âm tiết và âm sắc của ma âm trong bóng tối, khắc sâu mọi cao thấp trầm bổng, nhấn nhá ngắt nghỉ của ma âm vào lòng.
 
 Mãi đến khi xác nhận không có bất cứ sai lệch nào, Tần Mục mới thúc giục “Bá Thể Tam Đan Công”, điều động nguyên khí, vừa thầm tụng ma âm, vừa thúc giục nguyên khí xông về phía vách Linh Thai ở mi tâm!
+
+[Xem chương tiếp theo](chapter-0011.md)

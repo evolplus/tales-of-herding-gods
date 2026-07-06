@@ -175,3 +175,5 @@ Thôn trưởng cười nói:
 Ông phấn chấn tinh thần, nói với Tần Mục:
 
 "Kiếm pháp của ta gọi là Kiếm Đồ. Thức thứ nhất của Kiếm Đồ gọi là Kiếm Lý Sơn Hà."
+
+[Xem chương tiếp theo](chapter-0096.md)

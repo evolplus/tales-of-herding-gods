@@ -147,3 +147,5 @@ Tần Mục trở tay vỗ ra Tự Tại Thiên Ấn, Tư Mục La vẫn đứng
 Thân thể hắn cũng cứng rắn vô cùng, thậm chí ngay cả Lôi Âm Bát Thức cũng không thể lay chuyển.
 
 Tần Mục khẽ cau mày, đột nhiên điểm một chỉ. Ba mươi sáu thanh phi kiếm bay ra từ kiếm hạp ào ào hợp lại, hóa thành Toản Kiếm Thức, một kiếm đâm xuống Tư Mục La!
+
+[Xem chương tiếp theo](chapter-0155.md)

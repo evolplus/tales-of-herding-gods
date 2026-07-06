@@ -123,3 +123,5 @@ Vệ Dung không hiểu.
 Ánh mắt Tần Mục chớp động: "Bên ngoài Kinh thành có các phái nhân cơ hội gây loạn, phất cờ thảo phạt Quốc sư, nhưng trong Kinh thành vẫn tính là bình tĩnh, lòng dân bách tính hướng về đâu vừa nhìn đã rõ. Quốc sư cải cách môn phái, lập tiểu học, đại học và Thái Học, thu gom tài tuấn thiên hạ, tập hợp lại thành môn sinh thiên tử, vì vậy sĩ tử thiên hạ đều được hoàng đế sử dụng. Ta nghe người ta nói, Diên Khang quốc thực chất chính là môn phái khoác danh quốc gia. Nếu đạo tử Đạo môn chặn cửa, sĩ tử Thái Học Viện đều không địch nổi, vậy cải cách của Quốc sư còn có tác dụng gì?"
 
 Vệ Dung ngẩn ra, lẩm bẩm nói: "Đây không chỉ là công tâm, mà là tru tâm..."
+
+[Xem chương tiếp theo](chapter-0131.md)

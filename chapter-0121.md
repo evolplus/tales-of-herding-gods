@@ -121,3 +121,5 @@ Tần Mục đóng cửa viện, cài then, mặt như nước lặng: "Đúng r
 Những sĩ tử kia đều ngẩn ra. Một vị sĩ tử bật cười nói: "Tần huynh đệ, chúng ta chỉ muốn dạy dỗ tên dân bị vứt bỏ này một trận, đuổi hắn khỏi Thái Học Viện mà thôi. Cần gì phải giết người? Nếu giết hắn, chúng ta đều sẽ bị đuổi khỏi Thái Học Viện. Đánh hắn một trận là được!"
 
 Tần Mục hơi không vui, hậm hực nói: "Quy củ Kinh thành thật nhiều, còn không được tùy tiện giết người. Nếu là ở Đại Khư chúng ta, giết mười mấy người căn bản chẳng ai hỏi..."
+
+[Xem chương tiếp theo](chapter-0122.md)

@@ -133,3 +133,5 @@ Tần Mục nhíu mày. Nguyên khí lặng lẽ tràn vào chiếc găng tay tr
 Sợi tơ mảnh này lặng yên không tiếng động bám vào một sợi tơ nhện, uốn lượn tiến lên, thông qua sợi tơ nhện ấy lại bò tới một sợi tơ nhện khác. Chiếc găng tay trắng này chính là kinh văn của Đại Dục Thiên Ma Kinh, do vô số văn nòng nọc tạo thành, có thể dài có thể ngắn, có thể thô có thể mảnh. Tư bà bà dệt bảo vật này thành găng tay cho Tần Mục đeo trên tay.
 
 Tần Mục khống chế Đại Dục Thiên Ma Kinh, để những sợi tơ mảnh chồng lên tơ nhện. Một lát sau, sợi tơ trên chiếc găng tay trắng của cậu rời ra, chỉ còn lại năm ngón tay.
+
+[Xem chương tiếp theo](chapter-0089.md)

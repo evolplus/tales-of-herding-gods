@@ -167,3 +167,5 @@ Chấp pháp trưởng lão thán phục:
 Tổ sư hỏi ngược:
 
 "Lỡ nó là một thằng ngốc thì sao? Vì vậy nhất định phải khảo nghiệm một phen. Ngươi thông báo cho đường chủ của ba trăm sáu mươi lầu, bảo bọn họ chỉ được dùng bản lĩnh cảnh giới Linh Thai! Ngày mai, chờ nó vào lầu!"
+
+[Xem chương tiếp theo](chapter-0054.md)

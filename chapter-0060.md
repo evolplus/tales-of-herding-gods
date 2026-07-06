@@ -167,3 +167,5 @@ Tần tướng quân vội xoay người thi lễ:
 Thất công tử ngẩng đầu nhìn núi. Bóng của Tần Mục và Ma viên trên núi đổ xuống, vừa khéo phủ lên chiếc lâu thuyền đang chạy.
 
 "Tần tướng quân, ta nghe nói thổ dân trong Đại Khư đều là dân bị thần vứt bỏ. Câu này đúng không?" Thất công tử hỏi.
+
+[Xem chương tiếp theo](chapter-0061.md)

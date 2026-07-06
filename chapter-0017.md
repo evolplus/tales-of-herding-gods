@@ -129,3 +129,5 @@ Tần Mục kinh ngạc. Ý thức bay quanh pho tượng đá, quan sát trên 
 “Trong Linh Thai Thần Tàng có tượng của mình? Chẳng lẽ thần biết dáng vẻ của mình, nên tạc một pho tượng mình rồi giấu trong Linh Thai Thần Tàng?”
 
 Tần Mục buồn bực. Ý thức của cậu khẽ chạm vào tượng đá. Đột nhiên, ý thức không còn chịu khống chế, chảy vào trong tượng đá!
+
+[Xem chương tiếp theo](chapter-0018.md)

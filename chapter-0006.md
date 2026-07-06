@@ -167,3 +167,5 @@ Vì vậy nó không để ý nữa, quay đầu chuyên tâm ăn lá.
 “Đại gia, thi thể của nhóc con cứng nhanh như vậy, ngươi không thấy lạ sao?”
 
 Ma viên dường như nghe hiểu lời nàng, vỗ vỗ trán mình, lập tức xoay người lại. Nhưng nó chỉ thấy “thi thể” nhóc con kia đã đứng thẳng đơ, co chân chạy bạt mạng.
+
+[Xem chương tiếp theo](chapter-0007.md)

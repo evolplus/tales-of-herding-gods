@@ -257,3 +257,5 @@ Ma viên như hiểu như không.
 Chú thích ①: Nại, đọc nại, thanh bốn, là một loại đỉnh. Bài từ này cải biên từ bài từ của Tân Khí Tật, "Tây Giang Nguyệt, Đường thượng mưu thần tôn trở".
 
 Bạn đọc Nhạn Tri Quy viết một thiên đồng nhân về Thái Dương Thủ Viêm Tinh Tinh, Trạch Trư đã để trong phần liên quan tác phẩm, các bạn đọc có thể đi xem!
+
+[Xem chương tiếp theo](chapter-0097.md)

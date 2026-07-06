@@ -159,3 +159,5 @@ Trước bậc thềm vốn có một cánh cửa đá, không biết vì sao đ
 Tần Mục theo bạch hồ đi thẳng về phía trước. Con đường này càng lúc càng rộng rãi, dần dần như đi sâu vào thân núi. Vách núi bốn phía mọc đầy rêu phát sáng, ẩm ướt. Còn có vài sinh vật kỳ lạ giống bồ công anh trôi nổi giữa không trung. Phía dưới chúng mọc từng xúc tu nhỏ, xúc tu múa động, vậy mà có thể bay trên không.
 
 Bạch hồ nhảy lên, há miệng cắn một con rồi nuốt xuống. Sau đó nó nhảy nhót, ăn không ngừng, trông có vẻ rất ngon.
+
+[Xem chương tiếp theo](chapter-0046.md)

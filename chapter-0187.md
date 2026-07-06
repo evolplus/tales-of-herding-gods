@@ -167,3 +167,5 @@ Việt Thanh Hồng đờ đẫn, lẩm bẩm:
 Đầu óc Tần Mục cũng hơi mơ hồ:
 
 "Ta cũng không biết... Chúng ta mau đi, Long Kiều Nam giết tới rồi!"
+
+[Xem chương tiếp theo](chapter-0188.md)

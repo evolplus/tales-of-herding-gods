@@ -185,3 +185,5 @@ Người dưới nón lá tung người nhảy lên, biến mất không thấy.
 "Mục nhi, chúng ta lên thuyền."
 
 Trong lòng Tần Mục thấp thỏm, bước lên chiếc thuyền con này. Thôn trưởng cũng bay lên, tựa vào cột buồm. Người chèo thuyền ở đuôi thuyền quay đầu thuyền lại. Thuyền nhỏ thong thả, rất vững vàng, tiến vào trong mê vụ sâu giữa những núi khô lâu.
+
+[Xem chương tiếp theo](chapter-0086.md)

@@ -143,3 +143,5 @@ Cậu bước lên một bước. Khí thế trào ra từ thân thể nhỏ bé
 “Trong lòng không thần, không Phật, không ma! Ta chính là thần, chính là Phật, chính là ma!”
 
 Lời này vừa ra, lão hòa thượng ngồi đối diện Mã gia lộ vẻ kinh ngạc, quay đầu nhìn về phía Tần Mục!
+
+[Xem chương tiếp theo](chapter-0038.md)

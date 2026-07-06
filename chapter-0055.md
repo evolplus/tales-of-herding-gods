@@ -203,3 +203,5 @@ Thôn trưởng thầm thở phào, kiên nhẫn dẫn dắt:
 Tần Mục suy nghĩ kỹ, đột nhiên mắt sáng lên:
 
 "Con cảm thấy nguyên khí của mình còn chưa đủ mạnh. Khi lấy khí ngự kiếm, mũi kiếm chỉ hơi bị cản trở, nguyên khí của con đã khó tiếp tục chống đỡ, giống như có một thân sức mạnh nhưng lại dùng sợi tóc để đánh người. Tơ nguyên khí quá mềm, không chịu nổi toàn bộ sức mạnh của con."
+
+[Xem chương tiếp theo](chapter-0056.md)

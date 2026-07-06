@@ -179,3 +179,5 @@ Thôn trưởng khẽ gật đầu:
 Mộc Bi Phong thở ra hơi cuối cùng, mỉm cười mà chết.
 
 Tần Mục vòng ra sau lưng ông ta, giật mình hoảng sợ. Chỉ thấy sau gáy Mộc Bi Phong mở toang, bị đâm ra một lỗ lớn.
+
+[Xem chương tiếp theo](chapter-0033.md)

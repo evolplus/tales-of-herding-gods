@@ -123,3 +123,5 @@ Mọi người trên thuyền kinh hãi, đuôi thuyền đã bị con cự mãn
 Trên cái đầu dẹt của cự mãng còn đứng một người. Người ấy mặc áo hoa, thoa son điểm phấn, vô cùng yêu diễm, nhưng lại là một nam tử yêu mị, đang hưng phấn nhìn đám người hoảng loạn trên thuyền.
 
 Chú thích ①: Mấy đoạn này trích lời Chu Hy đời Tống, Trạch Trư có chỉnh sửa đôi chút. Cách gọi tiểu học, đại học đã có từ cổ đại, tên gọi được xác định đại khái vào thế kỷ thứ nhất trước Công nguyên, thời Tây Hán. Trong "Đại Đới Lễ Ký" có ghi: "Người xưa tám tuổi ra học ngoại xá, học tiểu nghệ, tập tiểu tiết." "Buộc tóc rồi vào đại học, học đại nghệ, tập đại tiết." "Tiểu Đới Lễ Ký - Vương Chế" ghi: "Tiểu học ở phía nam bên trái công cung, đại học ở ngoại ô." Đời Đông Hán, "Bạch Hổ Thông" ghi: "Tám tuổi vào tiểu học, mười lăm tuổi vào đại học là vậy."
+
+[Xem chương tiếp theo](chapter-0108.md)

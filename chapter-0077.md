@@ -111,3 +111,5 @@ Sắc mặt Tư bà bà âm trầm, lạnh lùng nói:
 Dứt lời, bà khí thế hùng hổ, lao thẳng tới thư phường.
 
 Tần Phi Nguyệt vội bám sát phía sau. Đến thư phường thì nơi đó đã vắng bóng người.
+
+[Xem chương tiếp theo](chapter-0078.md)

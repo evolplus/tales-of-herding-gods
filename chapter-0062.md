@@ -135,3 +135,5 @@ Sau lưng họ, tiếng rống của Phật đồng không ngừng. Đột nhiê
 "Ta và ngươi nước giếng không phạm nước sông..."
 
 Phật đồng nổi giận. Một câu còn chưa nói xong, nó đã bị băng triều đẩy xuống sông cùng lục châu, bị đè dưới nước!
+
+[Xem chương tiếp theo](chapter-0063.md)

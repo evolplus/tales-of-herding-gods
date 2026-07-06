@@ -161,3 +161,5 @@ Tần Mục ước lượng một chút, những người này e rằng thấp n
 Điều kỳ lạ là dù mũi thuyền hạ xuống, nước hồ trên thuyền vẫn phẳng lặng, không hề đổ ra ngoài.
 
 "Ngọc bội của ngươi rất kỳ lạ, có khí tức thần thánh bất phàm..."
+
+[Xem chương tiếp theo](chapter-0080.md)

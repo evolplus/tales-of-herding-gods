@@ -141,3 +141,5 @@ Tần Mục thở phào. Khó trách Bá Sơn Tế Tửu chọn tới Man Địc
 Trong lòng cậu còn hơi khó hiểu. Lâu Lan Hoàng Kim Cung diệt môn phái nhỏ kia, bắt nửa thân dưới của Đồ phu đi làm gì?
 
 Trâu xanh đi một mạch về phía tây. Không lâu sau tới bên bờ Đồ Giang, trâu xanh đạp nước mà đi, chạy ngược lên thượng du.
+
+[Xem chương tiếp theo](chapter-0149.md)

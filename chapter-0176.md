@@ -263,3 +263,5 @@ Quốc sư Diên Khang.
 Quốc sư Diên Khang xoay người, ánh mắt rơi lên người hắn:
 
 "Thánh giáo chủ của Thiên Thánh giáo, không ngờ lại là Thái học bác sĩ đầu tiên của Thái Học Viện ta. Thật là một chuyện thú vị."
+
+[Xem chương tiếp theo](chapter-0177.md)

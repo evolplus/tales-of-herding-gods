@@ -145,3 +145,5 @@ Thân hình hắn đột ngột dừng lại, đặt nửa thân dưới vàng r
 Thiếu niên Tàn Lão Thôn thở ra một hơi đục, quay đầu nhìn bảo vật bị ném đầy đất, tinh thần sảng khoái, khen:
 
 "Cho dù bị chém mất một chân cũng đáng!"
+
+[Xem chương tiếp theo](chapter-0157.md)

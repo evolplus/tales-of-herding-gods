@@ -183,3 +183,5 @@ Ngu Uyên Sơ Vũ thở dài:
 Tần Mục cất kỹ văn thư lộ dẫn, thầm nghĩ:
 
 "Lần này tới Kinh thành mà gặp tra hỏi, ta có thể nói mình là người phủ Lệ Châu, sẽ không bị người nhìn ra là đến từ Đại Khư. Một đêm không ngủ, không bằng tới huyện Hổ Dương nghỉ một chút."
+
+[Xem chương tiếp theo](chapter-0106.md)

@@ -201,3 +201,5 @@ Mười ba đạo nhân trên tế đàn giật mình. Đợi thấy cáo và Lo
 Hắn còn chưa dứt lời đã thấy đao quang lóe lên. Tần Mục đã bước lên tế đàn, tay cầm song đao, tay vung lên, đầu người rơi xuống!
 
 Chiến kỹ, Hoành thụ mang mang nhất tuyến thiên!
+
+[Xem chương tiếp theo](chapter-0185.md)

@@ -139,3 +139,5 @@ Lúc nghỉ ngơi, Tần Mục lấy khăn thơm lau mồ hôi. Linh Dục Tú c
 Tần Mục thấy trên trán nàng cũng có mồ hôi: "Muội cũng đổ mồ hôi, ta lau giúp muội."
 
 Linh Dục Tú đỏ mặt đưa khăn thơm cho cậu. Đột nhiên, sắc mặt Bá Sơn Tế Tửu đại biến, giơ hai tay đẩy về phía trước, quát: "Tuyệt Bích Thiên Cương!"
+
+[Xem chương tiếp theo](chapter-0151.md)

@@ -229,3 +229,5 @@ Mấy ngày nay hắn tới kho phủ mua thuốc, gần như mua sạch mấy c
 Tần Mục cũng bị Cố Li Noãn điểm danh, nhất định phải đưa hắn lên tiền tuyến. Hơn nữa vì Tần Mục là Thái học bác sĩ có quan chức lục phẩm, đãi ngộ gần như tương đương Quốc tử giám, nên Cố Li Noãn còn cấp cho Tần Mục vài sĩ tử, để hắn dẫn đội.
 
 Mấy vị sĩ tử này đều là sĩ tử cảnh giới Ngũ Diệu trong Sĩ Tử Cư, không có bao nhiêu chiến lực. Tu vi thực lực của họ kém thần thông giả ở Thần Thông Cư không biết bao nhiêu lần.
+
+[Xem chương tiếp theo](chapter-0181.md)

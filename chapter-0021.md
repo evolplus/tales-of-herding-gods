@@ -159,3 +159,5 @@ Nhóc con bị khảm trong vách đá kia đột nhiên động đậy một ch
 Ma viên giật mình, hai nắm tay đấm ngực, nhảy vọt như bay, giận dữ gầm lên nghênh đón Tần Mục:
 
 “Nhóc con! Chết!”
+
+[Xem chương tiếp theo](chapter-0022.md)

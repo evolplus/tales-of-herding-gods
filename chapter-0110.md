@@ -131,3 +131,5 @@ Quốc sư Diên Khang và Diên Phong Đế vậy mà dám giao chức quan nà
 Phó Khánh Doãn dường như nhìn ra tâm tư của cậu, nói: "Tổ sư du hí nhân gian, không ai biết thân phận thật của ông. Thật ra lão nhân gia đức cao vọng trọng, từ thời tiên đế đã là cao nhân ngoài đời nổi danh thiên hạ, vô cùng thần bí. Ngay cả Quốc sư Diên Khang cũng từng hỏi đạo cầu học lão nhân gia. Cũng chính Quốc sư Diên Khang một mực bảo đảm, để lão nhân gia làm Quốc tử Đại tế tửu của Thái Học Viện."
 
 Chú thích ①: Quốc tử Đại tế tửu là chức quan đời Đường, tương tự hiệu trưởng học phủ cao nhất.
+
+[Xem chương tiếp theo](chapter-0111.md)

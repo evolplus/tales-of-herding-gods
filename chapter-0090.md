@@ -135,3 +135,5 @@ Thôn trưởng quay người. Mười ngón tay nhảy động, từng đạo k
 Thôn trưởng thở phào nhẹ nhõm, lập tức đi về phía cổng núi Phong Đô. Ông sắp bay qua cổng núi thì đột nhiên dừng bước. Chỉ thấy trên cổng núi có một quái nhân đầu chim hai cánh đứng đó, một chân đứng thẳng, chân còn lại rụt vào dưới lông vũ.
 
 Chú thích ①: Có thể tham khảo thủy đao, súng nước cao áp trong hiện thực. Dòng nước có tốc độ phun 1448 nghìn dặm mỗi giờ có thể cắt đứt hợp kim titan. Ngoài ra, một chớp mắt đại khái bằng một phần ba giây. Trượng trong văn này, Trạch Trư lấy theo tiêu chuẩn thời Đường, khoảng ba mét.
+
+[Xem chương tiếp theo](chapter-0091.md)

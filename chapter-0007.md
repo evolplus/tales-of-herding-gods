@@ -119,3 +119,5 @@ Phía sau Tần Mục, Khúc sư huynh năm người cũng chú ý thấy mặt 
 Khúc sư huynh lắc đầu:
 
 “Bây giờ quay lại đã không kịp nữa. Chúng ta đi quá xa, không thể trở về thôn cũ trước khi trời tối. Bóng tối nguy hiểm với chúng ta, với tiểu ma đầu cũng nguy hiểm như vậy. Hiện giờ chỉ có một cách, đó là xem tiểu ma đầu sẽ trốn vào đâu!”
+
+[Xem chương tiếp theo](chapter-0008.md)

@@ -137,3 +137,5 @@ Tần Mục đảo mắt tìm kiếm, không tìm được cổ miếu trấn á
 Tần Mục tìm kiếm một lát, tim bỗng nảy lên. Cậu tìm được di tích hẻm núi mà mình từng phát hiện khi tránh bóng tối. Nhưng trên bản đồ đánh dấu nơi ấy không phải di tích, mà gọi là Thần Nữ Quan!
 
 “Quả nhiên là bản đồ trước tai biến Đại Khư!”
+
+[Xem chương tiếp theo](chapter-0028.md)

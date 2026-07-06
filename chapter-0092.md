@@ -197,3 +197,5 @@ Khóe mắt Dược sư giật giật, lẩm bẩm:
 "Đây là hơi không giống sao?"
 
 "Ta làm sao biết cái không giống của nó lại là nguyên khí tăng gấp bội..." Thôn trưởng cũng lẩm bẩm.
+
+[Xem chương tiếp theo](chapter-0093.md)

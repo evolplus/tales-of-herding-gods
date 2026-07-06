@@ -181,3 +181,5 @@ Lão ẩu nói chuyện chính là một trong ba cường giả cựu thời đ
 Nam tử mặt nạ đồng xanh nhìn quanh một vòng, nói:
 
 "Hắn sai Hà Tiêu Bằng chạy tới, cho chúng ta hai con đường. Bây giờ đã đến lúc quyết định, chúng ta đi con đường nào?"
+
+[Xem chương tiếp theo](chapter-0196.md)

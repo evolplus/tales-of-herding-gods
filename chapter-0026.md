@@ -165,3 +165,5 @@ Dược sư lắc đầu.
 Thôn trưởng ngẩng đầu, gương mặt chết lặng:
 
 “Tay chân của ta bị kiếm chém đứt. Truyền công pháp của ta thì phải gánh lấy trách nhiệm của ta. Ta gánh không nổi, nó bây giờ càng gánh không nổi.”
+
+[Xem chương tiếp theo](chapter-0027.md)

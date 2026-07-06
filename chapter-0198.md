@@ -209,3 +209,5 @@ Trên lầu thuyền, một lá lệnh kỳ vung lên. Tướng sĩ trên lầu 
 Ầm ầm...
 
 Một đội kim giáp lực sĩ kéo Vân xa, một đường nghiền chết không biết bao nhiêu binh sĩ, hung hăng va vào tường thành, đâm sập mấy trăm trượng tường thành. Người lửa trên tường thành rơi xuống lả tả. Còn ngoài thành, Quán Quân Đại tướng quân và Hoài Hóa Đại tướng quân giơ cao thương và kích, chỉ về phía Đại Tương thành. Phía sau là đại quân Diên Khang quốc nhiều không đếm xuể phát ra tiếng hô giết, như thủy triều từ trên không và mặt đất tràn tới phía trước.
+
+[Xem chương tiếp theo](chapter-0199.md)

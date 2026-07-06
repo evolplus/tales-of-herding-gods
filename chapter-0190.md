@@ -197,3 +197,5 @@ Quốc sư Diên Khang thản nhiên nói:
 Sắc mặt ông hơi ảm đạm:
 
 "Nhưng ông ấy đã đi rồi, ta rất nhớ ông ấy."
+
+[Xem chương tiếp theo](chapter-0191.md)

@@ -197,3 +197,5 @@ Vị Hiếu Nghĩa tướng quân trên lầu thuyền phất tay:
 Ánh mắt Hiếu Nghĩa tướng quân lại rơi trên người Tần Mục và những người khác, khóe miệng lộ một nụ cười:
 
 "Đưa bọn họ tới Thiên Ba thành, để bọn họ cũng gọi ra một tôn Ma Thần ở đó."
+
+[Xem chương tiếp theo](chapter-0186.md)

@@ -203,3 +203,5 @@ Linh Dục Tú kinh nghi bất định:
 Đồ phu cũng khen:
 
 "Nhãn lực Lão mù tốt thật."
+
+[Xem chương tiếp theo](chapter-0160.md)

@@ -157,3 +157,5 @@ Mọi người nhìn về phía Lão câm. Lão câm dùng khăn lau tay, kéo l
 Lão câm đi ra, cười nói:
 
 "A, a a!"
+
+[Xem chương tiếp theo](chapter-0095.md)

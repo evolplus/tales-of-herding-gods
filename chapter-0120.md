@@ -107,3 +107,5 @@ Tần Mục gật đầu: "Từ nhỏ ta tu luyện Bá Thể Tam Đan Công."
 Thiếu niên Tổ sư chần chừ một chút: "Theo lý mà nói, ngươi nên tu luyện công pháp đại nhất thống của Thánh giáo ta. Nhưng lão gia hỏa trong thôn các ngươi để ngươi tu luyện Bá Thể Tam Đan Công này, nhất định có đạo lý của ông ấy. Ông ấy kiến thức uyên bác, lại không truyền công pháp của mình cho ngươi, có thể thấy Bá Thể Tam Đan Công còn ở trên công pháp của ông ấy. Công pháp tốt luôn có chỗ tương thông, ngươi không ngại song tu hai loại công pháp, nói không chừng có ích cho tu luyện của ngươi."
 
 Tần Mục vâng lời, nói: "Ta chưa tìm được phần trên của Bá Thể Tam Đan Công, không có công pháp cảnh giới Ngũ Diệu, không thể tiếp tục tu luyện."
+
+[Xem chương tiếp theo](chapter-0121.md)

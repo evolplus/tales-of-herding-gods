@@ -159,3 +159,5 @@ Tần Mục nào từng thấy cảnh tượng như vậy? Cậu không khỏi t
 "Các ngươi, đứng dậy đi."
 
 "Tạ Thiếu giáo chủ!"
+
+[Xem chương tiếp theo](chapter-0059.md)

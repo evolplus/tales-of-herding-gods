@@ -165,3 +165,5 @@ Năm ngón tay Tần Mục xòe ra, đột nhiên bóp mạnh. Kiếm quang củ
 Mấy người nhanh chân chạy vào bóng tối. Vân Khuyết quay đầu nhìn Lộc huyện chìm trong ánh lửa, trong lòng vừa hoảng sợ vừa bi thương:
 
 "Tới Nam Cương sao? Nơi đó là hang ổ của địch..."
+
+[Xem chương tiếp theo](chapter-0184.md)

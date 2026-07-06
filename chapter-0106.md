@@ -163,3 +163,5 @@ Kiều sư thúc từ phía sau một tay bắt lấy Biệt mẫu, vừa địn
 "Dược sư gia gia từng nói với ta, đánh không lại thì hạ độc. Dược sư gia gia nói thật đúng."
 
 Ở đằng xa, thiếu niên chăn bò của Tàn Lão Thôn cảm khái.
+
+[Xem chương tiếp theo](chapter-0107.md)

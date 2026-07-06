@@ -163,3 +163,5 @@ Hộ vệ lưng rùa đứng trong điện, cẩn thận mở vài đạo cấm 
 Phù bảo kia càng lúc càng sáng, bắt đầu không ngừng xoay tròn, chiếu phù văn trên từng mặt ra, phóng chiếu vào không trung.
 
 "Đan Ba La" lập tức thấy phía trước bọn họ, không khí từ không màu trong suốt dần dần biến hóa, trở thành rất nhiều khối lập phương bán trong suốt. Trong mỗi khối lập phương đều giấu một tiểu nhân lớn bằng nắm tay, tướng mạo hung ác, đang nôn nóng đi tới đi lui trong khối lập phương ấy, như muốn xông ra ngoài ăn thịt người.
+
+[Xem chương tiếp theo](chapter-0156.md)

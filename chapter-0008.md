@@ -149,3 +149,5 @@ Tư bà bà suy sụp, cũng biết lời Thôn trưởng không sai. Bóng tố
 Tuy nghĩ vậy, nhưng Tư bà bà biết miếng ngọc bội trước ngực Tần Mục chỉ dùng để bảo vệ trẻ sơ sinh, phạm vi bảo vệ có hạn. Tần Mục đã lớn rồi, ánh sáng của ngọc bội chỉ có thể che chở lồng ngực cậu.
 
 “Mục nhi, con nhất định phải thông minh đấy...” Tư bà bà thấp giọng nói.
+
+[Xem chương tiếp theo](chapter-0009.md)

@@ -185,3 +185,5 @@ Trong địa phận Lạc Đô, Tần Mục chỉ là khách qua đường, mộ
 Hắn ỷ vào tốc độ nhanh, đánh không lại liền thi triển Thâu Thiên thối pháp của Lão què. Dọc đường này cũng xem như bình an.
 
 "Nếu Quốc sư Diên Khang có thể dẹp yên lần phản loạn này, nhổ sạch hoặc thu phục toàn bộ thế lực đối địch trong đế quốc, vậy Diên Khang quốc trên dưới một lòng sẽ vô cùng đáng sợ!"
+
+[Xem chương tiếp theo](chapter-0164.md)

@@ -131,3 +131,5 @@ Nụ cười của lão què là nụ cười giấu đao. Không ai biết nụ
 Ông cười nói với Tần Mục:
 
 “Mục nhi, Đồ phu khoe đao của ông ta, Mã gia khoe quyền của ông ta, còn thần thông chân chính là chân. Chém không chết đối phương, đánh không lại đối phương thì làm sao? Đương nhiên là chạy, giữ mạng mới là quan trọng nhất! Đời người đâu chỉ có thơ và phương xa, còn phải biết sống tạm qua ngày nữa! Vì vậy còn sống mới là thắng lợi! Chỉ cần con chạy đủ nhanh, con có thể chạy trên mặt tường, chạy trên mặt nước, thậm chí chạy trên bầu trời! Chạy đủ nhanh, tất cả đều là đất bằng, lửa và không khí cũng đều là đất bằng! Khi nào con chạy đến mức âm thanh cũng đuổi không kịp phía sau tai con, vậy con xem như bước đầu luyện thành thần thông của cước pháp. Mục nhi, đến đây, mang thỏi sắt lên.”
+
+[Xem chương tiếp theo](chapter-0004.md)

@@ -157,3 +157,5 @@ Xoáy nước biến mất, cắt ngang giọng Thôn trưởng.
 Trên không, những chấm đen kia rơi xuống đất như sao băng, đập mặt đất chấn động không ngừng. Sau đó sương xám tràn tới, càng lúc càng dày. Những chấm đen rơi xuống đất liền bị sương bao phủ, không nhìn rõ bên trong rốt cuộc có gì.
 
 Rất nhanh, sương mù lan tới chỗ Tần Mục, nhấn chìm thiếu niên. Trong sương xám truyền tới tiếng bước chân nặng nề, đông, đông, như từng khối đá lớn đè lên trái tim.
+
+[Xem chương tiếp theo](chapter-0088.md)

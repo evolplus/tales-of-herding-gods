@@ -211,3 +211,5 @@ Thôn dân kia cười đáp:
 Lão giả kinh ngạc:
 
 "Vì sao ta vẫn cảm thấy nơi này còn có yêu khí? Gần đây quý thôn có ai chết không?"
+
+[Xem chương tiếp theo](chapter-0044.md)

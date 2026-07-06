@@ -153,3 +153,5 @@ Dư thái y, Khúc thái y và những người khác cũng treo nụ cười tr
 Họ không chỉ cảm thấy tứ chi của mình không cánh mà bay, ngay cả mắt, mũi, tai, thậm chí đầu óc của mình cũng "mất tăm mất tích"!
 
 Ngay cả Linh Thai của họ lúc này cũng đột nhiên tê liệt, không nhúc nhích được, nguyên khí cũng bị cứng lại!
+
+[Xem chương tiếp theo](chapter-0142.md)

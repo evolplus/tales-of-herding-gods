@@ -177,3 +177,5 @@ Quái vật cẩn thận từng chút một đi ra khỏi đại điện, chỉ 
 Quái vật nổi trận lôi đình, cuối cùng cũng dám mắng thành tiếng:
 
 “Không còn trời đất nữa sao? Còn dám hỏi ta xin tay nải gói đồ tang vật, tức chết ta rồi!”
+
+[Xem chương tiếp theo](chapter-0019.md)

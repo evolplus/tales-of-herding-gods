@@ -153,3 +153,5 @@ Hay là lúc đó Lão mù cũng ở phủ thành chủ?
 Tần Mục ngủ ở gian ngoài, Tư bà bà ngủ trong buồng trong. Tần Mục vừa có chút buồn ngủ mơ màng, đột nhiên chỉ nghe Tư bà bà trong buồng trong trở mình lăn qua lăn lại, thì thầm nói nhỏ:
 
 "Hưng phấn đến ngủ không được! Ngày mai đừng nói lão nương dọn cột rồng Tương Long thành về nhà, thậm chí cả tòa thành này cũng phải mang họ Tư! Không được, thật sự ngủ không được, hi hi hi hi..."
+
+[Xem chương tiếp theo](chapter-0074.md)

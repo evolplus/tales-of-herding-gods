@@ -119,3 +119,5 @@ Tần Mục đột nhiên chú ý tới một đồ án, tim đập mạnh một
 Ngay sau đó cậu nhíu mày. Bức đồ này hẳn là đồ vận công cảnh giới Lục Hợp của Bá Thể Tam Đan Công, không phải đồ vận công cảnh giới Ngũ Diệu mà cậu cần nhất.
 
 "Chẳng lẽ Tổ sư phát hiện đồ vận công của Bá Thể Tam Đan Công ở đâu đó, nên khắc ở đây? Vậy Tổ sư có biết những đồ vận công khác không? Dù thế nào, ta cũng phải trở thành thái học sĩ của Thái Học Viện, gặp được Tổ sư!"
+
+[Xem chương tiếp theo](chapter-0116.md)

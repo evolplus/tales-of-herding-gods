@@ -139,3 +139,5 @@ Mặt vách ấy toàn thân là mỹ ngọc không tì vết. Máu của hắn 
 Sĩ tử dưới vách đều rùng mình: "Trơn quá!"
 
 Chú thích ①: Phụ khoa trong Trung y xuất hiện như một phân khoa vào đời Đường. Tôn Tư Mạc chủ trương tách phụ sản khoa ra khỏi y học, khi đó thường gọi là sản khoa hoặc phụ nhân khoa. Đời Tống đã chuyên môn thiết lập phụ sản khoa, trong Thái y cục có chín khoa, phụ sản khoa nằm trong chín khoa ấy.
+
+[Xem chương tiếp theo](chapter-0115.md)

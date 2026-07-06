@@ -197,3 +197,5 @@ Dược sư ngẩn người:
 Thôn trưởng nặng nề gật đầu:
 
 “Chỉ cần có niềm tin, phàm thể tức Bá Thể!”
+
+[Xem chương tiếp theo](chapter-0003.md)

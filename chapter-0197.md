@@ -185,3 +185,5 @@ Tần Mục bị chiến ý đột nhiên bùng phát của ông làm giật mì
 Khóe mắt Quốc sư Diên Khang giật giật:
 
 "Lại là trưởng bối nhà ngươi? Trưởng bối nhà ngươi hơi nhiều đấy."
+
+[Xem chương tiếp theo](chapter-0198.md)

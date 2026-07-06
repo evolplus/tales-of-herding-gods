@@ -139,3 +139,5 @@ Tần Mục cười nói: "Không sao. Ta tẩu hỏa nhập ma, không luyện 
 Những thiếu nữ kia mừng rỡ vô cùng, xếp hàng tiến lên. Tần Mục lần lượt chẩn trị, kê đủ loại phương thuốc. Cô gái gảy tỳ bà thấy Phó Khánh Doãn vẫn còn ở trong phòng, cười nói: "Tỷ tỷ sao còn ở đây?"
 
 Phó Khánh Doãn cười lạnh. Một lát sau, nàng tiến lên duỗi tay ra, cắn môi thấp giọng nói: "Công tử, tu vi của ta tuy cao thâm, nhưng thân thể lại có chút tật. Mấy tháng gần đây Xích Long hơi mất cân bằng, khi đến khi không..."
+
+[Xem chương tiếp theo](chapter-0114.md)

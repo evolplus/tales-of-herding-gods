@@ -115,3 +115,5 @@ Tuy Thiên Thủ Phật Đà do Ma viên thi triển còn hơi lạ lẫm, chưa
 Thân thể Ma viên quá mạnh, khỏe đến vô lý. Sau khi tu luyện Lôi Âm Bát Thức, thân thể nó càng cường tráng hơn, kình lực mỗi quyền đều lớn đến dọa người!
 
 Hôm qua tu vi Tần Mục tăng mạnh, dưới sự tưới nhuận của nguyên khí, sức lực cũng tăng cường rất nhiều. Hôm nay cậu lại uống một viên Cố Nguyên Đan, vốn tưởng sẽ đánh Ma viên nửa chết nửa sống, không ngờ lại chẳng chiếm được nửa điểm thượng phong, hơn nữa còn có xu thế bị đè xuống hạ phong!
+
+[Xem chương tiếp theo](chapter-0025.md)

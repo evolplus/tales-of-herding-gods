@@ -173,3 +173,5 @@ Lúc này con thuyền ấy đang đi ở hạ du Dũng Giang, đốt con sông 
 Tần Mục ngẩn ra, thất thanh nói:
 
 "Thuyền Mặt Trời!"
+
+[Xem chương tiếp theo](chapter-0079.md)

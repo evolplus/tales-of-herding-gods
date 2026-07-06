@@ -185,3 +185,5 @@ Một vị Vu Vương nghe tin vội đi vào thánh điện, khom người nói
 Vu Tôn nâng quyền trượng, xuyên thủng đầu hắn, sau đó cắt nửa thân dưới của hắn xuống, nối với thân thể của mình. Sắc mặt ông ta phẳng lặng như giếng cổ, khom người nói:
 
 "Sư tôn, đệ tử cáo lui."
+
+[Xem chương tiếp theo](chapter-0161.md)

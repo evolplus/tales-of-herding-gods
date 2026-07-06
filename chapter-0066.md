@@ -163,3 +163,5 @@ Lão mù dở khóc dở cười:
 Tần Mục giật nảy:
 
 "Lỡ bước? Mù gia gia, họ đều đứng rất vững mà, đâu có dáng vẻ trượt chân gì. Chẳng lẽ họ đều là yêu tinh như Ngô Nữ? Ngô Nữ từng nói muốn chơi mấy thứ xấu hổ với con, con không đồng ý."
+
+[Xem chương tiếp theo](chapter-0067.md)

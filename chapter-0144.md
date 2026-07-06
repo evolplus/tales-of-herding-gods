@@ -131,3 +131,5 @@ Tiểu học, đại học và Thái học, ở phương diện bồi dưỡng n
 Bá Sơn Tế Tửu nói: "Ý Đại tế tửu là, đợi ta tìm ra khiếu môn rồi thì có thể mở rộng ra. Đại tế tửu nói, phải chọn ra những người bác học đa tài trong sĩ tử để tế tửu chuyên môn dạy dỗ, tách riêng khỏi sĩ tử tư chất bình thường. Sư đệ, ngươi chính là Thái học bác sĩ đầu tiên của Thái Học Viện ta, Tần bác sĩ." [1]
 
 [1] Từ "bác sĩ" không phải từ ngoại lai, mà bắt nguồn từ thời Chiến Quốc, nghĩa là người học rộng. Đến thời Hán, bác sĩ trở thành quan chức, là chức phụ trách truyền dạy kinh học Nho gia. Đời Đường, Thái học bác sĩ là quan chính lục phẩm. Bạn nào hứng thú có thể tìm hiểu thêm, lịch sử rất thú vị.
+
+[Xem chương tiếp theo](chapter-0145.md)

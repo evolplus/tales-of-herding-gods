@@ -181,3 +181,5 @@ Trong đầu Tần Mục, đủ loại âm thanh hỗn loạn phức tạp, như
 Lòng hắn hơi chấn động, đột nhiên nghĩ tới một khả năng. Âm thanh này là âm thanh của vị tiều phu đốn củi kia. Thứ Lệ giáo chủ truyền cho hắn chính là kinh văn tiều phu giảng khi truyền pháp cho Khai sơn tổ sư!
 
 Chú thích: Tam minh tam lập xuất phát từ đôi câu đối trước cửa cố cư Vương Dương Minh: "Lập đức lập công lập ngôn chân tam bất hủ, minh lý minh tri minh giáo nãi vạn nhân sư." Câu này là lời cổ nhân dùng để hình dung Thánh nhân.
+
+[Xem chương tiếp theo](chapter-0166.md)

@@ -187,3 +187,5 @@ Nam tử trẻ tuổi kia lễ độ, khom người cảm tạ. Sau đó trên h
 Tần Mục nhặt thỏi vàng lên, khó hiểu nói:
 
 “Những người này đến thôn chúng ta làm gì? Chẳng lẽ là thương nhân đi ngang qua đây? Nhưng thương nhân không phải nên đến Tương Long thành sao?”
+
+[Xem chương tiếp theo](chapter-0030.md)

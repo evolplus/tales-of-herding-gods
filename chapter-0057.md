@@ -149,3 +149,5 @@ Chấn động dữ dội truyền tới. Hành Cổ đường chủ bay ra theo
 Bích Dao kéo Bộ Xà đường chủ lên khỏi đất, ngẩng đầu nhìn quanh, lẩm bẩm:
 
 "Mục công tử khởi động xong rồi, bắt đầu nghiêm túc..."
+
+[Xem chương tiếp theo](chapter-0058.md)

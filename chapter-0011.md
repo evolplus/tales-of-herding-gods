@@ -113,3 +113,5 @@ Loại cước pháp này có thể dễ dàng đá nát một tảng đá lớn
 Nhưng mắt Tần Mục lại sáng lên, nghênh đón cước pháp xoáy như cuồng phong của Tình sư tỷ!
 
 Lão què từng nói với cậu, Thâu Thiên thối pháp mà mình truyền cho cậu chưa từng sợ bất cứ cước pháp nào của người khác!
+
+[Xem chương tiếp theo](chapter-0012.md)

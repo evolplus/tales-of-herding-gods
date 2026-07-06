@@ -153,3 +153,5 @@ Tần Mục nhìn cảnh ấy mà ngẩn ra, sau đó trong lòng mừng rỡ.
 Mũi gió.
 
 Thì ra đây chính là mũi gió!
+
+[Xem chương tiếp theo](chapter-0041.md)

@@ -153,3 +153,5 @@ Mã gia mặt không cảm xúc nói:
 Lông mày trắng của lão hòa thượng rủ dài, thấp giọng nói:
 
 “Năm đó ngươi tự chặt một tay, đưa đến trong chùa, nói là trả thần thông Đại Lôi Âm Tự lại cho Đại Lôi Âm Tự. Cánh tay của ngươi hiện giờ vẫn còn ở Thiên Phật Tháp. Mà nay ngươi lại truyền thần thông Đại Lôi Âm Tự ra ngoài, truyền cho thiếu niên trên lôi đài kia, lật lọng.”
+
+[Xem chương tiếp theo](chapter-0037.md)

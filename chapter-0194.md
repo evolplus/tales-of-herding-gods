@@ -201,3 +201,5 @@ Quốc sư Diên Khang nhìn về phía Tần Mục, nói:
 Tần Mục gật đầu nói:
 
 "Thương thế của Quốc sư rất khó trị, thuốc ta kê tất nhiên sẽ rất phức tạp."
+
+[Xem chương tiếp theo](chapter-0195.md)

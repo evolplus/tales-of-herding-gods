@@ -133,3 +133,5 @@ Người trong nghề nhìn ra môn đạo. Tuy Thái Học Viện còn chưa xu
 Đại phái như Đạo môn có thể bồi dưỡng một hai tồn tại xuất chúng như đạo tử, còn cường giả hạng nhất như Khuất Bình, Côn Tử Vũ thì không nhiều lắm. Nhưng trong Thái Học Viện, cường giả như vậy khắp nơi đều có, điều này vô cùng đáng sợ!
 
 Ánh mắt Lâm Hiên đạo tử vượt qua đám người, rơi trên người Tần Mục. Tần Mục dường như có cảm giác, nhìn về phía hắn, mỉm cười ra hiệu. Lâm Hiên mỉm cười đáp lễ, trong lòng buồn bực: "Trong thái học sĩ tử không phải không có nhân vật xuất chúng, nhưng vì sao hắn không ra khiêu chiến ta?"
+
+[Xem chương tiếp theo](chapter-0134.md)

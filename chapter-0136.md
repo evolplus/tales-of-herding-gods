@@ -115,3 +115,5 @@ Tần Mục và những người khác trở về Sĩ Tử Cư. Khi đi ngang qu
 Tần Mục được cổ vũ lớn, trở về chỗ ở, đặt tiểu hồ ly đã ngủ xuống, sau đó chậm rãi dạo bước, thúc giục Bá Thể Tam Đan Công. Tốc độ dần dần nhanh hơn, rơi vào tu luyện nửa ngủ nửa tỉnh.
 
 Không bao lâu, Thẩm Vạn Vân thấy Tần Mục gào vút chạy qua trước cửa nhà mình, vội đuổi theo. Chỉ thấy mắt Tần Mục nửa mở nửa nhắm, chạy như điên khắp núi rừng, hắn không khỏi ngạc nhiên: "Mộng du?"
+
+[Xem chương tiếp theo](chapter-0137.md)

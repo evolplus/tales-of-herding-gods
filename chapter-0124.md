@@ -109,3 +109,5 @@ Tần Mục vâng lời. Mấy vị thái y cũng như được đại xá, cùn
 "Thằng chăn bò, quả nhiên là ngươi!"
 
 Thiếu nữ kia mừng rỡ nói: "Sao ngươi lại chạy tới đây?"
+
+[Xem chương tiếp theo](chapter-0125.md)

@@ -201,3 +201,5 @@ Một vu sĩ đỏ mắt, đột nhiên rút ra một lá cờ đen, lay động
 Tần Mục dùng Thiên Ma Tạo Hóa Công tự phong hồn phách, giơ tay chỉ một cái. Kiếm hạp sau lưng mở ra, một thanh phi kiếm phát ra tiếng rít sắc bén, xuyên qua mi tâm vu sĩ kia.
 
 Tần Mục nhấc ngón tay lên, phi kiếm gào rít bay về, keng một tiếng cắm vào kiếm hạp, sau kiếm kéo theo một chuỗi huyết quang.
+
+[Xem chương tiếp theo](chapter-0154.md)

@@ -151,3 +151,5 @@ Bóng Phật sau lưng cậu lại hiện, Phạn âm hùng hồn:
 Lão giả trong băng nói:
 
 "Lão phu là Cố Li Noãn, Thái tử Thiếu bảo của Diên Khang quốc, chức tòng nhất phẩm. Nếu ngươi có thể cứu ta ra, tới Diên Khang quốc, ta bảo đảm ngươi hưởng vinh hoa phú quý không hết!"
+
+[Xem chương tiếp theo](chapter-0049.md)

@@ -159,3 +159,5 @@ Bịch.
 Thiếu niên Tàn Lão Thôn quỳ trên mặt nước. Bàn tay run rẩy vươn ra, muốn vuốt ve gương mặt nữ tử trong nước. Nước mắt trượt khỏi hốc mắt, rơi xuống mặt sông phẳng lặng.
 
 "Là người sao? Là người đã đưa ta tới Tàn Lão Thôn sao..."
+
+[Xem chương tiếp theo](chapter-0098.md)

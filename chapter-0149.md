@@ -133,3 +133,5 @@ Tần Mục nhìn sang, chỉ thấy trên ngực ông thêu một cái đầu c
 "Đây là hình xăm của Khả Hãn Man Địch quốc, đã được Vu Tôn thánh địa Man Địch quốc chúc phúc, không phải ai cũng có."
 
 Bá Sơn Tế Tửu khép áo lại, nói: "Vốn dĩ ta chính là Khả Hãn của Man Địch quốc. Năm đó ta theo ân sư du lịch bốn phương, tới Man Địch quốc, nghe nói Man Địch quốc thượng võ, nên quyết đấu với cường giả trên thảo nguyên, trăm trận không thua, vì vậy được tôn làm Võ Khả Hãn. Võ Khả Hãn trong Diên Khang quốc có nghĩa là Võ Hoàng Đế."
+
+[Xem chương tiếp theo](chapter-0150.md)

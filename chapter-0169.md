@@ -157,3 +157,5 @@ Mấy con cá lớn lắc đầu, hậm hực bơi đi.
 Thân hình ba vị Thiên Vương xuất hiện giữa không trung, đưa tay chụp Tần Mục đang ở trên không vừa nhấc áo gấm lên. Ba bàn tay lại nắm chặt vào nhau. Tần Mục đã rời đi trước bọn họ một bước, thứ bọn họ bắt được chỉ là tàn ảnh.
 
 "Trước khi đi, Tổ sư đã dặn, vị thiếu giáo chủ này có sở thích kỳ lạ, thích tháo dỡ đồ đạc. Nếu không bắt được ngài ấy..."
+
+[Xem chương tiếp theo](chapter-0170.md)

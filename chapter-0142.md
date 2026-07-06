@@ -157,3 +157,5 @@ Cũng chính vì nguyên nhân này, họ không thấy được thủ pháp thu
 Cũng may chỉ là thuốc mê. Nếu là kịch độc ngửi thấy là chết, chỉ e tinh anh tương lai của Diên Khang quốc sẽ chết một mạch hơn nửa.
 
 Đúng lúc này, đột nhiên có người kinh hô: "Phật Tâm Phật tử và Kính Minh đại hòa thượng đi rồi!"
+
+[Xem chương tiếp theo](chapter-0143.md)

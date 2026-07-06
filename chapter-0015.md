@@ -153,3 +153,5 @@ Sau lưng cậu, Tư bà bà không biết đã đi tới từ lúc nào, vừa 
 Tinh thần bà chấn động, mắt lộ tinh quang:
 
 “Bên ngoài nguy hiểm hơn Đại Khư quá nhiều! Hiện giờ nó còn chưa có đủ thực lực!”
+
+[Xem chương tiếp theo](chapter-0016.md)

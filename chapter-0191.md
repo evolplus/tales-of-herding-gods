@@ -227,3 +227,5 @@ Thẩm Vạn Vân và mọi người nghĩ tới điểm then chốt trong đó.
 Quốc sư Diên Khang nói:
 
 "Trên đường ta có thể chỉ điểm tu hành cho các ngươi một chút. Lần trước là Đại tế tửu của các ngươi mời ta tới, ta giảng chưa đến hai ngày. Lần này là nể mặt Thái học bác sĩ."
+
+[Xem chương tiếp theo](chapter-0192.md)

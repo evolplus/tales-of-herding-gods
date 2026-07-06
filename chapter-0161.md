@@ -223,3 +223,5 @@ Giọng Lão mù từ bên ngoài truyền tới:
 Tần Mục giật mình:
 
 "Chủ nhân xương tay vẫn còn sống?"
+
+[Xem chương tiếp theo](chapter-0162.md)

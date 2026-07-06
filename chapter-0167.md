@@ -189,3 +189,5 @@ Tả hữu hộ pháp sứ hỏi thêm vài chi tiết rồi lập tức đứng
 Tần Mục khen không dứt, dẫn Hồ Linh Nhi bước nhanh về phía đại điện kia, học pháp môn truyền tống trong điện. Không học được pháp môn truyền tống, hắn căn bản không thể rời khỏi nơi này!
 
 Thân là Thánh giáo chủ, chẳng lẽ lại mặt dày cầu người khác dẫn mình đi sao?
+
+[Xem chương tiếp theo](chapter-0168.md)

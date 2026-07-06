@@ -161,3 +161,5 @@ Linh Dục Tú ủ rũ, lẩm bẩm:
 Ánh mắt Tần Phi Nguyệt dịu lại, mềm giọng nói:
 
 "Nếu Thất công chúa thưởng thức thiếu niên kia, đợi đến khi Đại Khư nhập vào lãnh thổ Diên Khang, liền gọi hắn vào cung, ban cho hắn một chức thái giám quản sự là được. Như vậy hắn có thể thường xuyên ở bên Thất công chúa."
+
+[Xem chương tiếp theo](chapter-0073.md)

@@ -175,3 +175,5 @@ Còn trước cửa sòng bạc, Lão mù chống trượng đứng đó, nghiê
 Ở cửa chợ rau, một Đồ phu chỉ có nửa thân trên đang xoèn xoẹt mài đao. Trong hiệu sách ở phố bên, một Lão điếc đeo tai sắt đang vung bút vẽ tranh trong sân hiệu sách. Cây bút vẽ dài hơn một trượng. Lão điếc vẽ như điên như cuồng, đột nhiên nhấc bút. Chỉ thấy một bức Lôi Vân Đồ vừa vẽ xong, rộng mấy trượng, phóng thẳng lên trời.
 
 Bức tranh này bay vào không trung, dần dần ẩn đi. Trong chớp mắt, mây sấm dày đặc. Răng rắc, răng rắc, vô số tia chớp sấm sét từ trên không đánh xuống.
+
+[Xem chương tiếp theo](chapter-0077.md)

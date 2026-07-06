@@ -137,3 +137,5 @@ Hắn lấy tơ bụi làm chân, chạy nhanh như bay trong không trung. Còn
 Tần Mục co ngón tay búng liên tục. Đạn Chỉ Kinh Lôi, giữa tiếng sấm ầm vang lại có âm luật nổi lên. Sắc mặt Lâm Hiên đạo tử đại biến: "Hỏng rồi, bị hắn chiếm tiên cơ. Chỉ còn cách dùng kiếm pháp trấn giáo của Đạo môn!"
 
 Chú thích [1]: Chước Luân Ấn lấy từ ngụ ngôn trong "Trang Tử, Thiên Đạo thiên thứ mười ba". Bạn đọc có hứng thú có thể tìm xem, đó là cuộc đối thoại giữa Tề Hoàn Công và Luân Biển.
+
+[Xem chương tiếp theo](chapter-0138.md)

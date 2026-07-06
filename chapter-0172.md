@@ -169,3 +169,5 @@ Những hành khách khác trên lầu thuyền sắc mặt kịch biến, thấ
 Mấy quân sĩ kia đưa tay chỉ một cái. Vô số phi trùng kết thành đội ngũ, như độc long xông lên thuyền, gặp người là chui, gặp người là cắn. Cách Tần Mục không xa, một thương nhân bụng phệ tu vi cũng không yếu, nhưng bị đám côn trùng ấy chui vào cơ thể từ mắt tai miệng mũi. Khoảnh khắc sau, cả tên thương nhân béo kia đột nhiên như bị xì hơi, chỉ còn lại một tấm da người nằm sấp trên boong.
 
 Dưới da người, vô số côn trùng ngọ nguậy, bò ra từ mắt tai miệng mũi của hắn, sau đó vỗ cánh vo ve bay lên.
+
+[Xem chương tiếp theo](chapter-0173.md)

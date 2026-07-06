@@ -157,3 +157,5 @@ Trời đã tối. Thôn nhỏ chỉ mười mấy hộ gần đó, ánh đèn d
 Tất cả mọi người đều nín thở, không dám phát ra bất cứ tiếng động nào.
 
 Đột nhiên, một bé gái sợ quá òa khóc. Con đại xà lập tức động, điên cuồng trườn về phía bé gái kia, há miệng máu lao xuống, cắn về phía một nhà ba người đã sợ đến đờ ra!
+
+[Xem chương tiếp theo](chapter-0042.md)

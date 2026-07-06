@@ -157,3 +157,5 @@ Hành Vũ Quyết có công pháp riêng. Tần Mục dùng Bá Thể Tam Đan C
 Uy lực pháp thuật của cậu đã rất đáng kể, nhưng đó là vì tu vi của cậu mạnh mẽ vô cùng. Nếu đổi sang pháp môn thích hợp, uy lực môn pháp này nhất định có thể mạnh hơn!
 
 Chú thích ①: Đoạn này xuất phát từ Tâm học Nho gia, do Vương Cấn, Nhan Quân đề xuất, phát triển từ học thuyết của Vương Dương Minh. Hai vị này là đại gia Nho học thời Minh.
+
+[Xem chương tiếp theo](chapter-0100.md)

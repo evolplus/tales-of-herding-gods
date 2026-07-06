@@ -201,3 +201,5 @@ Trong lòng Linh Ngọc Thư chấn động nhẹ.
 Tần Mục nói tiếp:
 
 "Nhị hoàng tử, nếu ông ta chịu hóa giải ân oán, ta phá quy củ Đại Khư mà trả Thiếu Bảo Kiếm cho ông ta cũng không sao. Nhưng ta cảm thấy cho dù ta trả Thiếu Bảo Kiếm cho ông ta, ông ta cũng sẽ không nể mặt huynh, sẽ không hóa giải ân oán. Hơn nữa, Nhị hoàng tử sao lại không lo ông ta gây khó dễ cho huynh?"
+
+[Xem chương tiếp theo](chapter-0176.md)

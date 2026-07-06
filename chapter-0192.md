@@ -213,3 +213,5 @@ Quốc sư Diên Khang tản đi năm loại sức mạnh này. Mọi người l
 Quốc sư Diên Khang ngạc nhiên, lắc đầu nói:
 
 "Sĩ tử khóa này của các ngươi quá ngốc, là khóa tệ nhất ta từng dạy."
+
+[Xem chương tiếp theo](chapter-0193.md)

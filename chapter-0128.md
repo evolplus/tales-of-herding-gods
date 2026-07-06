@@ -149,3 +149,5 @@ Một sĩ tử cười lạnh nói: "Một đôi gian phu dâm phụ, giữa tha
 Tần Mục gọi Hồ Linh Nhi, nói: "Đừng nghĩ cướp nàng nữa. Muội muốn cướp nàng thì còn phải moi nàng ra khỏi cột. Nàng rất khá, vậy mà có thể theo kịp bước chân ta, là một cao thủ."
 
 Hồ Linh Nhi vội theo sau cậu, lưu luyến quay đầu nhìn lại, chỉ thấy Việt Thanh Hồng bị Tần Mục đâm vào cột Thanh Dương Điện, mặt quay vào trong, khảm trong cột.
+
+[Xem chương tiếp theo](chapter-0129.md)

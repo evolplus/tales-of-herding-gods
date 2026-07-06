@@ -219,3 +219,5 @@ Lão què vẫn không nhanh không chậm đi về phía thôn. Ngay khoảnh k
 Cậu tò mò nhìn bóng tối ngoài thôn. Nơi đó đen kịt một màu, chẳng thấy gì cả.
 
 “Trong bóng tối rốt cuộc có thứ gì?” Cậu thầm thắc mắc.
+
+[Xem chương tiếp theo](chapter-0002.md)

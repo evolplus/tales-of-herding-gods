@@ -219,3 +219,5 @@ Sắc mặt Lão què xám như đất:
 Tư bà bà thở dài, bất đắc dĩ nói:
 
 "Người ta phải kiểm hàng trước. Không kiểm hàng, người ta sao dám yên tâm để nó làm Thiếu giáo chủ Thiên Ma giáo?"
+
+[Xem chương tiếp theo](chapter-0053.md)

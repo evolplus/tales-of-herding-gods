@@ -187,3 +187,5 @@ Tần Mục cúi đầu ngửi, quả thật có một mùi hương thanh nhã. 
 "Ta cũng có một chiếc khăn lau mồ hôi dệt từ Thiên Hương Ti, cũng thơm như vậy."
 
 Dứt lời, cậu lấy chiếc "khăn lau mồ hôi" trong lòng ra.
+
+[Xem chương tiếp theo](chapter-0076.md)

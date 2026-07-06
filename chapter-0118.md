@@ -131,3 +131,5 @@ Diên Phong Đế cũng hơi đau đầu, cười lạnh nói: "Trên danh nghĩ
 Nói rồi, không biết dây lòng nào bị chạm tới, ông đứng dậy, có chút kích động: "Trẫm và Quốc sư thúc đẩy biến pháp chính là để thay đổi tình trạng tông phái nắm giữ mệnh mạch lê dân, mệnh mạch quốc gia. Trẫm không chỉ muốn biến pháp, còn muốn cách mạng, cách cái mạng của những tông phái này, cách cái mạng của chính mình! Những tông phái này không muốn biến pháp, vậy cứ chờ trẫm đi cách mạng họ! Tài nguyên những tông phái này nắm giữ đều phải thu về quốc hữu, đừng hòng lại tới bắt bí trẫm! Không chỉ tông phái phải thay đổi, triều đình cũng phải thay đổi. Triều đình không thay đổi, sớm muộn cũng xong đời! Các ngươi đều nói Quốc sư cấp tiến, Quốc sư không cấp tiến bằng trẫm. Những việc Quốc sư làm đều là ý trẫm! Phản Quốc sư chính là phản trẫm!" ①
 
 Chú thích ①: Từ cách mạng không phải từ ngoại lai, bắt nguồn từ "Dịch Kinh" hai ba nghìn năm trước. Trong "Dịch Kinh" có nói: Thang Vũ cách mạng, thuận theo trời mà ứng với người.
+
+[Xem chương tiếp theo](chapter-0119.md)

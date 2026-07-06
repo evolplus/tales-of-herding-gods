@@ -155,3 +155,5 @@ Cố Li Noãn đọc toàn bộ Đan Tâm Quyết một lần, rồi giải thí
 Một lúc lâu sau, Cố Li Noãn giảng giải Đan Tâm Quyết xong một lượt, nói:
 
 "Ngươi cứ tu luyện trước, rồi lại khống kiếm. Nhiều thì mười ngày, ít thì hai ngày, ngươi có thể lấy khí ngự kiếm, điều khiển Thiếu Bảo Kiếm chém giết hồn phách Long mẫu! Tiểu hồ ly trong ngực ngươi cũng xem như được hưởng ân huệ của ngươi, học được thuật khống kiếm tốt nhất thiên hạ, coi như một phen cơ duyên."
+
+[Xem chương tiếp theo](chapter-0050.md)

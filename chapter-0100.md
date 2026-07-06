@@ -143,3 +143,5 @@ Hồ Linh Nhi không hiểu ý, chớp đôi mắt ngái ngủ, còn chưa kịp
 "Phi cương! Có Phi cương! Thi Tiên giáo đánh tới, mau bảo vệ đại nhân!"
 
 "Đại nhân của các ngươi đã chết, đầu ở đây!"
+
+[Xem chương tiếp theo](chapter-0101.md)

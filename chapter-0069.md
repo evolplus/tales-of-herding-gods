@@ -193,3 +193,5 @@ Tần Mục nhíu mày, nghiêng đầu hỏi Linh Dục Tú:
 Linh Dục Tú cũng bị dọa giật mình, vội kéo tay cậu đi về phía Trấn Giang Lâu, cười nói:
 
 "Ta hơi đói rồi, chúng ta đi ăn đồ ngon! Ta ở đây cũng là khách, không thể quản quá nhiều..."
+
+[Xem chương tiếp theo](chapter-0070.md)

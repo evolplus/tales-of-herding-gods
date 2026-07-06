@@ -143,3 +143,5 @@ Tim Vệ Dung giật thót, nói: "Tần huynh đệ, đệ tử Ngự Long Môn
 Sắc mặt Tần Mục cũng thay đổi, nhìn về phía sâu trong rừng rậm. Nơi đó từng cây đại thụ xanh um, sau đó từ trong thân cây bước ra hơn trăm bóng người, trên người đều có hoa văn như vỏ cây.
 
 Tiếng sáo vang lên. Sau rừng không biết bao nhiêu con rắn lớn trườn tới, đàn rắn phủ kín núi rừng. Những chiếc mào đỏ của đám rắn lớn này giống như từng đóa hoa đang lay động trong gió.
+
+[Xem chương tiếp theo](chapter-0109.md)

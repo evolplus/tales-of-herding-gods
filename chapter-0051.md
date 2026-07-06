@@ -167,3 +167,5 @@ Tư bà bà nhíu mày. Thôn trưởng nhẹ giọng nói:
 Thiếu niên đối diện ông nhấp trà, mỉm cười nói:
 
 "Đạo huynh vẫn bá khí như trước. Chuyện liên quan tới giáo chủ, phu nhân giáo chủ và thánh điển của giáo ta, Tàn Lão Thôn muốn gánh, chỉ e gánh không nổi."
+
+[Xem chương tiếp theo](chapter-0052.md)

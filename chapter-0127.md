@@ -119,3 +119,5 @@ Từ sau khi cậu tới Kinh thành, trước nay gặp phải đều là nhữ
 Tăng nhân áo trắng không chịu báo tên này hiển nhiên rất mạnh, kích phát đấu chí của cậu.
 
 Từ sau khi bước vào lãnh thổ Diên Khang, cậu vẫn giả làm người văn minh, giả vờ đúng là vất vả. Nhưng trong xương cốt, Tần Mục vẫn là dân bị thần vứt bỏ của Đại Khư, mảnh đất hoang man cuồng dã ấy, là kẻ hung hãn mang một cây đao cũng dám xuống sông giết giao long, lên núi đấu dị thú!
+
+[Xem chương tiếp theo](chapter-0128.md)

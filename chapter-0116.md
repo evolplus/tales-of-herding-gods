@@ -103,3 +103,5 @@ Hiện giờ cậu hơi nghi thần nghi quỷ. Nghe thấy tên cô gái gọi 
 Không bao lâu sau, họ tới trước một tòa đại điện. Chỉ thấy một đồng tử tay cầm danh sách nhìn về phía họ, cất giọng nói: "Các vị sĩ tử, khảo hạch ải này nghiêm khắc, có thể sẽ có chết bị thương. Có ai muốn rút lui không?"
 
 Chú thích ①: Kinh văn trích từ "Kim Cang Bát Nhã Ba La Mật Kinh" của Phật môn. Trạch Trư đọc kỹ bài kinh văn này, phát hiện ma ngữ Phạn văn viết ở phần trước bị sai. Chữ "Tát" này hẳn là đảo trang. Trong Kim Cang Kinh có "Ma Ha Tát", nghĩa mặt chữ là sáng tạo lớn. "Tát Ma Da" hẳn là "Ma Da Tát", phần sau đổi thành Ma Da Tát.
+
+[Xem chương tiếp theo](chapter-0117.md)

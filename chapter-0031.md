@@ -109,3 +109,5 @@ Li Giang kiếm pháp quả nhiên âm hiểm hung hãn!
 Đúng lúc này, thanh linh kiếm thứ nhất rung ra mấy chục đóa kiếm hoa, đâm về phía Tần Mục. Kiếm quang làm hoa cả mắt.
 
 Mà phía sau mấy chục đóa kiếm hoa này, thanh linh kiếm thứ hai tách khỏi hàng kiếm, được một sợi tơ nguyên khí độc lập nối lấy, đột ngột lướt tới, cứa về phía cổ Tần Mục!
+
+[Xem chương tiếp theo](chapter-0032.md)

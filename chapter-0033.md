@@ -175,3 +175,5 @@ Lão què lắc đầu, quả quyết nói:
 Mã gia nhìn ông một cái:
 
 “Ông đừng quên, một Quốc sư Diên Khang không làm gì được Đại Khư, nhưng sau lưng Quốc sư là Diên Khang quốc! Diên Khang quốc là một đại phái treo danh nghĩa quốc gia! Một quái vật khổng lồ như vậy, sao có thể không nhìn chằm chằm Đại Khư? Nơi này chính là nơi có vô số bảo tàng!”
+
+[Xem chương tiếp theo](chapter-0034.md)

@@ -197,3 +197,5 @@ Thứ ngộ ra là của mình, thứ học được là của người khác. T
 Thiếu niên tổ sư thở phào, nhìn về phía Tư bà bà. Trong miệng Tư bà bà truyền ra giọng Lệ giáo chủ:
 
 "Lão sư, con đã không còn là Thánh giáo chủ nữa. Đây là cơ hội để con phá trừ tâm ma, xin lão sư đừng cản con!"
+
+[Xem chương tiếp theo](chapter-0167.md)

@@ -139,3 +139,5 @@ Cây gậy nhỏ của Tần Mục vẫn đang điên cuồng gõ vào Khúc sư
 Dù nói chỉ là một cây gậy nhỏ, không có bao nhiêu uy lực, nhưng cộng thêm sức mạnh thân thể Tần Mục, không ngừng gõ xuống, tích tiểu thành đại, sức phá hoại đối với thân thể hắn cũng không phải chuyện nhỏ.
 
 “Hắn muốn gõ chết ta!” Khúc sư huynh dựng tóc gáy.
+
+[Xem chương tiếp theo](chapter-0013.md)

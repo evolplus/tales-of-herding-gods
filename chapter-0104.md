@@ -227,3 +227,5 @@ Cậu từng thấy loại biệt trùng này ở chỗ Dược sư. Thi Biệt 
 Đám mây đỏ kia bay càng lúc càng thấp. Đột nhiên từng con giáp trùng đỏ bay vào rừng núi, chui vào bãi tha ma. Mặt đất bãi tha ma rung lên, từng bộ xương khô bò ra khỏi lòng đất, sải chân điên cuồng đuổi theo Tần Mục!
 
 Càng nhiều Thi Biệt bay tới, chui vào những con sói hoang, lửng, thậm chí mãnh hổ và các dã thú gặp trên đường. Những mãnh thú kia đỏ mắt, vậy mà cũng nhào về phía Tần Mục!
+
+[Xem chương tiếp theo](chapter-0105.md)

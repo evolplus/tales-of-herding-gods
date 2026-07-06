@@ -153,3 +153,5 @@ Vệ Dung kinh hô, mắt sáng rực, nói: "Đây là kiếm pháp của Quố
 "Kiếm pháp của Quốc sư Diên Khang?"
 
 Trong lòng Tần Mục khẽ chấn động. Khó trách cậu cảm thấy kiếm pháp này vượt khỏi phạm trù kiếm thuật cơ sở, không ngờ lại là kiếm thuật do Quốc sư Diên Khang sáng tạo!
+
+[Xem chương tiếp theo](chapter-0132.md)

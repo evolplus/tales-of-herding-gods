@@ -183,3 +183,5 @@ Soạt!
 Lão điếc đặt bút lông ngay ngắn, nghiêm mặt nói:
 
 "Hai con rồng này ta dùng thần thông mà vẽ. Chỉ cần điểm mắt, chúng có thể hóa rồng bay đi. Nhưng với tu vi cảnh giới Linh Thai thì không thể thật sự điểm mắt cho rồng trong tranh. Có điều, tu vi không đủ thì phải xem họa công. Ta từng dạy con Linh Tê Nhất Điểm Phú Thần Hồn. Hôm nay ta sẽ so Linh Tê Nhất Điểm với con, xem ai có thể ở cảnh giới Linh Thai điểm sống hai con rồng này, để phi long nhập thiên!"
+
+[Xem chương tiếp theo](chapter-0094.md)

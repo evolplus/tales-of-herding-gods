@@ -123,3 +123,5 @@ Các sĩ tử trong điện xôn xao. Một sĩ tử lẩm bẩm: "Có thể dù
 Kiếm đường đường chủ lắc đầu nói: "Còn chưa phải. Đứa trẻ này hiện tại mới mười lăm tuổi, không thể đạt tới cảnh giới Kiếm Thần."
 
 [1] Đoạn này trích từ "Liệt Tử - Thang Vấn", nói về ba thanh thần kiếm Hàm Quang, Thừa Ảnh và Tiêu Luyện, còn gọi là Thương Thiên tử tam kiếm, ngụ ý ba cảnh giới của đạo kiếm.
+
+[Xem chương tiếp theo](chapter-0130.md)

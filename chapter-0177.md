@@ -225,3 +225,5 @@ Còn việc Quốc sư Diên Khang nói giữ lại Thiên Ma giáo chính là g
 Tần Mục thúc giục công pháp, chậm rãi đi trong sân, cẩn thận cảm ngộ công pháp đại nhất thống mình sáng tạo trên nền tảng Bá Thể Tam Đan Công, rồi quy nạp chỉnh lý. Thỉnh thoảng hắn lại lấy Đại Dục Thiên Ma Kinh ra, tham ngộ một phen.
 
 Qua rất lâu, Tần Mục thở ra một ngụm trọc khí. Tốc độ hắn đột nhiên tăng nhanh, chạy như điên khắp trước sau núi, thúc giục công pháp đại nhất thống mà mình tham ngộ ra. Thân hình hắn như phù quang lược ảnh lướt qua trước núi sau núi của Thái Học Viện.
+
+[Xem chương tiếp theo](chapter-0178.md)

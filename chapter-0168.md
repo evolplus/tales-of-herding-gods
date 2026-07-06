@@ -215,3 +215,5 @@ Nếu có thể trực tiếp thi triển thần thông, cũng sẽ có hiệu q
 Hơn nữa, Tần Mục tham ngộ lâu như vậy, phát hiện pháp môn truyền tống này thật ra cần kỹ xảo tính toán cao minh. Tạo nghệ về thuật toán càng cao, mới càng nhanh nắm giữ truyền tống thần thông.
 
 "Ta cần điển tịch thuật số cao minh hơn!"
+
+[Xem chương tiếp theo](chapter-0169.md)

@@ -137,3 +137,5 @@ Lão mù xoay người lại, cười híp mắt:
 Đồ phu lạnh lùng nói:
 
 “Lão mù, nó dùng rõ ràng là đao pháp của ta, ngươi đắc ý cái gì? Hơn nữa ngươi lải nhải với cái xác làm gì?”
+
+[Xem chương tiếp theo](chapter-0014.md)

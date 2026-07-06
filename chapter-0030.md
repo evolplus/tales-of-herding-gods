@@ -147,3 +147,5 @@ Thôn trưởng quát một tiếng, ngăn Tư bà bà nói tiếp, thản nhiê
 Ánh mắt ông âm trầm, nhìn về phía Tần Mục, lạnh lùng nói:
 
 “Tần Mục, quan tài và áo liệm ở ngay kia. Nếu ngươi nhân từ nhường nhịn, một cỗ quan tài trong đó sẽ là của ngươi! Hoặc hắn chết, hoặc ngươi chết! Người ta đã mời chiến, ngươi còn ngẩn ra làm gì, còn không đi?”
+
+[Xem chương tiếp theo](chapter-0031.md)

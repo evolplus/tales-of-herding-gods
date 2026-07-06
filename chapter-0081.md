@@ -175,3 +175,5 @@ Mọi người giật nảy.
 Thôn trưởng mỉm cười nói:
 
 "Các ngươi yên tâm. Lần đầu tiên ta vào Ám giới là bốn trăm năm trước. Bốn trăm năm qua, ta vẫn có chút tiến bộ. Ta chuẩn bị một thời gian trước, sau đó dẫn Mục nhi đi một chuyến trong bóng tối."
+
+[Xem chương tiếp theo](chapter-0082.md)

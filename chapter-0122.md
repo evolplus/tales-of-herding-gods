@@ -137,3 +137,5 @@ Tần Mục vén rèm nhìn ra ngoài, chỉ thấy cỗ kiệu này lững lờ
 Những Kim giáp đại tướng này không hỏi han gì cỗ kiệu, mặc cho kiệu đi về phía hoàng thành.
 
 Tần Mục buông rèm, nhìn lão giả đối diện, nói: "Vị bệnh nhân trong nhà Nhạn đại nhân này lai lịch không hề tầm thường."
+
+[Xem chương tiếp theo](chapter-0123.md)

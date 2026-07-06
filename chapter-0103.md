@@ -177,3 +177,5 @@ Tư bà bà thở dài, một mình lặng lẽ ăn xong bữa sáng, vứt nồ
 Tư bà bà coi như không thấy hai người, khoác giỏ đi ra ngoài.
 
 "Tư lão thái bà, muốn rời thôn mà cũng không nói một tiếng sao?" Thôn trưởng ung dung nói.
+
+[Xem chương tiếp theo](chapter-0104.md)

@@ -177,3 +177,5 @@ Hồ Linh Nhi kinh ngạc:
 Vệ Dung mặt trắng bệch, run lẩy bẩy đi ra ngoài, hồn bay phách lạc:
 
 "Chặt Thượng Tiến thụ, dùng Thượng Tiến thụ nướng cá vương của Ngọc Long Hồ. Có mấy cái đầu cũng không đủ cho hoàng đế chém. Ta chưa từng tới đây, chưa từng tới..."
+
+[Xem chương tiếp theo](chapter-0180.md)

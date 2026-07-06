@@ -195,3 +195,5 @@ Tần Mục xưng phải, khen:
 Hắn khiêm tốn thỉnh giáo, Phạm Vân Tiêu biết gì nói nấy. Phạm Vân Tiêu đã luyện thành thiên thứ năm của Đạo Kiếm, tạo nghệ về thuật số cực cao.
 
 Chú ①: Triệu, kinh, cai, tỉ, nhương, câu, giản, chính, tải, cực, phân, ly, hào, ti, hốt, vi, tiêm, sa... đều là đơn vị đếm thời cổ Trung Hoa. Phân, ly và các đơn vị tương tự dùng để tính những con số sau dấu thập phân.
+
+[Xem chương tiếp theo](chapter-0182.md)

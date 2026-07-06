@@ -181,3 +181,5 @@ Khi hắn lui tới bước thứ tư, vách tường sau lưng đã bị đâm 
 Mùn gỗ bay đầy trời. Trong mùn gỗ vậy mà hiện ra đồ án chín con rồng lao nhanh, điều khiển gió sấm, xông ra từ sau lưng vị đường chủ này. Cửu long gào thét giận dữ, sấm chớp đan xen!
 
 Hắn không chặn được tầng kình thứ chín của Cửu Long Ngự Phong Lôi.
+
+[Xem chương tiếp theo](chapter-0055.md)

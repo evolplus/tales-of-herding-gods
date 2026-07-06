@@ -99,3 +99,5 @@ Tần Mục nói: "Thánh giáo nương nhờ Diên Khang quốc."
 Sắc mặt thiếu niên Tổ sư khẽ đổi, cười lạnh nói: "Ngươi làm giáo chủ là muốn để Thánh giáo ta diệt giáo? Lá gan ngươi lớn lắm, ta muốn chém đầu ngươi!"
 
 Chú thích ①: Bí thư không phải từ ngoại lai mà là chức quan cổ đại. Bí thư giám phụ trách trông coi tàng thư hoàng gia, được thiết lập từ thời Đông Hán, còn chức vụ tương tự Bí thư giám có nguồn gốc sớm hơn, từ thời nhà Chu. Đời Đường, Ngụy Trưng từng làm Bí thư giám. Hệ thống quan chức trong "Mục Thần Ký" dùng hệ thống chín phẩm mười tám bậc đời Đường.
+
+[Xem chương tiếp theo](chapter-0120.md)

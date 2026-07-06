@@ -143,3 +143,5 @@ Bóng người trên tường lại thu nhỏ thêm mấy phần, dường như 
 Cái bóng trên tường mơ hồ không rõ. Tần Mục bất giác lại bước lên hai bước, sắp bước vào cửa điện phụ. Đột nhiên, cậu dừng chân, không vào cửa, mà thôi động Cửu Trọng Thiên Khai Nhãn Pháp lão mù truyền cho. Trong mắt cậu nhiều thêm một tầng đồng tử. Cái bóng trên tường tuy tối tăm, nhưng trong mắt cậu lại trở nên rõ ràng.
 
 “Ngươi không vào đây, có thể nhìn rõ sao?” Bóng người trên tường hỏi.
+
+[Xem chương tiếp theo](chapter-0029.md)

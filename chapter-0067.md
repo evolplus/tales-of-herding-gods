@@ -201,3 +201,5 @@ Một người phía sau khom người nói:
 Dứt lời hắn bước lên trước, kết toán với Tần Mục.
 
 Những chủ sạp và người qua lại trong hẻm nhìn đến ngây ra, hơi thở cũng hơi dồn dập. Người đàn ông vừa bán vò đất cho Tần Mục càng giật giật khóe mắt, đầu váng mắt hoa, nhìn những chiếc vò đất kia, muốn cướp lại mà lại không dám cướp.
+
+[Xem chương tiếp theo](chapter-0068.md)

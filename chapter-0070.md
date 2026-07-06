@@ -201,3 +201,5 @@ Tần Phi Nguyệt nhíu mày, lộ vẻ ghét bỏ:
 Hắn lại nhìn cô gái bên cạnh Tần Mục, như ngồi trên đống kim, thật sự đau đầu:
 
 "Thất công chúa sao lại chạy đi lẫn lộn với thiếu niên Tàn Lão Thôn rồi? Vừa rồi công chúa còn véo hắn, có chút quá thân mật. Chuyện này nếu truyền ra ngoài, thể diện hoàng gia còn cần nữa không..."
+
+[Xem chương tiếp theo](chapter-0071.md)

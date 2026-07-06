@@ -201,3 +201,5 @@ Việt Thanh Hồng nhìn quanh bốn phía, chỉ thấy những cường giả
 Tần Mục giải thích:
 
 "Quốc sư Diên Khang có thể tự mình giải quyết. Ba lão quái cựu thời đại đánh lén, có thể trong vạn quân làm Quốc sư Diên Khang không phòng bị bị thương. Nếu Quốc sư Diên Khang đánh lén, về cơ bản không ai là đối thủ của ông ấy. Nơi Thiên Thánh giáo chúng ta giúp Quốc sư nằm ở việc tạo ra thời cơ cho ông ấy ra tay. Khoảnh khắc những giáo chủ này thất thần chính là thời cơ tốt nhất để Quốc sư đánh lén."
+
+[Xem chương tiếp theo](chapter-0200.md)

@@ -203,3 +203,5 @@ Phạm Vân Tiêu vừa kinh vừa mừng:
 "Sau này đi cướp, ai còn bắt được ta?"
 
 Bây giờ Tần Mục đã hiểu vì sao Đạo chủ Đạo môn lại nói hắn tâm thuật bất chính.
+
+[Xem chương tiếp theo](chapter-0174.md)

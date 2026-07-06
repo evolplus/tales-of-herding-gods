@@ -157,3 +157,5 @@ Mà bây giờ, lão mù đã truyền Thần Nhãn ra, truyền cho Tần Mục
 Luyện thương trước luyện mắt, luyện mắt trước luyện tâm!
 
 Mắt của lão mù là Thần Nhãn. Mắt càng mạnh, càng có thể nhìn thấy chân thực. Nhìn càng chân thực, càng có thể nhìn thấy nỗi kinh khủng lớn lao.
+
+[Xem chương tiếp theo](chapter-0024.md)

@@ -139,3 +139,5 @@ Hắn thấy Kiếm hoàn giữa không trung đã vào hết trong rương gỗ
 Chiếc rương gỗ hạ xuống, biến mất trong một khu rừng. Tần Mục gào gió xông tới, thấy một lão giả áo vải, sau lưng đeo một chiếc lò rèn, tay xách một chiếc rương gỗ. Khuôn mặt ông đầy gió sương, là nếp nhăn do năm tháng để lại.
 
 Lão giả áo vải kia thấy hắn chạy tới, nhe miệng cười. Trong miệng không có lưỡi.
+
+[Xem chương tiếp theo](chapter-0190.md)

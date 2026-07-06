@@ -151,3 +151,5 @@ Cả bộ kiếm hạp của Tần Ngọc đã đánh hết, lộ vẻ hoảng h
 "Thực lực không tệ. Ta muốn nhìn kiếm thuật của con ấu long kia." Tần Mục khen một tiếng, nói với Tần Ngọc.
 
 Mấy tạp dịch đang sửa tường thấy kiếm pháp của Tần Mục, nhao nhao reo hò, khen: "Tiểu ca nhi có khí độ tông sư!"
+
+[Xem chương tiếp theo](chapter-0146.md)

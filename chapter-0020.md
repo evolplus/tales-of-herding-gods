@@ -173,3 +173,5 @@ Dược sư nheo mắt, gia nhập thảo luận:
 “Bổ! Tiếp tục bồi bổ cho nó! Bổ đến khi nguyên khí của nó dẻo dai đến mức có thể phát huy uy lực mới thôi! Trong Đại Khư của ta có rất nhiều kỳ trân dị thú, kỳ hoa dị thảo. Ta có thể nấu luyện linh đan diệu dược. Trong vườn thuốc ngoài thôn của ta, đủ loại linh dược cái gì cần có đều có! Đủ để bổ cho nó đến mức bóp da một cái cũng bóp ra được linh dịch!”
 
 “Dược sư, ngươi đây là chuẩn bị bỏ vốn gốc rồi đấy!” Mọi người nhao nhao cười nói.
+
+[Xem chương tiếp theo](chapter-0021.md)

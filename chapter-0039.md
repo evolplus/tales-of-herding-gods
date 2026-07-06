@@ -165,3 +165,5 @@ Hắn hiếu kỳ hỏi:
 Tư bà bà thản nhiên nói:
 
 "Nhiều nhất cũng chỉ mua được một tòa Tương Long thành thôi."
+
+[Xem chương tiếp theo](chapter-0040.md)

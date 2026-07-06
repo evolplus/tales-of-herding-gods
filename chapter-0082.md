@@ -161,3 +161,5 @@ Hắn không khỏi rùng mình. Phu nhân giáo chủ khoác lớp da Phó Vân
 Hắn quay đầu nhìn Tương Long thành. Nơi này đã đổi chủ, không còn là nơi hắn hay Diên Khang quốc có thể tung hoành nữa.
 
 Tòa thành này đã mang họ Tần. Cùng là họ Tần, nhưng đó là chữ Tần của Tần Mục, không phải chữ Tần của hắn.
+
+[Xem chương tiếp theo](chapter-0083.md)

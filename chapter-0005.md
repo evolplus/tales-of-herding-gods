@@ -141,3 +141,5 @@ Tần Mục đổi hướng chạy cuồng, thanh kiếm ấy cũng đột ngộ
 Thanh kiếm từ phía sau giết tới, con nai do Tần Mục biến thành gần như áp sát mặt đất mà rẽ ngoặt, mới miễn cưỡng né qua. Trong khoảnh khắc tránh được, cậu thoáng nhìn thấy trên chuôi kiếm có một sợi dây cực mảnh. Một đầu sợi dây nối với kiếm, đầu kia nằm trong tay nữ tử kia.
 
 Sợi dây ấy mảnh như tơ, khó mà nhận ra.
+
+[Xem chương tiếp theo](chapter-0006.md)

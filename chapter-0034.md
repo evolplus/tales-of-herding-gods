@@ -115,3 +115,5 @@ Tần Mục lập tức mang lò Cố Nguyên Đan tăng cường Thanh Long ngu
 Dược sư thầm nghĩ:
 
 “Ma viên là kẻ to xác, dù sao cũng không ăn chết được... chắc là không ăn chết. Cứ để nó đi. Có điều Cố Nguyên Đan lần này Mục nhi luyện, mỗi viên đều to bằng nắm tay. Ma viên thật sự ăn không chết sao?”
+
+[Xem chương tiếp theo](chapter-0035.md)

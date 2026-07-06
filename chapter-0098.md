@@ -207,3 +207,5 @@ Phong Tú Vân cười lạnh:
 "Ngươi vỗ mông ngựa vang bốp bốp, khiến ta khinh thường. Vải Bách Độc Kim Tàm Ti này quý giá vô cùng, mấy nghìn con kim tàm mới dệt ra được một cuộn vải như vậy, lại bị ngươi tặng cho Thiếu giáo chủ. Tơ do một con Bách Độc Kim Tàm Cổ nhả ra, giá trị đã gần bằng túi long tệ này rồi. Bộ y phục của công tử giá trị liên thành..."
 
 Cửa phòng trong mở ra. Tần Mục từ bên trong đi ra. Trước mắt hai người sáng lên. Người trong tiệm vải cũng đều nhìn sang, thầm khen đúng là một thiếu niên tuấn tú.
+
+[Xem chương tiếp theo](chapter-0099.md)

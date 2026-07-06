@@ -127,3 +127,5 @@ Phụ Nguyên Thanh chần chừ một chút, nốt thịt trên mặt run loạ
 "Ngươi đã bán đứng sư tôn của mình, ngươi quên rồi sao? Hơn nữa Thái hậu và sư tôn ngươi có chút dây dưa không rõ. Thái hậu thông tuệ, tất nhiên sẽ biết người giải độc là sư đệ ngươi. Ngươi nhất định sẽ đi tìm hắn, bà ấy chắc chắn đang đợi ngươi mắc câu, giết ngươi để báo thù cho mình, cũng là báo thù cho sư tôn ngươi."
 
 Phụ Nguyên Thanh đau cả đầu, đành gạt bỏ ý định này.
+
+[Xem chương tiếp theo](chapter-0126.md)

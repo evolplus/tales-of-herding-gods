@@ -167,3 +167,5 @@ Hư ảnh Tu Di Sơn kia bay tới trên không đỉnh núi bọn họ. Từng 
 Sắc mặt Tần Mục cổ quái:
 
 "Quan hệ giữa Thiên Thánh giáo ta và Đại Lôi Âm Tự hình như hơi căng..."
+
+[Xem chương tiếp theo](chapter-0201.md)

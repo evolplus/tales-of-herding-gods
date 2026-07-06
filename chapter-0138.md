@@ -155,3 +155,5 @@ Linh Ngọc Thư nhíu mày, cười lạnh một tiếng. Đan Dương Tử và
 Chú thích [1]: Trích từ ca quyết tu luyện "Mãn Đình Phương" của đạo gia Vương Xử Nhất. Bạn đọc có hứng thú có thể tìm xem, nói về trạng thái khi tu luyện.
 
 Chú thích [2]: Toán Kinh thập thiên, Đại Diễn Tổng Số Thuật và Tứ Nguyên Ngọc Giám đều là tác phẩm toán học cổ Trung Quốc. Tứ nguyên nghĩa là phương trình bốn ẩn. Phương trình, tìm nghiệm, vi tích phân sơ cấp đều có thể tìm thấy trong các toán kinh thời Tống và trước thời Tống.
+
+[Xem chương tiếp theo](chapter-0139.md)

@@ -119,3 +119,5 @@ Phó Khánh Doãn lộ vẻ kinh ngạc, vội trở về phòng lấy tỳ bà 
 Trong lúc nói chuyện, các cô gái đại bại, bị âm luật của Tần Mục điều khiển, tay múa chân nhảy trên mặt nước, vừa ca vừa múa, cười đến vô cùng ma mị.
 
 Phó Khánh Doãn liên tục lắc đầu. Tiếng tỳ bà vang lên, đè âm luật do Tần Mục dùng dòng nước diễn tấu xuống. Các cô gái lúc này mới tỉnh táo lại, vội vàng hành lễ với Phó Khánh Doãn, lui khỏi mặt hồ.
+
+[Xem chương tiếp theo](chapter-0112.md)

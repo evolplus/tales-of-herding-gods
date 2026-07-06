@@ -141,3 +141,5 @@ Cố Li Noãn vừa kinh vừa mừng.
 "Thần nhất định gan óc lầy đất, chết mới thôi!"
 
 Diên Phong Đế cầm bút, tiếp tục phê duyệt tấu chương, nói: "Ngươi không cần gan óc lầy đất. Nếu ngươi khiến trẫm thất vọng, trẫm chém đầu ngươi. Lui xuống đi."
+
+[Xem chương tiếp theo](chapter-0141.md)
