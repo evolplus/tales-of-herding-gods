@@ -4,7 +4,7 @@ Trước mặt họ, một con cự long cuộn quanh tòa cung điện nguy nga
 
 Đó là một bộ long cốt, một bộ xương rồng khổng lồ chỉ còn xương, không còn máu thịt. Riêng răng của nó đã cao hơn Tần Mục một chút!
 
-Dù cự long đã chết không biết bao lâu, vẫn có thể nhìn ra vẻ uy mãnh phi phàm của nó. Khi còn sống, hẳn nó là một tồn tại vô cùng mạnh mẽ.
+Dù cự long đã chết không biết bao lâu, vẫn có thể nhìn ra vẻ uy mãnh phi phàm của nó. Khi còn sống, hẳn nó là một sinh linh vô cùng mạnh mẽ.
 
 Tần Mục mở Thần Tiêu Thiên Nhãn nhìn tới. Trong mắt cậu, bộ long cốt ấy như sống lại, thần quang xông tận trời cao, cự long dường như uốn lượn bơi đi. Rõ ràng cự long đã chết, nhưng khí thế và khí khái ấy lại khiến cậu cảm thấy nó vẫn như còn sống!
 

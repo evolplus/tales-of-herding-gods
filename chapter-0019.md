@@ -186,7 +186,7 @@ Thôn trưởng thản nhiên nói:
 
 Thân thể Dược sư chấn động dữ dội, khó tin nhìn ông, thất thanh:
 
-“Ngang hàng với ngươi khi ở cảnh giới Linh Thai? Ngươi là tồn tại bậc nào? Nó sao có thể...”
+“Ngang hàng với ngươi khi ở cảnh giới Linh Thai? Ngươi là nhân vật bậc nào? Nó sao có thể...”
 
 “Nhưng nó cứ thế làm được.”
 

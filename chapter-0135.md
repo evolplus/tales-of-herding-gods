@@ -66,7 +66,7 @@ Thủ đoạn Lâm Hiên đạo tử dùng để đối phó Khuất Bình, đem
 
 "Nền tảng của Quốc sư Diên Khang vững chắc như ta, còn vững hơn Lâm Hiên đạo tử một chút!"
 
-Tần Mục kinh thán. Sao lại có tồn tại như vậy?
+Tần Mục kinh thán. Sao lại có nhân vật như vậy?
 
 Quả thực là một tôn thiên thần!
 

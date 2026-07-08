@@ -60,7 +60,7 @@ Con quái vật khổng lồ này vậy mà đang chậm rãi đứng lên. Vì 
 
 "Thuyền Mặt Trời cần Thái Dương Thủ khống chế mới có thể tiến lên. Trên Thuyền Mặt Trăng này lẽ nào cũng có Nguyệt Thủ? Nếu còn có Nguyệt Thủ trấn giữ nơi này, nói không chừng trên thuyền còn có tộc nhân của ta..."
 
-Tinh thần Tần Mục chấn động. Sau đó cậu thấy trong thần miếu của tòa thành gần Thuyền Mặt Trăng nhất có khói đen bốc lên như cột, hiển nhiên có tồn tại khủng bố đã phát giác động tĩnh ở đây.
+Tinh thần Tần Mục chấn động. Sau đó cậu thấy trong thần miếu của tòa thành gần Thuyền Mặt Trăng nhất có khói đen bốc lên như cột, hiển nhiên có thứ khủng bố đã phát giác động tĩnh ở đây.
 
 Tần Mục không nghĩ ngợi, lập tức lao ra khỏi cổng Phong Đô. Hai chân phát lực chạy như điên, phóng thẳng tới bên kia núi. Thâu Thiên Thần Thối của Lão què được cậu phát huy đến mức tinh diệu, như bóng sáng lướt qua, tốc độ cực nhanh!
 
@@ -112,7 +112,7 @@ Trong lòng Tần Mục chỉ có một ý nghĩ này. Bằng mọi giá, đánh
 
 Xuy xuy xuy. Bốn phía cậu truyền tới tiếng xé toạc da người. Những túi da trên người thôn dân lần lượt nổ tung, từng thân hình khôi ngô chen ra khỏi túi da. Người trong thôn này đều không phải người, mà là Thiên Ma chúng!
 
-Trẻ con, phụ nữ, thậm chí ngay cả con lợn kia cũng đều thay đổi hình thái, hóa thành thần thông giả của Thiên Ma chúng, trong đó thậm chí không thiếu tồn tại đã mở Thất Tinh Thần Tàng!
+Trẻ con, phụ nữ, thậm chí ngay cả con lợn kia cũng đều thay đổi hình thái, hóa thành thần thông giả của Thiên Ma chúng, trong đó thậm chí không thiếu kẻ đã mở Thất Tinh Thần Tàng!
 
 Chỉ có lão giả hút tẩu thuốc xương người kia vẫn ngồi ở cửa thôn, không hề biến đổi.
 

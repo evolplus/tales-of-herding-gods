@@ -162,7 +162,7 @@ Tần Phi Nguyệt ra lệnh. Một tướng sĩ lập tức lấy tù và ra, t
 
 Tần tướng quân cười lạnh:
 
-"Mộc Bi Phong chết trong tay lão mù vừa rồi. Đường đường là Thương Thần, bây giờ biến thành lão mù, vậy mà ẩn cư trong tiểu thôn này! Vậy những kẻ cùng ẩn cư với hắn sẽ là tồn tại khủng bố gì? Mạt tướng không san bằng được tiểu thôn này, chỉ có thể đi mời viện binh!"
+"Mộc Bi Phong chết trong tay lão mù vừa rồi. Đường đường là Thương Thần, bây giờ biến thành lão mù, vậy mà ẩn cư trong tiểu thôn này! Vậy những kẻ cùng ẩn cư với hắn sẽ là nhân vật khủng bố đến mức nào? Mạt tướng không san bằng được tiểu thôn này, chỉ có thể đi mời viện binh!"
 
 Giáp trụ trên người hắn rung lên loảng xoảng, ánh mắt như đao binh tranh phong:
 

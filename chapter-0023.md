@@ -108,7 +108,7 @@ Lão mù nói:
 
 Tần Mục bị tượng đá chấn nhiếp tâm hồn, không thể trả lời.
 
-“Người nói ra câu nghe như đại nghịch bất đạo này, chính là Quốc sư đương triều Diên Khang quốc ngoài Đại Khư, tồn tại được xưng là đệ nhất nhân dưới thần!”
+“Người nói ra câu nghe như đại nghịch bất đạo này, chính là Quốc sư đương triều Diên Khang quốc ngoài Đại Khư, nhân vật được xưng là đệ nhất nhân dưới thần!”
 
 Lão mù uy phong lẫm liệt, quát:
 

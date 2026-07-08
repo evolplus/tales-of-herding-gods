@@ -106,7 +106,7 @@ Cố Li Noãn còn sợ hãi hơn hắn, run giọng nói:
 
 Sắc mặt Tần Phi Nguyệt lúc sáng lúc tối:
 
-"Cái thôn nhỏ tầm thường ở Đại Khư này, vì sao lại tụ tập một đám lão yêu quái như vậy? Thần thương, Thiên Đao, Thần Thâu, Độc Vương... Trong thôn đó ngoài mấy người này ra, rốt cuộc còn có tồn tại đáng sợ nào nữa..."
+"Cái thôn nhỏ tầm thường ở Đại Khư này, vì sao lại tụ tập một đám lão yêu quái như vậy? Thần thương, Thiên Đao, Thần Thâu, Độc Vương... Trong thôn đó ngoài mấy người này ra, rốt cuộc còn có nhân vật đáng sợ nào nữa..."
 
 Hắn nhìn về phía địa lý đồ Dũng Giang. Tấm địa lý đồ hắn vất vả đo vẽ suốt dọc đường vẫn còn trên thuyền. Đám hung đồ cùng hung cực ác vừa rồi không hủy nó, khiến hắn thở phào.
 
@@ -124,7 +124,7 @@ Tần Phi Nguyệt chát giọng nói:
 
 "Họ khinh thường giết chúng ta, đại khái vì bản lĩnh của chúng ta quá thấp kém..."
 
-Trong lòng hắn đắng chát. Thân là đệ tử Quốc sư, hắn vẫn luôn tự đánh giá rất cao. Danh tiếng của hắn trong triều ngoài nội cũng cực kỳ vang dội. Không ngờ chỉ đi một chuyến trong Đại Khư đã gặp nhiều tồn tại mạnh mẽ như vậy, khiến sự tự phụ trước kia của hắn tan thành mây khói.
+Trong lòng hắn đắng chát. Thân là đệ tử Quốc sư, hắn vẫn luôn tự đánh giá rất cao. Danh tiếng của hắn trong triều ngoài nội cũng cực kỳ vang dội. Không ngờ chỉ đi một chuyến trong Đại Khư đã gặp nhiều nhân vật mạnh mẽ như vậy, khiến sự tự phụ trước kia của hắn tan thành mây khói.
 
 Ban đầu khi gặp Lão mù, hắn vẫn còn vài phần ngạo khí. Dù bị Lão mù chấn nhiếp, cốt khí ngạo nghễ vẫn còn. Nhưng tiếp đó hắn gặp Lão què thần xuất quỷ một, Dược sư âm hiểm độc ác, Đồ phu hung tàn thành tính. Ngạo khí trong lòng và ngạo cốt trên người đều bị đả kích đến sạch trơn, chỉ còn lại hoảng sợ.
 

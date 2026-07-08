@@ -76,7 +76,7 @@ Loại thứ tư là luồng khí màu trắng sữa lắng trong lò. Loại th
 
 Đại Lý thành là thành lớn nhất Nam Cương. Năm xưa nơi này cũng là một quốc gia, tôn sùng Phật pháp. Trong nước có lớn nhỏ ba nghìn sáu trăm ngôi chùa, vốn có danh xưng Nam phương Tiểu Tây Thiên, về sau bị Diên Khang thôn tính.
 
-Đạo Tuyền chân nhân hạ xuống trước La Quang Tự khí phái huy hoàng nhất trong thành, nhanh chân đi vào chùa. Trong chùa, hơn mười vị tồn tại cấp giáo chủ đều đứng dậy.
+Đạo Tuyền chân nhân hạ xuống trước La Quang Tự khí phái huy hoàng nhất trong thành, nhanh chân đi vào chùa. Trong chùa, hơn mười vị cường giả cấp giáo chủ đều đứng dậy.
 
 "Đạo Tuyền chân nhân tới rồi!"
 

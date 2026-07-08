@@ -8,7 +8,7 @@ Cô vẫn như trước kia, dùng tóc mai bên má khiến gương mặt mình
 
 Tần Mục ngẩn ra. Đi theo cô gái này tới Diên Khang quốc sao?
 
-Cậu đúng là rất muốn đi khỏi Đại Khư, ra ngoài rèn luyện một phen. Đại Khư quá nguy hiểm, cậu hiện giờ căn bản không có thực lực thăm dò Đại Khư. Ngay cả tồn tại như Thôn trưởng cũng chưa từng đi khắp Đại Khư.
+Cậu đúng là rất muốn đi khỏi Đại Khư, ra ngoài rèn luyện một phen. Đại Khư quá nguy hiểm, cậu hiện giờ căn bản không có thực lực thăm dò Đại Khư. Ngay cả bậc như Thôn trưởng cũng chưa từng đi khắp Đại Khư.
 
 Cậu hiện tại cần rèn luyện.
 

@@ -18,7 +18,7 @@ Quốc sư Diên Khang lộ nụ cười vui mừng, thấp giọng lẩm bẩm:
 
 Tần Mục tò mò nhìn ông, đột nhiên nghĩ nếu lúc này mình dùng Thanh Tiêu Thiên Nhãn nhìn Quốc sư Diên Khang, có bị ông đánh chết không?
 
-Hắn rất muốn xem Quốc sư Diên Khang và Thôn trưởng có phải là cùng một loại tồn tại hay không.
+Hắn rất muốn xem Quốc sư Diên Khang và Thôn trưởng có phải là cùng một kiểu nhân vật hay không.
 
 Đương nhiên, Quốc sư Diên Khang khiến hắn nhìn không thấu. Tu vi của người này khiến hắn nhìn không thấu, tâm tính cũng nhìn không thấu. Trên người ông có rất nhiều chỗ nhìn như mâu thuẫn.
 

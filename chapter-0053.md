@@ -158,7 +158,7 @@ Chấp pháp trưởng lão nghi hoặc:
 
 Thiếu niên Tổ sư cười híp mắt:
 
-"Những cường giả bên cạnh nó cực kỳ đáng sợ. Năm xưa những cường giả này đều là tồn tại khuấy gió gọi mây, ai nấy có sở trường riêng! Thiếu niên này là đứa trẻ của bọn họ. Bọn họ truyền hết sở học, sở ngộ cả đời cho nó, lại thêm Đại Dục Thiên Ma Kinh của giáo ta. Hắc hắc, nếu nó thành Thánh giáo chủ của giáo ta, Thánh giáo ta lời lớn rồi!"
+"Những cường giả bên cạnh nó cực kỳ đáng sợ. Năm xưa những cường giả này đều là nhân vật khuấy gió gọi mây, ai nấy có sở trường riêng! Thiếu niên này là đứa trẻ của bọn họ. Bọn họ truyền hết sở học, sở ngộ cả đời cho nó, lại thêm Đại Dục Thiên Ma Kinh của giáo ta. Hắc hắc, nếu nó thành Thánh giáo chủ của giáo ta, Thánh giáo ta lời lớn rồi!"
 
 Chấp pháp trưởng lão thán phục:
 

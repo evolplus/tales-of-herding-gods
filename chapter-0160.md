@@ -8,7 +8,7 @@ Trâu xanh dốc toàn lực chạy, cách ngọn núi kia càng lúc càng gầ
 
 Đợi tới khi tới gần hơn, chỉ thấy trong những đạo kim quang kia có thêm rất nhiều thứ. Đó là thần thông của Vu Vương. Có kim quang giấu từng thanh loan đao, có kim quang có từng kim nhân, có kim quang lại có kim long cuộn mình.
 
-Thực lực Vu Vương kinh người. Chỉ tu luyện tới cảnh giới Thiên Nhân mới có thể được gọi là Vu Vương, nhưng Lâu Lan Hoàng Kim Cung rốt cuộc là thánh địa Tái ngoại. Những Vu Vương tới truy sát Bá Sơn tế tửu phần lớn là cảnh giới Sinh Tử, thậm chí còn có một tồn tại cấp giáo chủ cảnh giới Thần Kiều, khí thế hùng vĩ.
+Thực lực Vu Vương kinh người. Chỉ tu luyện tới cảnh giới Thiên Nhân mới có thể được gọi là Vu Vương, nhưng Lâu Lan Hoàng Kim Cung rốt cuộc là thánh địa Tái ngoại. Những Vu Vương tới truy sát Bá Sơn tế tửu phần lớn là cảnh giới Sinh Tử, thậm chí còn có một cường giả cấp giáo chủ cảnh giới Thần Kiều, khí thế hùng vĩ.
 
 Trâu xanh chạy tới khi cách ngọn núi kia chỉ khoảng mười dặm. Tần Mục nhìn lại, chỉ thấy tám góc đông, nam, tây, bắc, đông nam, tây nam, đông bắc, tây bắc của ngọn núi, trên không mỗi nơi có một vị Vu Vương.
 
@@ -44,7 +44,7 @@ Hắn không nhìn ra là loại nào.
 
 Một tiếng kinh hô truyền tới. Trên trời có một cái đầu người lăn xuống, còn có một Vu Vương cánh chim không đầu đang vỗ cánh giữa không trung, máu vàng vẩy khắp nơi. Đó chính là Vu Vương phía bắc đầu người thân chim.
 
-Trong các Vu Vương có mặt, chỉ riêng hắn là tồn tại cấp giáo chủ cảnh giới Thần Kiều, kết quả bị Đồ phu đánh lén, áp sát một đao chém giết.
+Trong các Vu Vương có mặt, chỉ riêng hắn là cường giả cấp giáo chủ cảnh giới Thần Kiều, kết quả bị Đồ phu đánh lén, áp sát một đao chém giết.
 
 Đồ phu thuộc lưu phái chiến kỹ, bị ông áp sát, kết cục có thể nghĩ.
 
@@ -116,7 +116,7 @@ Chiến kỹ lưu mạnh ở nhục thân, mà cường giả chiến kỹ lưu 
 
 Bọn họ không cần cố ý thi triển thần thông, nhất cử nhất động chính là thần thông.
 
-Hiển nhiên lão giả chỉ có nửa thân trên này chính là tồn tại như vậy.
+Hiển nhiên lão giả chỉ có nửa thân trên này chính là nhân vật như vậy.
 
 Đồ phu hít đầy một hơi. Mây gần bọn họ gần như bị ông hút sạch, sau đó ông thổi một hơi ra.
 
@@ -128,7 +128,7 @@ Phía trước bọn họ, nước hồ khô cạn. Ngay cả xương trắng tr
 
 Tần Mục mở thiên nhãn nhìn, lớp lụa mỏng bao phủ mặt hồ kia cũng bị một hơi của Đồ phu thổi mất bóng, không biết bay tới nơi nào.
 
-Cao thủ đỉnh cao nhất của lưu phái chiến kỹ không biết pháp thuật thần thông thay đổi địa lý, nhưng tồn tại như vậy có nhục thân mạnh mẽ vô song. Thay đổi địa lý, thay đổi thời tiết, cần gì tới pháp thuật thần thông?
+Cao thủ đỉnh cao nhất của lưu phái chiến kỹ không biết pháp thuật thần thông thay đổi địa lý, nhưng nhân vật như vậy có nhục thân mạnh mẽ vô song. Thay đổi địa lý, thay đổi thời tiết, cần gì tới pháp thuật thần thông?
 
 "Nếu có thể sở hữu nhục thân của lưu phái chiến kỹ, kiếm thuật của lưu phái ngự kiếm, thần thông của lưu phái pháp thuật, chẳng phải là vô địch sao?"
 

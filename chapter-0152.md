@@ -120,7 +120,7 @@ Vì vậy Bá Sơn tế tửu được thảo nguyên tôn là Võ Hoàng Đế.
 
 Còn năm đó Đồ phu cũng đã trải qua cả trăm trận lớn nhỏ, đánh toàn bộ thế hệ trước của Lâu Lan Hoàng Kim Cung một trận, đạt được mỹ danh Thiên Khả Hãn Thiên Hoàng Đế.
 
-Bá Sơn tế tửu dẫn bọn họ đi tới trước sơn môn, chỉ thấy rất nhiều đại vu đã chờ ở đó. Còn có vài người là cường giả trên thảo nguyên, không phải đệ tử Hoàng Kim Cung, cũng canh giữ ở đó. Hẳn là những tồn tại lừng lẫy trên thảo nguyên, nghe tin mà tới.
+Bá Sơn tế tửu dẫn bọn họ đi tới trước sơn môn, chỉ thấy rất nhiều đại vu đã chờ ở đó. Còn có vài người là cường giả trên thảo nguyên, không phải đệ tử Hoàng Kim Cung, cũng canh giữ ở đó. Hẳn là những nhân vật lừng lẫy trên thảo nguyên, nghe tin mà tới.
 
 "Ngưu Ngưu!" Bá Sơn tế tửu quát một tiếng.
 

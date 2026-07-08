@@ -126,7 +126,7 @@ Tần Mục ngẩn ra. Điều Quốc sư phải đối mặt là có nên phủ
 
 Tiểu học, đại học và Thái học, ở phương diện bồi dưỡng nhân tài đại trà, hơn môn phái quá nhiều. Chỉ cần giải quyết được vấn đề bồi dưỡng thiên tài này, sẽ có thể vượt qua môn phái toàn diện!
 
-"Hoàng đế dạy thái tử thế nào? Khi thái tử còn nhỏ có Thái tử Thiếu bảo, Thái tử Thiếu sư, Thái tử Thiếu phó. Lớn lên có Thái tử Thái bảo, Thái tử Thái sư, Thái tử Thái phó. Những Thiếu bảo, Thái bảo này đều là tồn tại cấp giáo chủ, môn chủ. Cho nên thái tử được bồi dưỡng như vậy, thực lực cực mạnh. Bây giờ ta thử dẫn mấy sĩ tử, truyền dạy công pháp thần thông cho họ, dạy theo tài năng."
+"Hoàng đế dạy thái tử thế nào? Khi thái tử còn nhỏ có Thái tử Thiếu bảo, Thái tử Thiếu sư, Thái tử Thiếu phó. Lớn lên có Thái tử Thái bảo, Thái tử Thái sư, Thái tử Thái phó. Những Thiếu bảo, Thái bảo này đều là cường giả cấp giáo chủ, môn chủ. Cho nên thái tử được bồi dưỡng như vậy, thực lực cực mạnh. Bây giờ ta thử dẫn mấy sĩ tử, truyền dạy công pháp thần thông cho họ, dạy theo tài năng."
 
 Bá Sơn Tế Tửu nói: "Ý Đại tế tửu là, đợi ta tìm ra khiếu môn rồi thì có thể mở rộng ra. Đại tế tửu nói, phải chọn ra những người bác học đa tài trong sĩ tử để tế tửu chuyên môn dạy dỗ, tách riêng khỏi sĩ tử tư chất bình thường. Sư đệ, ngươi chính là Thái học bác sĩ đầu tiên của Thái Học Viện ta, Tần bác sĩ." [1]
 

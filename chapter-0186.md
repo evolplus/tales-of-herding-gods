@@ -98,7 +98,7 @@ Giờ phút này trong Thiên Ba thành khắp nơi đều là quân mã phản 
 
 Lâm thống lĩnh dẫn bọn họ tới Thiên Ba thành, nói:
 
-"Trấn thủ nơi này là một tồn tại cấp giáo chủ, Long Vương của Ngự Long Môn! Các ngươi từng nghe qua chứ? Bản lĩnh của Long Vương tuy không quá cao, nhưng ông ấy nuôi một con giao long. Con giao long này mới lợi hại, chém giết cường giả cảnh giới Sinh Tử cũng không thành vấn đề. Ồ, phía trước chính là công tử của Long Vương, Long Kiều Nam."
+"Trấn thủ nơi này là một cường giả cấp giáo chủ, Long Vương của Ngự Long Môn! Các ngươi từng nghe qua chứ? Bản lĩnh của Long Vương tuy không quá cao, nhưng ông ấy nuôi một con giao long. Con giao long này mới lợi hại, chém giết cường giả cảnh giới Sinh Tử cũng không thành vấn đề. Ồ, phía trước chính là công tử của Long Vương, Long Kiều Nam."
 
 Thủ tướng ở cổng Thiên Ba thành là một nam tử yêu diễm mặc áo choàng hoa lá sặc sỡ, tô son điểm phấn, trên mặt trang điểm đậm, cực kỳ bắt mắt. Đó chính là thiếu môn chủ Ngự Long Môn, Long Kiều Nam.
 
@@ -188,7 +188,7 @@ Thẩm Vạn Vân và những người khác kinh ngạc. Ngôn ngữ truyền r
 
 Từng phù văn trên người tượng Ma Thần sáng lên. Đồng thời điều khiển mười ba phù bảo, cần ghi nhớ hơn một nghìn loại phù văn và vị trí phù văn. Tần Mục tuy còn chưa hoàn toàn học xong Thái Huyền Toán Kinh, nhưng năng lực ghi nhớ đã tiến bộ rất nhiều, điều khiển cũng ung dung thong thả.
 
-Nửa canh giờ trôi qua, phù văn trên người tượng Ma Thần này đã được hắn thắp sáng hơn phân nửa. Cùng lúc đó, hắn niệm tụng ma ngữ, chỉ cảm thấy mình thông qua pho tượng này, dần dần thiết lập liên hệ với một tồn tại nào đó trong thế giới hắc ám sâu trong thời không.
+Nửa canh giờ trôi qua, phù văn trên người tượng Ma Thần này đã được hắn thắp sáng hơn phân nửa. Cùng lúc đó, hắn niệm tụng ma ngữ, chỉ cảm thấy mình thông qua pho tượng này, dần dần thiết lập liên hệ với một sinh linh nào đó trong thế giới hắc ám sâu trong thời không.
 
 Đúng lúc này, hơn mười đạo nhân mang theo một tượng Ma Thần khác chạy tới Thiên Ba thành. Lâm thống lĩnh thấy hơn mười đạo nhân này, vội nghênh đón, cười nói:
 

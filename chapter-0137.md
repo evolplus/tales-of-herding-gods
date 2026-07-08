@@ -22,7 +22,7 @@ Lúc này trên núi không có người khác. Ngay cả những tế tửu, Qu
 
 Thiếu niên tổ sư cười nói: "Quốc sư giảng pháp, ngươi có cảm tưởng gì?"
 
-Tần Mục tán thán: "Quốc sư là tồn tại như thiên thần, nghĩ điều người ta không dám nghĩ, làm điều người ta không dám làm, quả thật vô song."
+Tần Mục tán thán: "Quốc sư là nhân vật như thiên thần, nghĩ điều người ta không dám nghĩ, làm điều người ta không dám làm, quả thật vô song."
 
 Thiếu niên tổ sư cất bước đi xuống núi, nói: "Kiếm pháp Quốc sư dạy, ngươi học thế nào?"
 

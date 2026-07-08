@@ -18,7 +18,7 @@ Trước sơn môn Thái Học Viện, Bá Sơn Tế Tửu đứng đó chờ. Q
 
 "Thất muội, muội đi theo Bá Sơn Tế Tửu tu hành, chắc chắn tốt hơn ở trong Thái Học Viện."
 
-Linh Ngọc Thư cười nói: "Bá Sơn Tế Tửu là tồn tại cấp giáo chủ, vượt xa các Quốc tử giám khác không biết bao nhiêu lần. Ta cũng hâm mộ không thôi, hận không thể làm đệ tử tế tửu. Muội đừng do dự nữa! Muội là muội ruột của ta, cùng một bào thai sinh ra, ta há có thể hại muội?"
+Linh Ngọc Thư cười nói: "Bá Sơn Tế Tửu là cường giả cấp giáo chủ, vượt xa các Quốc tử giám khác không biết bao nhiêu lần. Ta cũng hâm mộ không thôi, hận không thể làm đệ tử tế tửu. Muội đừng do dự nữa! Muội là muội ruột của ta, cùng một bào thai sinh ra, ta há có thể hại muội?"
 
 Bên cạnh sơn môn, một con trâu xanh lớn cường tráng đứng như người, đang trêu ghẹo con Long Kỳ Lân giữ sơn môn kia. Lúc thì nó nhổ một sợi râu rồng, lúc thì sờ đuôi kỳ lân.
 

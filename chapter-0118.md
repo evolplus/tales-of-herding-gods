@@ -76,7 +76,7 @@ Diên Phong Đế cười nói: "Sĩ tử tiểu học đánh bay Quốc tử gi
 
 Tần Mục bước lên trước một bước, ngẩng đầu, trực diện hoàng đế, thầm nghĩ: "Đây chính là hoàng đế đương triều Diên Khang quốc, Diên Phong Đế?"
 
-Diên Phong Đế có chút khác với tưởng tượng của cậu. Trong tưởng tượng của cậu, Diên Phong Đế hẳn là tồn tại anh minh thần võ, uy phong lẫm liệt như thiên thần. Nhưng vị Diên Phong Đế này lại hơi hiền hòa, mặc hoàng long bào, thắt đai lưng đỏ khảm vàng ngọc, mặt hơi mập, giữa hai mày rất rộng, sống mũi cao thẳng, để bốn vệt râu chữ bát.
+Diên Phong Đế có chút khác với tưởng tượng của cậu. Trong tưởng tượng của cậu, Diên Phong Đế hẳn là một nhân vật anh minh thần võ, uy phong lẫm liệt như thiên thần. Nhưng vị Diên Phong Đế này lại hơi hiền hòa, mặc hoàng long bào, thắt đai lưng đỏ khảm vàng ngọc, mặt hơi mập, giữa hai mày rất rộng, sống mũi cao thẳng, để bốn vệt râu chữ bát.
 
 Râu của ông, môi trên mọc hai vệt, môi dưới cũng mọc hai vệt, ngắn hơn môi trên nhiều, nhưng không hề đột ngột. Hẳn thường có người giúp ông tu sửa râu, chỉnh tề không rối, trông rất có phong vị.
 

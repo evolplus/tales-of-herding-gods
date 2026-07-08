@@ -8,7 +8,7 @@ Tần Mục thở phào, mở cửa phòng, ngẩng đầu nhìn lên trời. Ch
 
 Hắn thật sự hơi lo lắng.
 
-Kẻ vừa đi qua hẳn là cường giả Lâu Lan Hoàng Kim Cung, tồn tại cấp độ Vu Vương. Hắn tìm kiếm suốt dọc đường, trâu xanh không để lại dấu vết, mà thôn này lại ẩn trong rừng núi, trong thôn đều là người già, ngủ sớm không thắp đèn, cho nên vị Vu Vương này không phát hiện thôn nhỏ.
+Kẻ vừa đi qua hẳn là cường giả Lâu Lan Hoàng Kim Cung cấp độ Vu Vương. Hắn tìm kiếm suốt dọc đường, trâu xanh không để lại dấu vết, mà thôn này lại ẩn trong rừng núi, trong thôn đều là người già, ngủ sớm không thắp đèn, cho nên vị Vu Vương này không phát hiện thôn nhỏ.
 
 Nhưng vị Vu Vương này bay dọc đường tìm bọn họ, chứng tỏ Bá Sơn tế tửu không chặn được hắn. Rất có thể Bá Sơn tế tửu đã bị thương, hoặc rơi vào vòng vây.
 

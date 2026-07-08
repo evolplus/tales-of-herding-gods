@@ -140,7 +140,7 @@ Cự xà dưới chân nàng phun yêu khí, bay lên không, đuổi theo Tần
 
 Giữa không trung, hai người nhìn thấy cảnh tượng Thiên Ba thành, trong lòng hoảng sợ. Chỉ thấy tòa thành xây trên quần sơn kia đã bị phá hủy hoàn toàn, thay thế nó là một tế đàn dựng bằng máu và xương!
 
-Đô Thiên Ma Vương đứng trên tế đàn, đang hạ sát thủ với hai người. Một người là Long Vương của Ngự Long Môn, dẫn theo con giao long kia. Người còn lại là tồn tại cấp giáo chủ cảnh giới Thần Kiều.
+Đô Thiên Ma Vương đứng trên tế đàn, đang hạ sát thủ với hai người. Một người là Long Vương của Ngự Long Môn, dẫn theo con giao long kia. Người còn lại là cường giả cấp giáo chủ cảnh giới Thần Kiều.
 
 Hai người này nguy như chỉ mành treo chuông, bất cứ lúc nào cũng có thể bị Đô Thiên Ma Vương giết chết. Trong miệng Đô Thiên Ma Vương truyền ra ma ngữ, còn tối nghĩa thâm sâu hơn thứ ma ngữ Tần Mục dùng khi triệu hoán hắn!
 

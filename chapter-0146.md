@@ -94,7 +94,7 @@ Kiếm pháp hai người quấn lấy nhau, mỗi bên biến hóa, thi triển
 
 Kiếm pháp của Vệ Dung đã cực kỳ đáng gờm. Hắn xuất thân từ Vệ gia Giang Lăng. Vệ gia có một vị cao nhân lớn, chính là nhất phẩm đại viên đương triều, Vệ Quốc Công.
 
-Vệ Quốc Công là tồn tại cấp giáo chủ, chiến công hiển hách. Ông từng một trận diệt một nước, diệt Thiên Dư quốc ở Bắc Cương, khiến toàn bộ Thiên Dư quốc nhập vào bản đồ Diên Khang, vì thế được phong làm Quốc Công.
+Vệ Quốc Công là cường giả cấp giáo chủ, chiến công hiển hách. Ông từng một trận diệt một nước, diệt Thiên Dư quốc ở Bắc Cương, khiến toàn bộ Thiên Dư quốc nhập vào bản đồ Diên Khang, vì thế được phong làm Quốc Công.
 
 Địa vị của Vệ Dung trong Vệ gia không cao, nhưng từ nhỏ đã chăm chỉ khổ luyện. Gia học Vệ gia tinh thâm, bản lĩnh của hắn trong con cháu Vệ gia cũng thuộc hàng nổi bật.
 

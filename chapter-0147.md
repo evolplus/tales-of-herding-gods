@@ -10,7 +10,7 @@ Hoàng tử công chúa là con cái của hoàng đế, quận chúa thế tử
 
 "Không bằng đi hỏi ý kiến Nhị hoàng tử."
 
-Ông quyết định như vậy, tới hỏi Nhị hoàng tử. Linh Ngọc Thư vừa kinh ngạc vừa vui mừng. Bá Sơn là Quốc tử tế tửu, địa vị trong Thái Học Viện chỉ dưới Đại tế tửu, thực lực sâu không lường được, hoàn toàn không thua nhất phẩm đại thần trong triều, không thua môn chủ, giáo chủ, tông chủ các đại phái, là tồn tại đỉnh cao trong thiên hạ hiện nay.
+Ông quyết định như vậy, tới hỏi Nhị hoàng tử. Linh Ngọc Thư vừa kinh ngạc vừa vui mừng. Bá Sơn là Quốc tử tế tửu, địa vị trong Thái Học Viện chỉ dưới Đại tế tửu, thực lực sâu không lường được, hoàn toàn không thua nhất phẩm đại thần trong triều, không thua môn chủ, giáo chủ, tông chủ các đại phái, là nhân vật đỉnh cao trong thiên hạ hiện nay.
 
 Nếu có thể được ông dạy dỗ, đương nhiên là chuyện tốt!
 
@@ -28,7 +28,7 @@ Hoàng thái tử không chỉ được truyền thụ đủ loại tuyệt họ
 
 Các hoàng tử và công chúa khác dù có lòng nhòm ngó ngôi hoàng đế, cũng căn bản không có năng lực cạnh tranh này.
 
-Bản lĩnh của Bá Sơn Tế Tửu tương đương tồn tại cấp giáo chủ. Được ông chỉ điểm, tuy không sánh bằng cảnh ngộ của hoàng thái tử, nhưng cũng tốt hơn rất nhiều.
+Bản lĩnh của Bá Sơn Tế Tửu tương đương cường giả cấp giáo chủ. Được ông chỉ điểm, tuy không sánh bằng cảnh ngộ của hoàng thái tử, nhưng cũng tốt hơn rất nhiều.
 
 Chỉ là Bá Sơn Tế Tửu vậy mà chỉ dạy sĩ tử cảnh giới Linh Thai và Ngũ Diệu, tự nhiên hắn không có phần.
 

@@ -76,7 +76,7 @@ Tần Mục lộ vẻ nghi hoặc, nhìn quanh bốn phía. Nơi này vốn khô
 
 Chốn núi hoang rừng vắng này ít dấu chân người. Đã không phải người câu cá, vậy chỉ có thể là người chặn đường!
 
-Lại thêm con hươu đực hoa mai hùng tráng không kém Long Kỳ Lân kia, thân phận của lão giả này chỉ e sẽ là tồn tại cùng thời đại với thiếu niên Tổ sư và những người khác!
+Lại thêm con hươu đực hoa mai hùng tráng không kém Long Kỳ Lân kia, thân phận của lão giả này chỉ e sẽ là nhân vật cùng thời đại với thiếu niên Tổ sư và những người khác!
 
 Thẩm Vạn Vân và Tư Vân Hương cũng nhìn ra đầu mối, mỗi người đều nhìn về phía Quốc sư Diên Khang. Hòa thượng Vân Khuyết lại không nghĩ nhiều như vậy, bước lên chào hỏi, cười nói:
 
@@ -124,7 +124,7 @@ Quốc sư Diên Khang thản nhiên nói:
 
 "Ta không cần. Những năm đầu ta hỏa khí lớn, giết người quá nhiều, khiến rất nhiều môn phái bị diệt môn, đến mức công pháp độc môn của rất nhiều môn phái thất truyền. Sau khi lập Thiên Lục Lâu, ta thường hối hận vì chuyện này. Cho nên từ sau đó, mỗi lần ta giết người đều quen hỏi một câu."
 
-Tần Mục tuy muốn ở lại, xem trận chiến hiếm gặp này, nhưng tồn tại ở cấp bậc Quốc sư Diên Khang giao thủ, chỉ e dao động sẽ còn kịch liệt hơn Đô Thiên Ma Vương. Đứng gần như vậy quan chiến, chỉ có một con đường chết.
+Tần Mục tuy muốn ở lại, xem trận chiến hiếm gặp này, nhưng nhân vật ở cấp bậc Quốc sư Diên Khang giao thủ, chỉ e dao động sẽ còn kịch liệt hơn Đô Thiên Ma Vương. Đứng gần như vậy quan chiến, chỉ có một con đường chết.
 
 "Chúng ta vượt núi!" Tần Mục trầm giọng nói.
 

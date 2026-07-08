@@ -82,7 +82,7 @@ Tần Mục thất thanh:
 
 "Sống mười tám đời? Thọ nguyên vạn năm? Sao có thể?"
 
-"Sao lại không thể? Con ở Đại Khư hẳn từng gặp thần ma sống không chỉ vạn năm rồi chứ? Thật ra thế gian này còn có một số thứ đáng sợ, chỉ là bây giờ con còn nhỏ, chưa tiếp xúc được những tồn tại như vậy."
+"Sao lại không thể? Con ở Đại Khư hẳn từng gặp thần ma sống không chỉ vạn năm rồi chứ? Thật ra thế gian này còn có một số thứ đáng sợ, chỉ là bây giờ con còn nhỏ, chưa tiếp xúc được những thứ như vậy."
 
 Đồ phu nói:
 
@@ -90,7 +90,7 @@ Tần Mục thất thanh:
 
 Lão mù gật đầu:
 
-"Quả thật có một số tồn tại đáng sợ. Ví dụ như mắt của ta..."
+"Quả thật có một số thứ đáng sợ. Ví dụ như mắt của ta..."
 
 Ông lắc đầu, không nói thêm.
 

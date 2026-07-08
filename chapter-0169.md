@@ -88,7 +88,7 @@ Lòng Lục Thiên Vương nảy lên:
 
 Sư Thiên Vương trầm giọng nói:
 
-"Đại quan nhất phẩm trong triều đình đều là tồn tại cấp giáo chủ. Đạo môn, Đại Lôi Âm Tự cũng không thiếu cao thủ đỉnh tiêm như vậy. Các tông phái khác, thế gia khác cũng có cao thủ ẩn giấu. Kẻ nhìn chằm chằm Thiên Thánh giáo ta rất nhiều, đều cho rằng bốn mươi năm nay Thiên Thánh giáo ta sa sút. Ai chẳng muốn thừa dịp giáo ta suy yếu mà cắn một miếng thịt? Mấu chốt là, kẻ địch là ai?"
+"Đại quan nhất phẩm trong triều đình đều là cường giả cấp giáo chủ. Đạo môn, Đại Lôi Âm Tự cũng không thiếu cao thủ đỉnh tiêm như vậy. Các tông phái khác, thế gia khác cũng có cao thủ ẩn giấu. Kẻ nhìn chằm chằm Thiên Thánh giáo ta rất nhiều, đều cho rằng bốn mươi năm nay Thiên Thánh giáo ta sa sút. Ai chẳng muốn thừa dịp giáo ta suy yếu mà cắn một miếng thịt? Mấu chốt là, kẻ địch là ai?"
 
 Mọi người im lặng.
 

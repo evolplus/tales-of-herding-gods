@@ -66,7 +66,7 @@ Hắn đi về phía trước, nhìn từng kim đàn một. Hắn nhất địn
 
 Bảo vật trên kim đàn mỗi thứ một khác. Rất nhiều thứ đều là bảo vật độc hữu của Lâu Lan Hoàng Kim Cung, luyện chế vô cùng kỳ quái: có kẻ lột da người làm tranh, viết phù văn lên đó; có kẻ dùng xương sọ người làm bát; còn có trống làm bằng da người, cùng Bạch Cốt Phiên, Thiên Độc Phệ Hồn Phiên, Bạch Cốt Thần Khám, đều là pháp khí tà ma ngoại đạo.
 
-Nhưng ngoài những thứ đó, cũng có không ít đồ tốt, vàng rực chói mắt, giống như bảo vật do tồn tại cấp độ Vu Vương luyện chế.
+Nhưng ngoài những thứ đó, cũng có không ít đồ tốt, vàng rực chói mắt, giống như bảo vật do cường giả cấp độ Vu Vương luyện chế.
 
 Tần Mục còn thấy một số bảo vật không thuộc vu giáo cũng được đặt ở đây. Có Thiên Tràng Tháp, xá lợi tử, hẳn là trọng bảo Phật môn; còn có một viên kiếm hoàn lớn bằng quả nho, một cây cổ cầm bị cháy xém một đầu, một thanh tàn kiếm.
 

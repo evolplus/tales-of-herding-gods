@@ -56,7 +56,7 @@ Mấy trăm quái nhân này đứng thành một vòng quanh ngọn núi trong 
 
 Soạt...
 
-Mấy trăm lá đại kỳ phất động. Đợi mặt cờ lướt qua, ngọn núi phía sau mặt cờ, cùng những tồn tại cấp giáo chủ trên núi, bao gồm cả Quốc sư Diên Khang, đều bị truyền đi!
+Mấy trăm lá đại kỳ phất động. Đợi mặt cờ lướt qua, ngọn núi phía sau mặt cờ, cùng những cường giả cấp giáo chủ trên núi, bao gồm cả Quốc sư Diên Khang, đều bị truyền đi!
 
 Nơi vốn là ngọn núi chỉ còn lại một mảnh đất trắng. Trên mặt đất là phủ thành chủ bị đè nát!
 
@@ -172,11 +172,11 @@ Hòa thượng Vân Khuyết thở phào, la lên:
 
 Tần Mục cười ha hả, không nói gì. Sắc mặt Vân Khuyết như màu đất.
 
-Tần Mục đi tới bên vách núi, nhìn về một ngọn núi khác. Nơi đó chính là chiến trường của Quốc sư Diên Khang và hơn mười vị tồn tại cấp giáo chủ kia, cách đây hơn mười dặm.
+Tần Mục đi tới bên vách núi, nhìn về một ngọn núi khác. Nơi đó chính là chiến trường của Quốc sư Diên Khang và hơn mười vị cường giả cấp giáo chủ kia, cách đây hơn mười dặm.
 
 Thiên Lao phong cấm do nam tử mặt nạ đồng xanh và mọi người bố trí đã bị đánh thủng, xuất hiện từng lỗ thủng. Thỉnh thoảng có phong bạo khủng bố truyền ra từ những lỗ thủng ấy, cuồng phong gào thét, thổi bay từng mảng rừng, cuốn vô số cây cối lên giữa không trung, xé nát thành vụn.
 
-Trận chiến trên đỉnh núi kia quá khủng bố. Đó là sinh tử chém giết giữa các tồn tại cấp giáo chủ. Cách xa như vậy, cách một tầng Thiên Lao phong cấm, vẫn có thể cảm nhận được từng luồng rung động đáng sợ.
+Trận chiến trên đỉnh núi kia quá khủng bố. Đó là sinh tử chém giết giữa các cường giả cấp giáo chủ. Cách xa như vậy, cách một tầng Thiên Lao phong cấm, vẫn có thể cảm nhận được từng luồng rung động đáng sợ.
 
 Vù...
 
@@ -190,7 +190,7 @@ Cách xa như vậy, vận dụng Thần Tiêu Thiên Nhãn, Thanh Tiêu Thiên 
 
 Tần Mục chỉ có thể căn cứ vào quỹ tích hình thành khi các cường giả này di chuyển để phán đoán trên núi còn mấy người.
 
-"Lại có một tồn tại cấp giáo chủ ngã xuống." Trong lòng Tần Mục chấn động.
+"Lại có một cường giả cấp giáo chủ ngã xuống." Trong lòng Tần Mục chấn động.
 
 Việt Thanh Hồng nhìn quanh bốn phía, chỉ thấy những cường giả Thiên Ma giáo này đều lặng lẽ đứng trên đỉnh núi, nhìn về trận chiến nơi xa, hoàn toàn không có ý đứng dậy đi trợ giúp. Nàng khó hiểu nói:
 

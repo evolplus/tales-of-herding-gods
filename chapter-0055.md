@@ -12,7 +12,7 @@ Tần Mục lắc đầu:
 
 Nữ tử kia cười:
 
-"Sao lại không được? Nguyên khí chính là pháp lực. Biết pháp thuật là có thể làm phép. Phu nhân giáo chủ là tồn tại đứng đầu về pháp thuật của giáo ta, bà ấy không dạy ngươi sao? Khi ta còn ở cảnh giới Linh Thai, ta đã bắt đầu hành tẩu giang hồ, làm phép cầu mưa cho bá tánh. Hễ gặp hạn hán, bá tánh lại mời ta tới, cho nên họ gọi ta là vu nữ. Sau này tu vi cao hơn, danh tiếng lớn hơn, mới được gọi là Tiểu Vũ Sư. Nhờ giáo chủ coi trọng, phong ta làm đường chủ Vũ đường. Có điều so với phu nhân giáo chủ, ta vẫn kém rất xa. Năm đó bà ấy được chọn làm Thánh nữ, còn ta thì không."
+"Sao lại không được? Nguyên khí chính là pháp lực. Biết pháp thuật là có thể làm phép. Phu nhân giáo chủ là bậc đứng đầu về pháp thuật của giáo ta, bà ấy không dạy ngươi sao? Khi ta còn ở cảnh giới Linh Thai, ta đã bắt đầu hành tẩu giang hồ, làm phép cầu mưa cho bá tánh. Hễ gặp hạn hán, bá tánh lại mời ta tới, cho nên họ gọi ta là vu nữ. Sau này tu vi cao hơn, danh tiếng lớn hơn, mới được gọi là Tiểu Vũ Sư. Nhờ giáo chủ coi trọng, phong ta làm đường chủ Vũ đường. Có điều so với phu nhân giáo chủ, ta vẫn kém rất xa. Năm đó bà ấy được chọn làm Thánh nữ, còn ta thì không."
 
 Tần Mục thắc mắc:
 

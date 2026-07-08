@@ -10,7 +10,7 @@ Long Kiều Nam cũng chần chừ một chút. Vòng xoáy trên không Thiên 
 
 Long Kiều Nam thấy phụ thân mình đã bị tôn Ma Vương này giẫm dưới chân. Con giao long mà phụ thân nuôi cũng ngã rạp dưới đất, không thể nhúc nhích.
 
-Còn vị tồn tại cấp giáo chủ kia cũng đã bị chém đầu. Đầu ông ta bị Đô Thiên Ma Vương hái xuống, được một bàn tay của hắn nắm lấy giơ cao.
+Còn vị cường giả cấp giáo chủ kia cũng đã bị chém đầu. Đầu ông ta bị Đô Thiên Ma Vương hái xuống, được một bàn tay của hắn nắm lấy giơ cao.
 
 "Ngự Long Môn thật sự sắp xong rồi sao?" Trong lòng nàng hơi thê lương.
 

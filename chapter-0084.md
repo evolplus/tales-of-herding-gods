@@ -130,7 +130,7 @@ Năm xưa Tư bà bà nhặt Tần Mục lên từ trong nước, có thể phá
 
 Đúng lúc này, Thôn trưởng đột nhiên dừng bước. Tần Mục cũng vội đứng vững, đang định nói thì bỗng lông tóc dựng đứng, vội ngậm miệng, thậm chí nín thở.
 
-Phía trước họ, một đội quân khổng lồ đang hành quân, tiến vào sâu trong Đại Khư. Binh sĩ của đội quân này khôi ngô hùng tráng, như từng vị thần ma sáng rực muôn trượng, nhưng sắc mặt xanh đen, răng nanh nhô ra, ánh mắt vô thần. Dù khí tức của họ khủng bố vô cùng, nhưng những tồn tại như thần ma này rõ ràng là từng thi thể!
+Phía trước họ, một đội quân khổng lồ đang hành quân, tiến vào sâu trong Đại Khư. Binh sĩ của đội quân này khôi ngô hùng tráng, như từng vị thần ma sáng rực muôn trượng, nhưng sắc mặt xanh đen, răng nanh nhô ra, ánh mắt vô thần. Dù khí tức của họ khủng bố vô cùng, nhưng những thân ảnh như thần ma này rõ ràng là từng thi thể!
 
 Có kẻ thiếu tay, có kẻ cụt chân, có kẻ mất nửa đầu, có kẻ thủng một lỗ lớn trước ngực. Vũ khí trong tay họ phần nhiều cũng đã tàn khuyết.
 
