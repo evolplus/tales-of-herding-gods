@@ -16,7 +16,7 @@ Mạng của Tư Vân Hương, Thẩm Vạn Vân và mọi người tốt hơn T
 
 Long Kỳ Lân rơi xuống cách bọn họ không xa. Con Long Kỳ Lân này vóc dáng to lớn, mục tiêu bắt mắt, bọn họ lập tức chạy thẳng tới chỗ Long Kỳ Lân. Đợi khi Thiên Ma chúng giáng lâm, bọn họ liền vây quanh hai bên Long Kỳ Lân chém giết.
 
-Mà con Long Kỳ Lân này khi đối mặt với Thiên Ma chúng ào ạt giết tới cũng ra tay dữ dội, chiến lực kinh người. Tư Vân Hương và mọi người dựa vào sức mạnh của hắn mới vượt qua kiếp nạn lần này.
+Mà con Long Kỳ Lân này khi đối mặt với Thiên Ma chúng ào ạt xông tới cũng ra tay dữ dội, chiến lực kinh người. Tư Vân Hương và mọi người dựa vào sức mạnh của hắn mới vượt qua kiếp nạn lần này.
 
 Tần Mục kinh ngạc, nhìn con Long Kỳ Lân này. Hồ Linh Nhi ghé vào tai hắn, thấp giọng nói:
 

@@ -84,17 +84,17 @@ Bước chân Tần Mục xê dịch, ngói vàng dưới chân trên kim điệ
 
 Thân hình hai người nhanh như thỏ bật cắt lao, chạy trên kim điện, thậm chí trên vách tường cũng như đi trên đất bằng.
 
-Đột nhiên, thân thể Tần Mục chìm xuống, rơi vào trong kim điện kia. Đan Ba La cười lạnh, vung búa lớn phá mở kim điện, giết vào trong.
+Đột nhiên, thân thể Tần Mục chìm xuống, rơi vào trong kim điện kia. Đan Ba La cười lạnh, vung búa lớn phá mở kim điện, xông vào trong.
 
 Ầm!
 
 Một bóng người phóng vút lên trời, vung tay cho từng thanh phi kiếm đâm về phía sau. Đan Ba La bám sát lao ra, chân giẫm trên một luồng khói đen. Khói đen không ngừng cuộn về phía trước, mang hắn lao về phía Tần Mục.
 
-Tần Mục ầm một tiếng đâm thủng một kim điện khác, lẩn vào trong điện tránh né Đan Ba La truy sát. Đan Ba La theo sát giết vào trong, khí thế hùng hổ, khiến vu sĩ và đại vu Lâu Lan Hoàng Kim Cung đều cảm thấy hả lòng hả dạ, quét sạch vẻ suy sụp vừa rồi.
+Tần Mục ầm một tiếng đâm thủng một kim điện khác, lẩn vào trong điện tránh né Đan Ba La truy sát. Đan Ba La theo sát xông vào trong, khí thế hùng hổ, khiến vu sĩ và đại vu Lâu Lan Hoàng Kim Cung đều cảm thấy hả lòng hả dạ, quét sạch vẻ suy sụp vừa rồi.
 
 Hai người chạy như bay trên từng tòa kim điện giữa núi, ra tay tàn độc với đối phương, càng lúc càng xa sơn môn.
 
-Lòng tin của Đan Ba La càng lúc càng mạnh, thế công cũng càng lúc càng dữ. Đợi tới khi Tần Mục rơi vào một tòa kim điện, hắn trực tiếp giết vào trong. Nhưng thứ nghênh diện mà tới lại là một vùng sơn hà tráng lệ.
+Lòng tin của Đan Ba La càng lúc càng mạnh, thế công cũng càng lúc càng dữ. Đợi tới khi Tần Mục rơi vào một tòa kim điện, hắn trực tiếp xông vào trong. Nhưng thứ nghênh diện mà tới lại là một vùng sơn hà tráng lệ.
 
 Kiếm Lý Sơn Hà.
 

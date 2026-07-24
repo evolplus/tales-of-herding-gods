@@ -34,7 +34,7 @@ Tư bà bà xoa đầu cậu, cười nói:
 
 "Sau này con sẽ biết."
 
-Sáng sớm hôm sau, Tần Mục rửa mặt ăn cơm, nhặt trứng gà. Kê bà long khí thế hùng hổ giết tới, giao đấu với Tần Mục một phen, bất phân thắng bại. Kê bà long vỗ cánh loạn xạ, dùng lông vũ sắc như kiếm chém tên trộm trứng này, há miệng phun ra một luồng lửa lớn. Thanh Long quấn quanh thân Tần Mục, cậu thi triển Đạn Chỉ Kinh Lôi Tỳ Bà Thủ, chặn kiếm vũ lại.
+Sáng sớm hôm sau, Tần Mục rửa mặt ăn cơm, nhặt trứng gà. Kê bà long khí thế hùng hổ lao tới, giao đấu với Tần Mục một phen, bất phân thắng bại. Kê bà long vỗ cánh loạn xạ, dùng lông vũ sắc như kiếm chém tên trộm trứng này, há miệng phun ra một luồng lửa lớn. Thanh Long quấn quanh thân Tần Mục, cậu thi triển Đạn Chỉ Kinh Lôi Tỳ Bà Thủ, chặn kiếm vũ lại.
 
 "Mục nhi, đừng đấu với nó nữa, sang thôn bên bái hội một phen." Tư bà bà đi tới, đuổi con Kê bà long kia chạy đi, nói.
 

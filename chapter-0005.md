@@ -138,7 +138,7 @@ Tần Mục đổi hướng chạy cuồng, thanh kiếm ấy cũng đột ngộ
 
 “Chẳng lẽ là thần thông? Không giống lắm. Đồ gia gia nói thần thông là võ đạo tu luyện đến cực hạn, võ đạo của nữ tử này kém xa Đồ gia gia bọn họ...”
 
-Thanh kiếm từ phía sau giết tới, con nai do Tần Mục biến thành gần như áp sát mặt đất mà rẽ ngoặt, mới miễn cưỡng né qua. Trong khoảnh khắc tránh được, cậu thoáng nhìn thấy trên chuôi kiếm có một sợi dây cực mảnh. Một đầu sợi dây nối với kiếm, đầu kia nằm trong tay nữ tử kia.
+Thanh kiếm từ phía sau lao tới, con nai do Tần Mục biến thành gần như áp sát mặt đất mà rẽ ngoặt, mới miễn cưỡng né qua. Trong khoảnh khắc tránh được, cậu thoáng nhìn thấy trên chuôi kiếm có một sợi dây cực mảnh. Một đầu sợi dây nối với kiếm, đầu kia nằm trong tay nữ tử kia.
 
 Sợi dây ấy mảnh như tơ, khó mà nhận ra.
 

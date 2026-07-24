@@ -10,7 +10,7 @@ Trước gương đồng đột nhiên có thêm một thanh phi kiếm đóng l
 
 "Vu độc có gì đáng sợ?"
 
-Áo quần Tần Mục phần phật. Hắn giơ tay thu phi kiếm về. Một vu sĩ khác toàn thân mọc lông hổ, vuốt hổ, đuôi hổ, gào thét lao tới, cuốn lên cuồng phong, nhào giết tới gần, không cho hắn bất kỳ cơ hội xuất kiếm nào.
+Áo quần Tần Mục phần phật. Hắn giơ tay thu phi kiếm về. Một vu sĩ khác toàn thân mọc lông hổ, vuốt hổ, đuôi hổ, gào thét lao tới, cuốn lên cuồng phong, nhào tới áp sát, không cho hắn bất kỳ cơ hội xuất kiếm nào.
 
 Tần Mục nghiêng người ra quyền. Hai người bước chân rối loạn, tiếng bạo kích bình bịch vang không dứt. Đầu vu sĩ kia lắc lư, mọc ra đầu hổ, gầm như sấm, vang rền không ngớt, dùng hổ gầm oanh kích hồn phách hắn.
 
@@ -32,7 +32,7 @@ Nếu thần thông giả này không phong ấn Lục Hợp bí cảnh, hắn r
 
 Một Hoàng Kim lực sĩ tung mình nhảy lên đài hoàng kim, nặng nề đáp xuống đất. Sau lưng hắn đeo một túi đao cao hơn một người. Hắn bỗng há miệng lớn gầm về phía Tần Mục, đao quang trong túi đao sau lưng gào rít bay ra, ào ào tạo thành bóng đao đầy trời chém xuống Tần Mục.
 
-Cùng lúc đó, Hoàng Kim lực sĩ kia hai tay cầm đao, múa song đao giết tới. Hai thanh đao lúc thì ở trước người, lúc thì ở sau lưng, như hai con mãng xà lớn quấn thân, cuộn về phía Tần Mục.
+Cùng lúc đó, Hoàng Kim lực sĩ kia hai tay cầm đao, múa song đao xông tới. Hai thanh đao lúc thì ở trước người, lúc thì ở sau lưng, như hai con mãng xà lớn quấn thân, cuộn về phía Tần Mục.
 
 Tần Mục một tay cầm thuận sát trư đao, một tay cầm ngược sát trư đao. Phi kiếm trong kiếm hạp sau lưng vù vù bay ra, nghênh đón đao quang chém xuống.
 

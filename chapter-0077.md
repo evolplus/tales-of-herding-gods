@@ -54,7 +54,7 @@ Vô số người run rẩy, vặn vẹo trong sấm điện, rồi biến thàn
 
 "Yêu ma quỷ quái, dám càn rỡ! Huyền Vũ quân, xuất thuẫn!"
 
-Vị Lộ tướng quân kia giận dữ, hai tay đập mạnh xuống, thân hình bay vọt lên không, giết vào trong lôi vân giữa trời. Thân ảnh hắn tung hoành qua lại, đánh nổ từng cơn vòi rồng.
+Vị Lộ tướng quân kia giận dữ, hai tay đập mạnh xuống, thân hình bay vọt lên không, xông vào trong lôi vân giữa trời. Thân ảnh hắn tung hoành qua lại, đánh nổ từng cơn vòi rồng.
 
 Từng đạo lôi đình bổ về phía hắn, nhưng còn chưa tới gần thân thể đã bị ánh sáng từ giáp trụ trên người hắn bắn văng ra, không thể đánh trúng hắn.
 

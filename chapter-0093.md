@@ -150,7 +150,7 @@ Tần Mục cắm dao mổ lợn xuống đất, ngồi đối diện ông. Hai 
 
 Đề đao xuất cấm lai, xa mã oanh như lôi. Chỉ thân phó hoàng cung, thủ vãn quân vương đầu.
 
-Ý câu thơ này là: ta xách đao đi ra khỏi cấm cung của hoàng đế, bên ngoài tiếng xe ngựa ầm ầm như sấm, vô số người ngựa ngăn bước chân ta, chỉ vì ta một mình giết vào hoàng cung, trong tay xách đầu quân vương.
+Ý câu thơ này là: ta xách đao đi ra khỏi cấm cung của hoàng đế, bên ngoài tiếng xe ngựa ầm ầm như sấm, vô số người ngựa ngăn bước chân ta, chỉ vì ta một mình đánh vào hoàng cung, trong tay xách đầu quân vương.
 
 Khí thế khí phách của chiêu này là thứ bất kỳ chiêu thức nào khác cũng không thể sánh bằng, cuồng dã, bễ nghễ tất cả, coi thường tất cả.
 

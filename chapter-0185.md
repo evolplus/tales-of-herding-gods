@@ -14,7 +14,7 @@ Bước chân Tần Mục giao thoa, tránh phất trần đâm tới, vòng ra 
 
 Đạo nhân kia đã hoàn hồn. Từng tờ giấy vàng biểu trong túi bên hông bay ra. Nhưng đúng lúc này, Tần Mục bỏ song đao, chập ngón tay điểm tới. Nguyên khí đầu ngón tay hóa thành kiếm quang sắc bén vô cùng, xuyên thủng mi tâm đạo nhân kia.
 
-Sau lưng Tần Mục, long tượng tung bay. Vân Khuyết hòa thượng dùng Triền Long Đạp Tượng giết tới, lao vào một nữ đạo nhân khác. Một tiếng nổ ầm vang, hắn đâm nữ đạo nhân kia dán lên tượng Ma Thần.
+Sau lưng Tần Mục, long tượng tung bay. Vân Khuyết hòa thượng dùng Triền Long Đạp Tượng xông tới, lao vào một nữ đạo nhân khác. Một tiếng nổ ầm vang, hắn đâm nữ đạo nhân kia dán lên tượng Ma Thần.
 
 Nữ đạo nhân kia hộc máu, nguyên khí bộc phát, hất hắn bay ra. Nàng đang định hạ sát thủ, đột nhiên kiếm quang lóe qua, miết trên cổ họng nàng, phát ra một tiếng đinh khẽ.
 

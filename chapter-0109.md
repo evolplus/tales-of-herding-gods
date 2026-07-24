@@ -48,7 +48,7 @@ Bầy chim lao tới phía sau nhìn thấy những lá cờ này, lập tức v
 
 Một lát sau, bầy chim và đàn rắn đi xa. Tần Mục thở phào. Vệ Dung sau lưng cậu thu phi kiếm về kiếm hạp, ngồi phịch xuống đất, thở hồng hộc. Tần Mục quay đầu nhìn lại, chỉ thấy trong rừng núi có cự thú chém giết, rắn khổng lồ như rồng khuấy đảo giữa núi rừng, khí thế kinh người. Hẳn là thiếu môn chủ Ngự Long Môn Long Kiều Nam đã đụng độ cung tiễn kỵ binh, giao thủ dữ dội.
 
-Lại qua một lát, quân tiếp ứng của Kinh thành giết tới. Lần này tới là Kiếm vệ. Từng viên kiếm hoàn bay lên không, ánh sáng chói mắt, vạn nghìn đạo phi kiếm bắn xuống, khiến Ngự Long Môn chết bị thương thảm trọng. Long Kiều Nam dẫn cự xà lui đi, vô số rắn lớn thân hình nhỏ hơn lần lượt trườn lên người con cự xà kia. Rất nhiều đệ tử Ngự Long Môn cũng bay lên không, đáp xuống trên thân cự xà.
+Lại qua một lát, quân tiếp ứng của Kinh thành kéo tới. Lần này tới là Kiếm vệ. Từng viên kiếm hoàn bay lên không, ánh sáng chói mắt, vạn nghìn đạo phi kiếm bắn xuống, khiến Ngự Long Môn chết bị thương thảm trọng. Long Kiều Nam dẫn cự xà lui đi, vô số rắn lớn thân hình nhỏ hơn lần lượt trườn lên người con cự xà kia. Rất nhiều đệ tử Ngự Long Môn cũng bay lên không, đáp xuống trên thân cự xà.
 
 Con cự xà kia vậy mà phun ra yêu vân, bay lên trời, cưỡi yêu vân rời đi. Trong yêu vân dày đặc sấm chớp. Kiếm vệ phía sau truy sát theo, cách đám người Tần Mục ngày càng xa.
 

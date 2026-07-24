@@ -36,9 +36,9 @@ Tần Mục quát lớn, nguyên khí bộc phát, thúc giục Bá Thể Tam Đ
 
 Đúng lúc này, trên không có một con rắn lớn ầm vang rơi xuống đất, đè thiên ma đầu trâu kia thành bột mịn. Long Kiều Nam điều khiển rắn lớn đáp xuống mặt đất, đuôi rắn quét ngang như một trụ sắt lớn đang lăn, nghiền nát mấy chục thiên ma nhào tới.
 
-Tần Mục lóe người bỏ đi. Long Kiều Nam đang định giết tới, đột nhiên trên không có vô số thiên ma đen nghịt rơi xuống. Dù tu vi của nàng vượt Tần Mục hai ba cảnh giới, nàng cũng rơi vào khổ chiến.
+Tần Mục lóe người bỏ đi. Long Kiều Nam đang định lao tới, đột nhiên trên không có vô số thiên ma đen nghịt rơi xuống. Dù tu vi của nàng vượt Tần Mục hai ba cảnh giới, nàng cũng rơi vào khổ chiến.
 
-Tần Mục cũng rơi vào vòng vây. Hồ Linh Nhi lập tức gọi lốc xoáy tới, quay quanh bọn họ, nhưng vẫn có thiên ma giết vào trong lốc xoáy, nhào về phía bọn họ.
+Tần Mục cũng rơi vào vòng vây. Hồ Linh Nhi lập tức gọi lốc xoáy tới, quay quanh bọn họ, nhưng vẫn có thiên ma xông vào trong lốc xoáy, nhào về phía bọn họ.
 
 Thiên ma từ thế giới khác tràn tới càng lúc càng nhiều. Nhìn từ xa, chúng như vô số ruồi nhặng bay tới từ Đô Thiên, che trời lấp đất.
 
@@ -124,7 +124,7 @@ Vô số phi kiếm đang công kích màn chắn đen đột nhiên thu lại, 
 
 Lúc này, từ xa bay tới một chiếc rương. Nắp rương gỗ mở ra, vô số Kiếm hoàn đinh đinh đang đang chui vào trong chiếc rương gỗ ấy.
 
-Quốc sư Diên Khang nhìn chiếc rương gỗ kia, như có điều suy nghĩ, không động đậy. Sau lưng ông là đại quân Diên Khang quốc đang vượt sông giết tới, xông vào Thiên Ba thành, đại khai sát giới, giao chiến với Thiên Ma chúng.
+Quốc sư Diên Khang nhìn chiếc rương gỗ kia, như có điều suy nghĩ, không động đậy. Sau lưng ông là đại quân Diên Khang quốc đang vượt sông đánh tới, xông vào Thiên Ba thành, đại khai sát giới, giao chiến với Thiên Ma chúng.
 
 Tế đàn không còn người chủ trì. Trận triệu hoán kinh tâm động phách kia đột ngột dừng lại. Vòng xoáy trên bầu trời càng lúc càng lớn lập tức ngừng sinh trưởng, sau đó chậm rãi thu nhỏ.
 

@@ -22,7 +22,7 @@ Tần Mục thở phào, chống sào trúc đưa thuyền về phía bờ đố
 
 Nếu Vu Vương và Vu Tôn Lâu Lan Hoàng Kim Cung trở lại trên núi, chỉ sợ lập tức có thể giải Thất Mê Hương, biết những người này chỉ bị đánh mê, không phải trúng độc.
 
-Nếu bây giờ bọn họ đuổi giết tới, thứ đón chờ đám Tần Mục tất nhiên là kết cục vô cùng thê thảm.
+Nếu bây giờ bọn họ đuổi tới truy sát, thứ đón chờ đám Tần Mục tất nhiên là kết cục vô cùng thê thảm.
 
 Cuối cùng cũng tới bờ đối diện. Trâu xanh hoàn hồn, vội nói:
 

@@ -64,7 +64,7 @@ Một vị tướng quân mặt chữ điền khom người nói:
 
 Quốc sư Diên Khang giơ tay chỉ về Nam Cương, sắc mặt lạnh băng:
 
-"Con đường thứ nhất, ta suất lĩnh nghìn quân vạn mã giết tới, san bằng tất cả, diệt giáo của chúng, diệt môn của chúng, diệt tông phái của chúng, diệt cửu tộc của chúng. Đây là quy củ của triều đình. Loạn thần tặc tử thì có kết cục này."
+"Con đường thứ nhất, ta suất lĩnh nghìn quân vạn mã đánh tới, san bằng tất cả, diệt giáo của chúng, diệt môn của chúng, diệt tông phái của chúng, diệt cửu tộc của chúng. Đây là quy củ của triều đình. Loạn thần tặc tử thì có kết cục này."
 
 Trụ quốc tướng quân Hà Tiêu Bằng chăm chú lắng nghe. Quốc sư Diên Khang tiếp tục nói:
 

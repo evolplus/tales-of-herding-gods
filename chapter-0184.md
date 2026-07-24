@@ -62,7 +62,7 @@ Chưa đi được bao xa, bọn họ lại gặp một toán đệ tử Cửu U
 
 Tần Mục nhíu mày, lại đổi một hướng:
 
-"Chúng ta tới Lộc Sơn. Thi thể của Cửu U Môn chôn ở đó, từ đó sống lại giết vào huyện thành, nơi đó nhất định trống trải!"
+"Chúng ta tới Lộc Sơn. Thi thể của Cửu U Môn chôn ở đó, từ đó sống lại xông vào huyện thành, nơi đó nhất định trống trải!"
 
 Trong lòng mọi người căng thẳng vạn phần. Hiện giờ trong sương đen, khắp nơi đều là người Cửu U Môn và Thi Tiên giáo. Thi Tiên giáo bị Ngu Uyên Sơ Vũ diệt trừ, ước chừng thi thể đệ tử giáo phái này cũng bị chôn gần đây. Lần này Cửu U Môn tiện thể khiến cả bọn họ sống lại.
 

@@ -158,7 +158,7 @@ Mọi người leo lên lưng trâu. Tần Mục nói:
 
 Trâu xanh đành cất bước chạy theo đường cũ. Trên lưng trâu, Linh Dục Tú quay đầu, chỉ thấy thôn nhỏ kia ẩn trong rừng núi, đã không còn nhìn thấy nữa.
 
-"Mấy vị lão nhân gia kia nói, mấy vị Khả Hãn Tái ngoại đang giết tới giết lui, ngươi đánh ta ta đánh ngươi, chứng tỏ Tái ngoại vì Diên Khang quốc quật khởi mà cũng có cảm giác nguy cơ."
+"Mấy vị lão nhân gia kia nói, mấy vị Khả Hãn Tái ngoại đang đánh qua đánh lại, ngươi đánh ta ta đánh ngươi, chứng tỏ Tái ngoại vì Diên Khang quốc quật khởi mà cũng có cảm giác nguy cơ."
 
 Linh Dục Tú định thần, nói:
 

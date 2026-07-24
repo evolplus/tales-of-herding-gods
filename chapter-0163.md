@@ -110,7 +110,7 @@ Lão giả ngồi khô trên thuyền rơi vào bóng tối vô biên. Từ góc
 
 Ông ta giơ tay lên. Từng người giấy ngựa giấy như sống lại. Người giấy cưỡi trên ngựa giấy, ngựa giấy vui vẻ chạy băng băng, xông về phía lối vào bị kim cốt khô lâu chắn giữ. Còn người giấy trên lưng ngựa thì vung đao giấy kiếm giấy, há miệng không tiếng, như đang hò hét, sát khí đằng đằng.
 
-Mười bảy bộ kim cốt đồng loạt cử động, giao chiến với đám người giấy ngựa giấy giết tới.
+Mười bảy bộ kim cốt đồng loạt cử động, giao chiến với đám người giấy ngựa giấy lao tới.
 
 Mười bảy bộ kim cốt khô lâu này hợp thành một bộ trận pháp, uy lực cực lớn, khiến sức mạnh trận pháp có thể phát huy thẳng tới cảnh giới thần chỉ. Nhưng sức mạnh truyền tới từ thế giới khác lại dị thường khủng bố. Đao giấy kiếm giấy của người giấy chém xuống đâm tới, ngay cả kim cốt mười bảy đời trước của Đại Tôn cũng không chống nổi, một đao có thể chém gãy một đoạn xương, một kiếm có thể đâm thủng xương sọ!
 
@@ -132,7 +132,7 @@ Ban Công Thố thở phào, mỉm cười nói:
 
 Ban Công Thố phất tay. Vu Tôn khom người lui ra sau, đóng cửa điện lại, thở phào:
 
-"Nếu không phải Đại Tôn tuổi già sức yếu, sao lại để Thiên Đao giết tới cửa? Bây giờ Đại Tôn chuyển thế, cuối cùng lại có thể sống thêm một đời. Diên Khang quốc cũng không đáng lo nữa, Thiên Đao cũng không đáng lo nữa."
+"Nếu không phải Đại Tôn tuổi già sức yếu, sao lại để Thiên Đao đánh tới tận cửa? Bây giờ Đại Tôn chuyển thế, cuối cùng lại có thể sống thêm một đời. Diên Khang quốc cũng không đáng lo nữa, Thiên Đao cũng không đáng lo nữa."
 
 Trong Khánh Môn Quan, Tần Mục ném cho Bá Sơn tế tửu hai bình ngọc, rồi đi mua một ít linh dược luyện đan.
 

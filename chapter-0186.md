@@ -66,13 +66,13 @@ Tần Mục âm thầm tính toán, cảm thấy phần thắng xa vời, trừ 
 
 "Chúng ta có thể tập kích trừ khử mười ba vị thần thông giả, chẳng lẽ còn không làm gì được một cao thủ cảnh giới Thất Tinh?"
 
-Ánh mắt Tần Mục lóe lên. Bọn họ đi được hơn mười dặm, đột nhiên nghe tiếng hô giết truyền tới. Một toán sơn phỉ giết tới. Thực lực đám sơn phỉ này không yếu. Thủ lĩnh sơn phỉ là một thần thông giả, những người khác cũng đều là võ giả, võ sư.
+Ánh mắt Tần Mục lóe lên. Bọn họ đi được hơn mười dặm, đột nhiên nghe tiếng hô giết truyền tới. Một toán sơn phỉ lao tới. Thực lực đám sơn phỉ này không yếu. Thủ lĩnh sơn phỉ là một thần thông giả, những người khác cũng đều là võ giả, võ sư.
 
 Mọi người đang định giao chiến, Lâm thống lĩnh cười nói:
 
 "Không sao. Đám trộm cướp nhỏ nhoi mà thôi, để bọn chúng tới."
 
-Đám sơn phỉ giết tới. Lâm thống lĩnh giơ tay tung một ấn. Lôi đình trong lòng bàn tay bộc phát, một tiếng nổ ầm vang, một luồng bạch quang lóe qua. Hơn mười tên sơn phỉ kia nổ tung thân thể, ngay cả thần thông giả kia cũng nổ giữa không trung, chết tại chỗ.
+Đám sơn phỉ lao tới. Lâm thống lĩnh giơ tay tung một ấn. Lôi đình trong lòng bàn tay bộc phát, một tiếng nổ ầm vang, một luồng bạch quang lóe qua. Hơn mười tên sơn phỉ kia nổ tung thân thể, ngay cả thần thông giả kia cũng nổ giữa không trung, chết tại chỗ.
 
 "Chưởng Tâm Lôi của lưu phái chiến kỹ!"
 

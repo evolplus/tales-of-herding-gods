@@ -150,7 +150,7 @@ Hắn vừa nói tới đây, bỗng bên bờ sông vang lên tiếng nước. 
 
 Sắc mặt Tần Mục không chút thay đổi. Hắn vỗ nhẹ bên hông, trong túi Thao Thiết có một luồng kiếm quang bay ra, hóa thành Vân Kiếm thức. Kiếm quang xoay chuyển, chém đầu mấy đệ tử Cửu U Môn đang lao tới.
 
-Mấy đệ tử Cửu U Môn kia biến thành thi thể không đầu, lập tức cúi xuống nhặt đầu của mình, kẹp dưới nách, vẫn tiếp tục giết tới!
+Mấy đệ tử Cửu U Môn kia biến thành thi thể không đầu, lập tức cúi xuống nhặt đầu của mình, kẹp dưới nách, vẫn tiếp tục lao tới!
 
 Đầu lâu dưới nách một cỗ thi thể há to miệng, rít lên:
 

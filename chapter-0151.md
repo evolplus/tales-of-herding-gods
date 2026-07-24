@@ -42,7 +42,7 @@ Lão tướng Man tộc kia bất đắc dĩ, nghiêm giọng quát:
 
 "Nghênh địch!"
 
-Đội quân giết tới đều do thần thông giả và võ giả Man tộc hợp thành. Võ giả là bộ binh, thần thông giả là kỵ binh, cưỡi từng con dị thú cao lớn. Ngoài ra trên không còn có cự điểu sải cánh bay lượn, trên lưng chim đứng vài tướng sĩ Man Địch quốc, đầu cài lông chim bảy màu, lại là một số nữ tử. Đủ loại pháp thuật và lợi kiếm đánh xuống phía dưới.
+Đội quân đánh tới đều do thần thông giả và võ giả Man tộc hợp thành. Võ giả là bộ binh, thần thông giả là kỵ binh, cưỡi từng con dị thú cao lớn. Ngoài ra trên không còn có cự điểu sải cánh bay lượn, trên lưng chim đứng vài tướng sĩ Man Địch quốc, đầu cài lông chim bảy màu, lại là một số nữ tử. Đủ loại pháp thuật và lợi kiếm đánh xuống phía dưới.
 
 Tần Mục nhìn xuyên qua tuyệt bích, chỉ thấy trong đại quân có một vị tướng Man tộc tướng mạo đường đường ngồi trên lưng một con voi trắng. Con voi trắng ấy cao hơn những dị thú khác một đoạn, cũng không hề kém con trâu xanh dưới chân bọn họ.
 

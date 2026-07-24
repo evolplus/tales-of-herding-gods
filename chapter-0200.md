@@ -1,10 +1,10 @@
 # Chương 200: Đô Thiên tiềm phục
 
-Bất kể là đại phái số một ma đạo Thiên Ma giáo giúp Quốc sư Diên Khang, hay Thiên Ma giáo dùng Truyền Tống Kỳ đưa đại quân Diên Khang tới, huyết tẩy đệ tử các môn các phái, đều có thể khiến những tồn tại cấp giáo chủ ấy tâm thần rung động, tâm thần dao động, tâm thần đại loạn.
+Bất kể là đại phái số một ma đạo Thiên Ma giáo giúp Quốc sư Diên Khang, hay Thiên Ma giáo dùng Truyền Tống Kỳ đưa đại quân Diên Khang tới, huyết tẩy đệ tử các môn các phái, đều có thể khiến những cường giả cấp giáo chủ ấy tâm thần rung động, tâm thần dao động, tâm thần đại loạn.
 
-Tuy thời gian tâm thần bọn họ rối loạn không dài, nhưng trước mặt tồn tại như Quốc sư Diên Khang, chỉ cần loạn tâm thần, về cơ bản đã định sẵn kết cục phải chết.
+Tuy thời gian tâm thần bọn họ rối loạn không dài, nhưng trước mặt nhân vật như Quốc sư Diên Khang, chỉ cần loạn tâm thần, về cơ bản đã định sẵn kết cục phải chết.
 
-Tuy nói tồn tại cấp giáo chủ thường đều là đại cao thủ cảnh giới Thần Kiều, nhưng cảnh giới Thần Kiều cũng có mạnh có yếu. Đúng như chính Quốc sư Diên Khang từng nói, ông là người ở mỗi cảnh giới đều không có bất kỳ điểm yếu nào. Góc của người khác dù lớn hơn nữa cũng không dài bằng đường thẳng của ông.
+Tuy nói cường giả cấp giáo chủ thường đều là đại cao thủ cảnh giới Thần Kiều, nhưng cảnh giới Thần Kiều cũng có mạnh có yếu. Đúng như chính Quốc sư Diên Khang từng nói, ông là người ở mỗi cảnh giới đều không có bất kỳ điểm yếu nào. Góc của người khác dù lớn hơn nữa cũng không dài bằng đường thẳng của ông.
 
 Tu vi của ông vượt qua người khác, thực lực cũng vượt qua người khác.
 
