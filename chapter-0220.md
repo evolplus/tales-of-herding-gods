@@ -102,7 +102,7 @@ Tần Mục nói:
 
 "Điều động người trong giáo thu mây tuyết các nơi, phái đệ tử xuống phía nam, dọn cây trồng bị đông chết, giúp dân gieo trồng lại. Sẽ có rất nhiều người chết, cứu được bao nhiêu thì cứu."
 
-Tả hộ pháp sứ Ninh Đạo Trì hỏi:
+Tả hộ pháp sứ Khổng Lệnh Hiền hỏi:
 
 "Giáo chủ, chúng ta lấy thân phận gì giúp hoàng đế? Nếu hoàng đế ban quan chức thì có nhận không?"
 
@@ -118,7 +118,7 @@ Tần Mục lại dặn:
 
 "Các thần thông giả quen ở địa vị cao, chưa chắc thích đi phục vụ phàm nhân như Thiên Thánh giáo ta. Quốc sư từng nói hắn giết một nhóm thanh lưu nhưng không thể giết sạch thanh lưu trong thiên hạ. Lúc ấy ta tưởng hắn nói đùa, bây giờ mới biết là thật. Rất nhiều người sẽ cảm thấy dùng thần thông phục vụ dân thường là ma đạo, là sỉ nhục. Trong đó có kẻ cực đoan sẽ làm loạn, thậm chí ra tay với Thánh giáo. Hai vị phải cẩn thận."
 
-Ninh Đạo Trì và Hữu hộ pháp sứ đều nghiêm mặt xưng vâng.
+Khổng Lệnh Hiền và Hữu hộ pháp sứ đều nghiêm mặt xưng vâng.
 
 Sau khi sắp xếp xong, Tần Mục trở lại Thái Học Viện. Hồ Linh Nhi, Long Kỳ Lân và Đô Thiên Ma Vương đã chờ trên thuyền.
 
