@@ -90,7 +90,7 @@ Hắn đứng trên Thuyền Mặt Trăng, cõi lòng dậy sóng, muôn vàn ý
 
 Tần Mục định thần lại, nhìn quanh bốn phía. Đột nhiên, hắn thấy mấy pho tượng đá được đặt ở rìa bình phong.
 
-Ngay cả cường giả Thông Thần cảnh cũng rất khó đi trong bóng tối Đại Khư, trừ phi cõng tượng thần. Mà tượng thần cực kỳ nặng, cường giả cấp giáo chủ bình thường cũng khó cõng nổi, dù cõng lên cũng khó đi xa.
+Ngay cả cường giả cảnh giới Thông Thần cũng rất khó đi trong bóng tối Đại Khư, trừ phi cõng tượng thần. Mà tượng thần cực kỳ nặng, cường giả cấp giáo chủ bình thường cũng khó cõng nổi, dù cõng lên cũng khó đi xa.
 
 Mấy pho tượng đá này hẳn có người dùng đại pháp lực chuyển tới đây để bức lui bóng tối.
 
