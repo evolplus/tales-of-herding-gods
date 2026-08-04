@@ -152,7 +152,7 @@ Nhưng khí tức của Sơ Tổ dần trở nên yếu ớt, hiển nhiên thư
 
 Ban Công Thố đầy mặt tươi cười, chậm rãi đi tới, cười nói: "Tú công chúa, thương thế của Sơ Tổ thế nào rồi? Ta cũng tinh thông y thuật, có lẽ có thể góp chút sức mọn."
 
-Linh Dục Tú nắm chiếc hộp nhỏ, thản nhiên nói: "Không nhọc phí tâm. Y thuật của kẻ chăn bò tốt hơn ngươi nhiều."
+Linh Dục Tú nắm chiếc hộp nhỏ, thản nhiên nói: "Không nhọc phí tâm. Y thuật của tên chăn bò tốt hơn ngươi nhiều."
 
 Xích Khê đi tới từ một hướng khác, thong thả nói: "Tiểu nha đầu, y thuật của Tần tiểu hữu quả thật cao minh, nhưng mặc cho hắn cao minh đến đâu cũng khó đưa dược lực đến Thiên Cung. Cứ tiếp tục kéo dài, Sơ Tổ Nhân Hoàng chắc chắn phải chết. Ở đây cũng chỉ có ta mới có thể cứu ông ấy, chỉ có ta mới có thể tiến vào Thiên Cung của ông ấy."
 

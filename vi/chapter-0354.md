@@ -72,9 +72,9 @@ Thái Học Viện tuy còn trẻ, nhưng đã lộ ra chỗ bất phàm, thậm
 
 Tần Mục tới Thần Thông Cư, lại thấy chỗ ở của mình được dọn dẹp ngăn nắp, trong lòng kinh ngạc: "Chẳng lẽ Linh Nhi đã tới Thái Học Viện?"
 
-Đột nhiên, bên ngoài truyền tới một giọng nói: "Kẻ chăn bò, cuối cùng cũng chịu về rồi? Huynh không biết đâu, Bá Sơn Tế Tửu dẫn ta và Tư Thánh nữ theo nhị ca ta bắc chinh, đánh nhau với Lang Cư Tư quốc đến..."
+Đột nhiên, bên ngoài truyền tới một giọng nói: "Tên chăn bò, cuối cùng cũng chịu về rồi? Huynh không biết đâu, Bá Sơn Tế Tửu dẫn ta và Tư Thánh nữ theo nhị ca ta bắc chinh, đánh nhau với Lang Cư Tư quốc đến..."
 
-Tần Mục quay đầu, chỉ thấy Linh Dục Tú hấp tấp xông vào từ bên ngoài. Thấy nhiều người như vậy, Linh Dục Tú giật mình, không dám lớn tiếng ồn ào, vội vàng nín thở, ngay cả bước chân cũng nhỏ lại, rất thục nữ đi tới, nép bên cạnh Tần Mục như chim nhỏ nép người, khẽ nói: "Kẻ chăn bò, bọn họ là ai?"
+Tần Mục quay đầu, chỉ thấy Linh Dục Tú hấp tấp xông vào từ bên ngoài. Thấy nhiều người như vậy, Linh Dục Tú giật mình, không dám lớn tiếng ồn ào, vội vàng nín thở, ngay cả bước chân cũng nhỏ lại, rất thục nữ đi tới, nép bên cạnh Tần Mục như chim nhỏ nép người, khẽ nói: "Tên chăn bò, bọn họ là ai?"
 
 "Đây là Thôn trưởng gia gia của ta."
 

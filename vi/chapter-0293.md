@@ -56,7 +56,7 @@ Uống xong chén trà thơm, Hư Sinh Hoa nhận đàn thất huyền từ Than
 
 Tần Mục nghe một lát, khen: "Đúng là ý cảnh cao xa, nhảy ra khỏi cõi tục. Chỉ là ta đang ở trong cõi trần, không nhảy ra được."
 
-Linh Dục Tú trên bờ sông gọi: "Kẻ chăn bò, mau qua đây!"
+Linh Dục Tú trên bờ sông gọi: "Tên chăn bò, mau qua đây!"
 
 "Biết rồi!"
 

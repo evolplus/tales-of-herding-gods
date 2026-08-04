@@ -26,7 +26,7 @@ Cách đó không xa, Tiểu Độc Vương cau mày, sốt ruột đi qua đi l
 
 Hai người đều gặp nan đề. Tần Mục mấy lần cầm bút lên mà không thể đặt xuống. Tiểu Độc Vương cũng mấy lần chộp bút rồi lại đặt xuống.
 
-Ngoài điện, Linh Dục Tú thò đầu nhìn vào. Thấy hai người đang phát sầu, nàng khẽ nói: "Người chăn bò, thế nào rồi?"
+Ngoài điện, Linh Dục Tú thò đầu nhìn vào. Thấy hai người đang phát sầu, nàng khẽ nói: "Tên chăn bò, thế nào rồi?"
 
 Tần Mục còn chưa trả lời, Tiểu Độc Vương đã cười hề hề nói: "Cô là lục công chúa nhỉ?"
 
@@ -36,7 +36,7 @@ Linh Dục Tú nghĩ một chút, nói: "Ca ca ta hiện tại là đại hoàng
 
 Giọng Tiểu Độc Vương khô cứng: "Chúc mừng lục công chúa. Chiếu theo cách trị liệu của tên lang băm này, ca ca cô rất nhanh có thể đăng cơ xưng đế rồi."
 
-Linh Dục Tú giật mình, mắt rưng rưng nhìn Tần Mục, mang theo giọng khóc, lắp bắp nói: "Người chăn bò, ngươi thật sự định trị chết phụ hoàng à?"
+Linh Dục Tú giật mình, mắt rưng rưng nhìn Tần Mục, mang theo giọng khóc, lắp bắp nói: "Tên chăn bò, ngươi thật sự định trị chết phụ hoàng à?"
 
 "Muội tử đừng sợ, không chết được."
 
@@ -56,7 +56,7 @@ Diên Phong Đế và Quốc sư Diên Khang đều thở phào một hơi, th�
 
 Đại nội thị vệ trong hoàng cung ào ào kéo tới, canh giữ ngoài điện.
 
-Linh Dục Tú sát khí đằng đằng, chống nạnh nói với hai người: "Đao phủ ở ngay bên ngoài, các ngươi đều phải nghe ta! Ngươi không áp chế được thuốc bổ của hắn, ngươi không khống chế được độc dược của hắn, vậy các ngươi đổi một đổi là được! Tên xấu xí kia, ngươi chữa phụ hoàng. Người chăn bò, ngươi chữa Quốc sư!"
+Linh Dục Tú sát khí đằng đằng, chống nạnh nói với hai người: "Đao phủ ở ngay bên ngoài, các ngươi đều phải nghe ta! Ngươi không áp chế được thuốc bổ của hắn, ngươi không khống chế được độc dược của hắn, vậy các ngươi đổi một đổi là được! Tên xấu xí kia, ngươi chữa phụ hoàng. Tên chăn bò, ngươi chữa Quốc sư!"
 
 Tần Mục đứng dậy nhìn Tiểu Độc Vương, trầm giọng nói: "Đổi bệnh nhân!"
 
@@ -90,7 +90,7 @@ Tần Mục viết một phương thuốc, để thái y đi bốc, duỗi lưng
 
 Tiểu Độc Vương âm trầm nói: "Ta cũng mệt, phải về ngủ bù một giấc. Chuyện khác cứ để đám lang băm ngoài cửa kia làm là được."
 
-Linh Dục Tú nhìn Tiểu Độc Vương, nói: "Người chăn bò, ta đưa ngươi về Thái Học Viện."
+Linh Dục Tú nhìn Tiểu Độc Vương, nói: "Tên chăn bò, ta đưa ngươi về Thái Học Viện."
 
 Tần Mục chần chừ một chút, lắc đầu nói: "Không cần, hai ngày nay muội cũng chưa nghỉ ngơi."
 
@@ -100,7 +100,7 @@ Tần Mục thấy nàng kiên quyết muốn đưa mình, chỉ có thể gật
 
 Tần Mục xách dược liệu đi ra ngoài. Linh Dục Tú vội đi theo. Tiểu Độc Vương cũng tự đi ra khỏi đại điện, theo sau hai người. Khi đi qua Ngự Đái hà trong hoàng cung, hắn đột nhiên phùm một tiếng nhảy xuống sông, sau đó không nổi lên nữa.
 
-Linh Dục Tú nhìn xuống, kinh ngạc nói: "Hắn độn nước đi rồi. Người chăn bò, chẳng lẽ hắn sợ ngươi?"
+Linh Dục Tú nhìn xuống, kinh ngạc nói: "Hắn độn nước đi rồi. Tên chăn bò, chẳng lẽ hắn sợ ngươi?"
 
 Tần Mục lắc đầu nói: "Hắn không sợ ta, mà là sợ Thái hậu nương nương."
 

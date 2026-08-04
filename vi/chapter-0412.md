@@ -110,7 +110,7 @@ Tần Mục và Linh Dục Tú lần lượt tỉnh lại từ ngộ đạo. V�
 
 Linh Dục Tú đáp một tiếng, ánh mắt rơi lên người Tần Mục, khẽ hỏi:
 
-"Chàng chăn bò, huynh có theo muội về Kinh thành không? Chúng ta có thể nguyên thần song tu trong Kinh thành..."
+"Tên chăn bò, huynh có theo muội về Kinh thành không? Chúng ta có thể nguyên thần song tu trong Kinh thành..."
 
 Tần Mục chần chừ một chút rồi lắc đầu:
 
@@ -140,7 +140,7 @@ Thái hậu nương nương thở dài một tiếng, nghiêm nghị nói:
 
 Diên Phong Đế xoay người rời đi. Linh Dục Tú theo sau ông:
 
-"Phụ hoàng, chàng chăn bò dạy con Cửu Long Đế Vương Công, khác hẳn với bản người truyền cho con. Hài nhi muốn truyền lại cho phụ hoàng, phụ hoàng muốn học không?"
+"Phụ hoàng, tên chăn bò dạy con Cửu Long Đế Vương Công, khác hẳn với bản người truyền cho con. Hài nhi muốn truyền lại cho phụ hoàng, phụ hoàng muốn học không?"
 
 Diên Phong Đế cười vang, lắc đầu nói:
 

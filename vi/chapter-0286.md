@@ -142,7 +142,7 @@ Tần Mục nói: "Canh xác, đợi ả tỉnh."
 
 Tư Vân Hương phì cười nói: "Huynh đợi thêm hai ngày nữa thì xác cũng thối. Muội đã đâm thủng tim ả, Tú công chúa đánh nát toàn bộ xương cốt của ả, ả còn sống được sao?"
 
-Linh Dục Tú đi tới, thấy thi thể Long Kiều Nam, không khỏi nhíu mày, thăm dò hỏi: "Kẻ chăn bò, Đại Khư lại có quy củ cổ quái gì sao?"
+Linh Dục Tú đi tới, thấy thi thể Long Kiều Nam, không khỏi nhíu mày, thăm dò hỏi: "Tên chăn bò, Đại Khư lại có quy củ cổ quái gì sao?"
 
 Tần Mục đá đá thi thể Long Kiều Nam, cười lạnh nói: "Long tỷ tỷ đừng giả vờ nữa, ta từng thấy tỷ lột da rồi!"
 

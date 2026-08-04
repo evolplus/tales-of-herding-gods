@@ -72,7 +72,7 @@ Còn ngoài lầu, những Hỏa Nha Thần Nhân kia vẫn cứng đờ tại c
 
 Tiếng bịch bịch truyền đến, từng cỗ thi thể ngã xuống.
 
-"Kẻ chăn bò, trên người huynh có huyết khí!" Linh Dục Tú mở mắt, đột nhiên thấy trên người Tần Mục có sắc máu quấn quanh, vội nói.
+"Tên chăn bò, trên người huynh có huyết khí!" Linh Dục Tú mở mắt, đột nhiên thấy trên người Tần Mục có sắc máu quấn quanh, vội nói.
 
 Tần Mục hơi ngẩn ra, cúi đầu quan sát bản thân, quả nhiên thấy một luồng sương đỏ như có như không lơ lửng quanh mình. Những luồng sương đỏ này như khí, chạm không được, nhưng mắt thường lại thấy được, đúng là chuyện lạ lùng.
 

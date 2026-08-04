@@ -4,7 +4,7 @@
 
 Trong Thính Vũ Các ở Hoa Hạng Kinh thành, tiếng tỳ bà rối rít lẫn vào nhau, tiếng đàn réo rắt, tiếng tiêu nghẹn ngào, lại có mấy cô gái vừa múa vừa hát. Tần Mục rót rượu cho Hư Sinh Hoa, cười nói: "Đây là ngự tửu Lục công chúa mang tới. Ngày thường ta rất ít uống rượu, không biết ngon dở, huynh thấy hương vị thế nào?"
 
-Linh Dục Tú mặc nam trang, đôi mắt đẹp liếc nhìn bốn phía, trong lòng vừa thấp thỏm vừa có chút hưng phấn: "Kẻ chăn bò vậy mà dẫn ta ra ngoài dạo thanh lâu, phụ hoàng biết được chắc chắn chém đầu hắn! Đây chính là thanh lâu nổi tiếng nhất Kinh thành, Thính Vũ Các? Hình như cũng không hương diễm như trong lời đồn..."
+Linh Dục Tú mặc nam trang, đôi mắt đẹp liếc nhìn bốn phía, trong lòng vừa thấp thỏm vừa có chút hưng phấn: "Tên chăn bò vậy mà dẫn ta ra ngoài dạo thanh lâu, phụ hoàng biết được chắc chắn chém đầu hắn! Đây chính là thanh lâu nổi tiếng nhất Kinh thành, Thính Vũ Các? Hình như cũng không hương diễm như trong lời đồn..."
 
 Hồ Linh Nhi rất thân với các cô gái trong Thính Vũ Các, đã chạy sang tìm các cô gái quen biết ríu ra ríu rít không biết trò chuyện chuyện gì.
 
@@ -46,7 +46,7 @@ Tần Mục đặt chén rượu xuống, nói: "Khi biết chuyện này, ta r�
 
 Cậu nở nụ cười: "Người xuất sắc như huynh và ta, trong thiên hạ không có mấy ai. Nếu đều là bằng hữu, vậy quá khiến ta thất vọng."
 
-Linh Dục Tú vươn ngón tay chọc chọc cậu, thấp giọng nói: "Kẻ chăn bò, khiêm tốn một chút..."
+Linh Dục Tú vươn ngón tay chọc chọc cậu, thấp giọng nói: "Tên chăn bò, khiêm tốn một chút..."
 
 Tần Mục cười nói: "Ta chỉ nói thật thôi."
 
@@ -106,7 +106,7 @@ Cậu vỗ mở hai vò rượu, đưa một vò tới trước mặt Hư Sinh H
 
 Hư Sinh Hoa cau mày. Hắn tuy cũng từng uống rượu, nhưng xưa nay có chừng mực, chỉ nếm qua là dừng, sẽ không buông lòng uống thả cửa. Nhưng Tần Mục đã ôm vò mà cạn, hắn cũng chỉ đành nhấc vò lên, ngửa đầu uống xuống.
 
-Linh Dục Tú lại dùng ngón tay chọc Tần Mục, khẽ nói: "Kẻ chăn bò, huynh sắp say rồi, đừng uống nữa!"
+Linh Dục Tú lại dùng ngón tay chọc Tần Mục, khẽ nói: "Tên chăn bò, huynh sắp say rồi, đừng uống nữa!"
 
 Tần Mục uống một hơi cạn sạch, đã hơi có men say, cười nói: "Khó lắm mới gặp đồng đạo, đương nhiên phải say một trận mới thôi. Muội tử, muội lại vào hoàng cung lấy thêm ít rượu tới."
 
@@ -122,7 +122,7 @@ Hai người đi ra ngoài. Tần Mục quay đầu nói: "Doãn nhi tỷ, trư�
 
 Phó Khánh Doãn cười tủm tỉm nói: "Giáo chủ nói đùa rồi, Thính Vũ Các vốn là sản nghiệp của giáo chủ, ghi sổ gì nữa?"
 
-Mặt Linh Dục Tú đen lại: "Tên kẻ chăn bò đáng chết hóa ra là kẻ mở thanh lâu! Ta bảo sao gã này dẫn ta ra ngoài dạo thanh lâu, hóa ra vẫn là dạo thanh lâu nhà mình!"
+Mặt Linh Dục Tú đen lại: "Tên chăn bò đáng chết hóa ra là kẻ mở thanh lâu! Ta bảo sao gã này dẫn ta ra ngoài dạo thanh lâu, hóa ra vẫn là dạo thanh lâu nhà mình!"
 
 Nàng bước nhanh ra ngoài, Hồ Linh Nhi vội vàng đuổi theo. Bên cạnh còn có Ngọc Liễu và Kinh Yến hai cô gái ôm tỳ bà và bình ngọc.
 

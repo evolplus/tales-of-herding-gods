@@ -78,7 +78,7 @@ Linh Dục Tú cũng thầm tiếc.
 
 Đây là một tòa thần điện, một thế giới đáy biển thần kỳ, vậy mà bị Tần Mục mày mò vài cái rồi phá hỏng.
 
-"Kẻ chăn bò, huynh có tên mà chưa có tự. Ta đặt tự cho huynh, gọi là Phá Phá, Tần Phá Phá!" Linh Dục Tú đề nghị.
+"Tên chăn bò, huynh có tên mà chưa có tự. Ta đặt tự cho huynh, gọi là Phá Phá, Tần Phá Phá!" Linh Dục Tú đề nghị.
 
 Tần Mục còn đang đau lòng, nghe vậy không khỏi đỏ bừng mặt, biện giải: "Ta không phải Tần Phá Phá, ta không phá bừa. Hai người đừng nói bậy, hủy sự trong sạch của ta!"
 
@@ -130,7 +130,7 @@ Linh Dục Tú hứng thú dùng nguyên khí của mình hóa thành phù văn,
 
 "Không tệ, không tệ!"
 
-Linh Dục Tú tán thưởng không thôi, nói: "Kẻ chăn bò, tay nghề của huynh không tệ, chỉ kém Công bộ thị lang một chút xíu."
+Linh Dục Tú tán thưởng không thôi, nói: "Tên chăn bò, tay nghề của huynh không tệ, chỉ kém Công bộ thị lang một chút xíu."
 
 Tư Vân Hương vô cùng hâm mộ, thi triển hình thái linh binh của mình, một sợi tơ thiên biến vạn hóa, nói: "Ý gì trăm luyện thép, hóa thành mềm quanh tay. Rèn linh binh đến mức có thể mềm quanh ngón tay không phải chỉ đơn thuần rèn sắt là đủ. Giáo chủ, linh binh của muội gọi là Thiên Ti, là kiếm cũng là pháp, mô phỏng kinh văn Đại Dục Thiên Ma Kinh của Thiên Thánh giáo chúng ta. Giáo chủ có thể luyện kim loại mềm như sợi tơ không?"
 

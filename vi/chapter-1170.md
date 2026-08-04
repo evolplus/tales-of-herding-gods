@@ -2,9 +2,9 @@
 
 Thạch Kỳ La dẫn chư thần Tạo Phụ Thiên Cung kiểm kê đủ loại thần binh, giọng vang dội truyền xa: “Diên Tú Đế, phẩm cấp thần binh của ngươi không cao đâu. Lô hàng này, ta phải ép thêm một điểm!”
 
-Giọng Linh Dục Tú truyền đến: “Thượng thần, hàng của Diên Khang chúng ta đã là rẻ nhất trong các đại chư thiên rồi! Ngoài Diên Khang, không có chư thiên nào cho ngài giá này! Lại ép thêm một điểm, Diên Khang sẽ không có lợi nhuận, ngay cả tiền công cũng khó chi! Ủa, đồ chăn bò... Mục Thiên Tôn!”
+Giọng Linh Dục Tú truyền đến: “Thượng thần, hàng của Diên Khang chúng ta đã là rẻ nhất trong các đại chư thiên rồi! Ngoài Diên Khang, không có chư thiên nào cho ngài giá này! Lại ép thêm một điểm, Diên Khang sẽ không có lợi nhuận, ngay cả tiền công cũng khó chi! Ủa, tên chăn bò... Mục Thiên Tôn!”
 
-Mắt nàng sáng lên, thấy Tần Mục đi tới, suýt nữa gọi ra ba chữ đồ chăn bò, đột nhiên tỉnh ra nên mới đổi miệng.
+Mắt nàng sáng lên, thấy Tần Mục đi tới, suýt nữa gọi ra ba chữ tên chăn bò, đột nhiên tỉnh ra nên mới đổi miệng.
 
 Thạch Kỳ La liếc Tần Mục đang đi tới, cười lạnh nói: “Đồ chăn bò Mục Thiên Tôn đến cũng vô dụng! Con người ta chỉ nhận lý lẽ cứng. Dù Thập Thiên Tôn cùng đến, ta cũng tuyệt đối không nhường cho ngươi nửa điểm...”
 

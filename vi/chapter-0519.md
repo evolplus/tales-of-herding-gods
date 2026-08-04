@@ -114,7 +114,7 @@ Hai người tâm ý tương thông, cùng nguyên thần xuất khiếu, bay xa
 
 Nguyên thần của họ bay khỏi Tương Long thành mấy vạn dặm mới dừng lại. Nguyên thần Linh Dục Tú hỏi:
 
-"Kẻ chăn bò, nơi đó rốt cuộc là nơi nào? Hung hiểm không? Tính mạng cả Linh gia ta đều đặt lên đó rồi!"
+"Tên chăn bò, nơi đó rốt cuộc là nơi nào? Hung hiểm không? Tính mạng cả Linh gia ta đều đặt lên đó rồi!"
 
 Sở dĩ nàng nói như vậy là vì Tần Mục nhân lúc Tinh Ngạn không phòng bị, dùng dao động tinh thần của Thiên Vũ tộc liên lạc với nàng, bảo nàng nói và vẽ như vậy.
 

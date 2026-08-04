@@ -86,7 +86,7 @@ Tần Mục tán thưởng, giơ ngón cái lên: "Không hổ là lão giang h�
 
 Lão mù vui nở hoa trong lòng, cười nói: "Bớt nịnh ta đi! Mau đi, mau đi!"
 
-Linh Dục Tú và Tư Vân Hương nhìn nhau. Gia giáo của chàng chăn bò hình như hơi khác nhà người ta, nhìn thế nào cũng giống đang dẫn trẻ con vào tà môn ngoại đạo.
+Linh Dục Tú và Tư Vân Hương nhìn nhau. Gia giáo của tên chăn bò hình như hơi khác nhà người ta, nhìn thế nào cũng giống đang dẫn trẻ con vào tà môn ngoại đạo.
 
 Tần Mục luyện linh đan, cho đàn rồng ăn. Long Kỳ Lân cũng ăn vài viên, cảm thấy mùi vị hơi không đúng, bèn lén bóc một viên Xích Hỏa Linh Đan ra. Mặt hắn lập tức đen lại, chỉ thấy trong lõi Xích Hỏa Linh Đan kẹp một viên Hỏa Hành Thần Nguyên Đan, chẳng trách hơi cay miệng!
 

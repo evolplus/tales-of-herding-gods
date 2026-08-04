@@ -88,7 +88,7 @@ Tư Vân Hương cũng nhìn vào trong điện, trợn tròn mắt kinh hô: "B
 
 Tần Mục lại trở vào trong điện, đi nhanh một vòng dọc theo góc tường đại điện, lộ vẻ suy tư.
 
-"Kẻ chăn bò, sao vậy?" Linh Dục Tú buồn bực hỏi.
+"Tên chăn bò, sao vậy?" Linh Dục Tú buồn bực hỏi.
 
 "Bên ngoài điện dài chín mươi bước, rộng năm mươi bước, bên trong điện dài chín nghìn bước, rộng năm nghìn bước."
 

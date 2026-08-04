@@ -114,7 +114,7 @@ Tần Mục cảm khái trong lòng. Tuy Tư Vân Hương hơi có tâm tư lệ
 
 Tư Vân Hương hăm hở xin Linh Dục Tú truyền công pháp tu luyện của nữ. Linh Dục Tú dốc túi truyền hết. Viêm Tinh Tinh cũng ghé tới. Linh Dục Tú cười nói:
 
-"Tinh muội muội, muội muốn tu luyện nguyên thần cùng chàng chăn bò không?"
+"Tinh muội muội, muội muốn tu luyện nguyên thần cùng tên chăn bò không?"
 
 Viêm Tinh Tinh lắc đầu:
 

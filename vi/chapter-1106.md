@@ -42,7 +42,7 @@ Tần Mục lắc đầu cười nói: "Ta không muốn cưới ai cả. Hiện
 
 "Ngươi chính là muốn lỡ dở ta!"
 
-Linh Dục Tú nổi giận: "Kẻ chăn bò, năm xưa ta thật không nên gặp ngươi!"
+Linh Dục Tú nổi giận: "Tên chăn bò, năm xưa ta thật không nên gặp ngươi!"
 
 Bốn phía, mọi người nhao nhao nhìn sang. Linh Dục Tú vội chỉnh lại nghi thái, tiếp tục đi về phía trước, oán trách: "Ngươi không cưới, ta nạp phi thế nào? Ta là con nghé cái của ngươi sao? Phải bị cột cả đời? Ta gặp ngươi trong tuổi xuân đẹp nhất, ngươi và ta đều bỏ phí rồi."
 

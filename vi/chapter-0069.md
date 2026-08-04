@@ -26,7 +26,7 @@ Bà thật sự là Tư bà bà?
 
 "Chẳng lẽ bà bà đã giết một phụ nhân đẹp đến thế, rồi khoác lớp da của phụ nhân ấy?" Tần Mục không khỏi rùng mình, sinh ra một liên tưởng không hay.
 
-"Ê! Thằng chăn bò!"
+"Ê! Tên chăn bò!"
 
 Đột nhiên sau lưng cậu truyền tới giọng một cô gái. Tần Mục quay đầu nhìn, không thấy người. Ngẩng đầu lên, cậu thấy trên mái hiên một ngôi miếu có một cô gái đang ngồi. Gấu váy rủ tới mắt cá, lộ ra làn da trắng nõn, rất mịn màng.
 
@@ -34,7 +34,7 @@ Bà thật sự là Tư bà bà?
 
 Mắt cô gái cong thành vầng trăng non, nói:
 
-"Thằng chăn bò, ngươi lên đây. Nơi này nhìn xa, nhìn rõ."
+"Tên chăn bò, ngươi lên đây. Nơi này nhìn xa, nhìn rõ."
 
 Tần Mục tung người nhảy lên mái hiên, ngồi bên cạnh cô. Cậu chỉ cảm thấy trên người cô gái này có một mùi hương quen thuộc, trong lòng thắc mắc.
 
@@ -88,7 +88,7 @@ Tần Mục nhìn Tương Long thành chủ Phó Vân Địch. Bát Tướng Thi
 
 Cô gái nổi hứng, nói:
 
-"Thằng chăn bò, ngươi cũng rất lợi hại đấy. Ngươi tu luyện công pháp gì?"
+"Tên chăn bò, ngươi cũng rất lợi hại đấy. Ngươi tu luyện công pháp gì?"
 
 "Bá Thể Tam Đan Công."
 

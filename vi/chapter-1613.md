@@ -114,7 +114,7 @@ Ngọc Thần Tử nói: "Bệ hạ, hắn chuẩn bị sau khi đầu hàng s�
 
 Hạo Thiên Tôn cười đến không thẳng nổi lưng: "Đường đường Mục Thiên Tôn lại là gã chăn bò?"
 
-Thượng tể đại thần bên cạnh vội nói: "Bệ hạ, Mục Thiên Tôn năm xưa quả thật xuất thân là gã chăn bò. Thần đã nghe ngóng rõ ràng, thuở thiếu thời Mục Thiên Tôn chăn bò ở Dũng Giang, chữ Mục chính là từ đó mà ra. Diên Tú Đế còn thường gọi hắn là kẻ chăn bò để tỏ vẻ thân mật. Tai mắt của thần ở Diên Khang nói Diên Tú Đế đang tìm phụ thân già của nàng, định thoái vị, đại khái là muốn cùng hắn đi chăn bò..."
+Thượng tể đại thần bên cạnh vội nói: "Bệ hạ, Mục Thiên Tôn năm xưa quả thật xuất thân là gã chăn bò. Thần đã nghe ngóng rõ ràng, thuở thiếu thời Mục Thiên Tôn chăn bò ở Dũng Giang, chữ Mục chính là từ đó mà ra. Diên Tú Đế còn thường gọi hắn là tên chăn bò để tỏ vẻ thân mật. Tai mắt của thần ở Diên Khang nói Diên Tú Đế đang tìm phụ thân già của nàng, định thoái vị, đại khái là muốn cùng hắn đi chăn bò..."
 
 "Lại có chuyện này?"
 

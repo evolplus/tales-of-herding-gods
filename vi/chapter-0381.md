@@ -122,7 +122,7 @@ Sau lưng hắn truyền tới giọng Tư Vân Hương. Tần Mục giật nả
 
 Tư Vân Hương cười như không cười: "Ra từ lâu rồi. Vốn định đi nghe chân tường, kết quả nghe thấy một con mèo cái động xuân ở đó kêu mãi kêu mãi, tiếc là chẳng gọi được mèo đực tới."
 
-Linh Dục Tú cười lạnh: "Có con mèo cái còn chưa đủ tư cách gọi mèo đực đâu. Kẻ chăn bò, chúng ta đi tìm tiểu hồ ly nhé?"
+Linh Dục Tú cười lạnh: "Có con mèo cái còn chưa đủ tư cách gọi mèo đực đâu. Tên chăn bò, chúng ta đi tìm tiểu hồ ly nhé?"
 
 "Linh Nhi phản bội rồi!"
 

@@ -160,7 +160,7 @@ Cậu rơi vào sông, đạp sóng mà đi.
 
 Trên hẻm núi truyền tới từng tiếng kêu thảm thê lương. Ngô Nữ hiện nguyên hình, đại khai sát giới. Không lâu sau, yêu tinh này ăn no, tung chân chạy như điên, rồi bay lên trời, uốn lượn giữa không trung, chui vào trong mây biến mất không thấy.
 
-"Thằng chăn bò, chúng ta hữu duyên gặp lại..."
+"Tên chăn bò, chúng ta hữu duyên gặp lại..."
 
 Đám yêu vân kia đuổi kịp Tần Mục. Trong yêu vân truyền tới tiếng gọi của Ngô Nữ, sau đó yêu vân bay xa.
 

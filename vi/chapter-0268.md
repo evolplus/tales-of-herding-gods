@@ -76,7 +76,7 @@ Nếu Hồ Linh Nhi ở đây, nhất định nàng sẽ thu dọn căn phòng g
 
 Tần Mục vội đi ra khỏi phòng. Chỉ thấy Linh Dục Tú đẩy cửa bước vào. Cô nương xinh tươi duyên dáng, môi đỏ răng trắng, mặc một chiếc áo đỏ, nhưng không phải đỏ toàn bộ, mà vạt áo và cổ áo là màu đỏ. Nàng vừa đi vào sân, một luồng thanh xuân rạng rỡ đã ùa tới khiến tim Tần Mục đập nhanh hơn mấy nhịp.
 
-"Người chăn bò!"
+"Tên chăn bò!"
 
 Đôi mắt cô gái sáng lấp lánh. Nàng cười đi tới, nói: "Con chó lớn trước cửa nhà ngươi dễ nói chuyện thật đấy!"
 

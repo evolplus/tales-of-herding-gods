@@ -214,7 +214,7 @@ Lâm Hiên Đạo Chủ ăn thịt từng miếng lớn, giọng ồm ồm:
 
 "Thiên Đô là giả, người xuất gia còn thật được sao?"
 
-"Kẻ chăn bò, huynh lại ăn cá của phụ hoàng ta!"
+"Tên chăn bò, huynh lại ăn cá của phụ hoàng ta!"
 
 Một luồng hương thơm xộc tới. Linh Dục Tú đẩy Hồ Linh Nhi bên cạnh Tần Mục sang một bên, đặt mông ngồi xuống, vỗ vỗ tay rồi xé một miếng thịt cá lớn. Nàng chẳng màng bỏng miệng, cắn một miếng, hít hà khen:
 

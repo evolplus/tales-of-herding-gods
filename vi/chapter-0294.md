@@ -56,7 +56,7 @@ Tư Vân Hương cũng vội lấy Thiên Ti ra, nói: "Còn linh binh Thiên Ti
 
 Mọi người Công bộ nghiên cứu một phen. Đan Do Tín thu hai món linh binh lại, trả cho Linh Dục Tú và Tư Vân Hương, nói: "Thánh nữ, công chúa, hai món linh binh này là thủ bút của giáo chủ phải không?"
 
-Linh Dục Tú gật đầu, nói: "Là kẻ chăn bò giúp chúng ta luyện trên biển."
+Linh Dục Tú gật đầu, nói: "Là tên chăn bò giúp chúng ta luyện trên biển."
 
 Đan Do Tín lộ vẻ kính phục, nói: "Tay nghề rèn đúc của giáo chủ đã vượt trên mọi người Công bộ chúng ta. Công bộ chúng ta ở vài kỹ xảo nào đó có lẽ có thể vượt qua giáo chủ, nhưng nói tổng thể, chúng ta không bằng giáo chủ."
 
@@ -74,7 +74,7 @@ Hai cô gái trợn to mắt, không nói nên lời.
 
 Tần Mục vội khiêm tốn nói: "Thị lang quá khen rồi, quá khen rồi. Ta chỉ từng học rèn sắt, không dám nói thiên hạ đệ nhất!"
 
-Linh Dục Tú và Tư Vân Hương chớp mắt, nhìn chàng chăn bò đến từ Đại Khư, thầm nghĩ: "Hắn trước giờ hay khoác lác, nay vậy mà biết khiêm tốn, đúng là hiếm có..."
+Linh Dục Tú và Tư Vân Hương chớp mắt, nhìn tên chăn bò đến từ Đại Khư, thầm nghĩ: "Hắn trước giờ hay khoác lác, nay vậy mà biết khiêm tốn, đúng là hiếm có..."
 
 "Nhiều nhất là thiên hạ đệ nhị."
 
@@ -96,7 +96,7 @@ Công bộ thượng thư lắc đầu, nói: "Tài tử Họa Thánh Các chỉ
 
 Ông lắc đầu, nói: "Quá ngoài dự liệu. Một người sao có thể đồng thời có tạo nghệ sâu như vậy trong nhiều nghề đến thế? Hơn nữa còn có thể khiêm tốn như vậy? Đức hạnh bậc này khiến người ta kinh thán."
 
-"Kẻ chăn bò khiêm tốn lắm sao?" Linh Dục Tú hơi không hiểu. Rõ ràng kẻ chăn bò rất kiêu ngạo, một dáng vẻ ta đây thiên hạ đệ nhị.
+"Tên chăn bò khiêm tốn lắm sao?" Linh Dục Tú hơi không hiểu. Rõ ràng tên chăn bò rất kiêu ngạo, một dáng vẻ ta đây thiên hạ đệ nhị.
 
 Tư Vân Hương cũng khá không phục. Thánh giáo chủ của bọn họ trước nay chẳng dính dáng gì tới khiêm tốn. Nàng muốn khiêu chiến hắn, hắn chính là một vẻ "ngươi đánh không lại ta, còn cần luyện thêm".
 

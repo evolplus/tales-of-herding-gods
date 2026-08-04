@@ -128,7 +128,7 @@ Hắn vội dừng thu kiếm, giũ Túi Thao Thiết một cái. Chỉ thấy v
 
 Trước mắt kiếm hoàn tuy đã luyện thành, nhưng vì kiếm hoàn quá lớn quá nặng, biện pháp duy nhất hiện giờ của hắn là chỉ có thể xem Túi Thao Thiết như kiếm nang, dùng để cất phi kiếm. Nếu không, mang kiếm hoàn đường kính ba thước ra ngoài sẽ kinh thế hãi tục, hơn nữa cũng cầm không nổi.
 
-"Vốn ta còn hơi hâm mộ kiếm hoàn của kẻ chăn bò, bây giờ một chút lòng hâm mộ cũng không còn nữa."
+"Vốn ta còn hơi hâm mộ kiếm hoàn của tên chăn bò, bây giờ một chút lòng hâm mộ cũng không còn nữa."
 
 Linh Dục Tú nhịn cười, thấp giọng nói: "Linh binh của hắn tuy tốt, nhưng không dùng được."
 

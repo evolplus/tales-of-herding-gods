@@ -62,7 +62,7 @@ Nàng thử hỏi: "Theo giáo chủ, thế nào mới xem là đẹp?"
 
 Tần Mục không nghĩ ngợi nói: "Hoặc như Dục Tú muội tử mũm mĩm thế này, đều là đẹp. Bà bà nói rồi, cô nương tròn tròn trông mới đẹp, nhưng nhất định phải cẩn thận hồ ly tinh."
 
-Linh Dục Tú khá đắc ý, liếc Tư Vân Hương một cái, trong lòng thầm xem kẻ chăn bò là tri kỷ của mình.
+Linh Dục Tú khá đắc ý, liếc Tư Vân Hương một cái, trong lòng thầm xem tên chăn bò là tri kỷ của mình.
 
 Tư Vân Hương không cam lòng, nói: "Ta và phu nhân tiền giáo chủ là người một nhà, tính theo vai vế, ta phải gọi bà ấy một tiếng cô cô. Giáo chủ thấy ta có đẹp không?"
 

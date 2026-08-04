@@ -16,13 +16,13 @@ Tần Mục nổi giận, quát: "Nói bậy! Mấy ngày nay ta luyện kiếm 
 
 Linh Dục Tú và Tư Vân Hương đuổi ra ngoài, chỉ thấy Long Kỳ Lân đã bay vào giữa không trung, đi được hơn mười dặm.
 
-Linh Dục Tú nhíu mày: "Dù muốn đi cũng phải chuẩn bị vạn toàn rồi hãy đi. Kẻ chăn bò hơi quá lỗ mãng, xem nhẹ hung hiểm của Minh Cốc."
+Linh Dục Tú nhíu mày: "Dù muốn đi cũng phải chuẩn bị vạn toàn rồi hãy đi. Tên chăn bò hơi quá lỗ mãng, xem nhẹ hung hiểm của Minh Cốc."
 
 Tư Vân Hương lại xoa xoa mông. Cái tát kia của Tần Mục quá mạnh, khiến nàng cảm thấy hai bên mông vẫn cay rát đau nhức, nói: "Thiên Thánh giáo còn thiếu cao thủ sao? Từ sau lần trước bị Long Kiều Nam bắt cóc, Ngọc Thiên Vương và Sư Thiên Vương bọn họ đã không yên tâm, chắc chắn đang ở gần đây. Yên tâm đi, chỉ cần gặp nguy hiểm, bọn họ nhất định sẽ không khoanh tay đứng nhìn. Đáng tiếc..."
 
 Nàng ngẩn ngơ xuất thần, đột nhiên nói: "Nếu Thánh giáo chủ chết trong Minh Cốc, Thánh nữ liền có thể thuận lý thành chương kế nhiệm giáo chủ. Đáng tiếc ta không đi Minh Cốc cùng giáo chủ, nếu không Thánh giáo chủ chắc chắn sẽ chết thật trong Minh Cốc..."
 
-Linh Dục Tú cảnh giác, cười lạnh nói: "Hồ ly tinh nhỏ, ngươi dám động chủ ý với kẻ chăn bò, ta đánh què hai chân ngươi, để thân ngươi ghép thành một chữ Xuất!"
+Linh Dục Tú cảnh giác, cười lạnh nói: "Hồ ly tinh nhỏ, ngươi dám động chủ ý với tên chăn bò, ta đánh què hai chân ngươi, để thân ngươi ghép thành một chữ Xuất!"
 
 Tư Vân Hương cười khanh khách: "Con nha đầu lẳng lơ, ta cũng đã ngứa mắt ngươi từ lâu rồi. Ngày ngày ỷ ngực lớn đi theo bên cạnh giáo chủ vướng tay vướng chân, làm người ta muốn ra tay cũng không có cơ hội."
 

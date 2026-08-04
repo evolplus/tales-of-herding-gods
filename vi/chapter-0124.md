@@ -106,7 +106,7 @@ Tần Mục vâng lời. Mấy vị thái y cũng như được đại xá, cùn
 
 Đột nhiên trong đám người truyền tới một giọng trong trẻo vừa kinh ngạc vừa mừng rỡ, nghe hơi quen tai. Tần Mục ngẩng đầu nhìn, trong đám người có một thiếu nữ, dáng vẻ tươi sáng động lòng người.
 
-"Thằng chăn bò, quả nhiên là ngươi!"
+"Tên chăn bò, quả nhiên là ngươi!"
 
 Thiếu nữ kia mừng rỡ nói: "Sao ngươi lại chạy tới đây?"
 

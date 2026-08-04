@@ -92,7 +92,7 @@ Linh Dục Tú cười lạnh: "Giáo chủ phu nhân cũng phải có trước 
 
 Tư Vân Hương cười tủm tỉm: "Cựu giáo chủ phu nhân có lời gì muốn nói sao?"
 
-Linh Dục Tú nổi giận, rồi đột nhiên phì cười: "Ta không tranh chuyện này với muội. Không đi thì không đi. Mù gia gia bắt ta đi, cha ta chắc lo chết mất rồi, ta phải sớm về báo bình an. Lần bái đường thành thân này chỉ là chấp niệm của Mù gia gia, không tính được. Hương Thánh Nữ nếu coi là thật thì muội cứ làm giáo chủ phu nhân đi. Đúng rồi, chàng chăn bò, huynh đi thực hiện lời hứa gì vậy?"
+Linh Dục Tú nổi giận, rồi đột nhiên phì cười: "Ta không tranh chuyện này với muội. Không đi thì không đi. Mù gia gia bắt ta đi, cha ta chắc lo chết mất rồi, ta phải sớm về báo bình an. Lần bái đường thành thân này chỉ là chấp niệm của Mù gia gia, không tính được. Hương Thánh Nữ nếu coi là thật thì muội cứ làm giáo chủ phu nhân đi. Đúng rồi, tên chăn bò, huynh đi thực hiện lời hứa gì vậy?"
 
 "Ta từng có hẹn với Thái Dương Thủ, phải giúp nàng thắp lại mặt trời đã tắt trên Thuyền Mặt Trời."
 

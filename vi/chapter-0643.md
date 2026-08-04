@@ -1,6 +1,6 @@
 # Chương 643: Thiên Công Huyền Đô
 
-Linh Dục Tú chạy ra từ khoang chiếc lâu thuyền này. Cô cũng phát hiện chiếc thuyền có gì đó không ổn, thấp giọng nói: "Kẻ chăn bò, long cốt của chiếc thuyền này là long cốt thật!"
+Linh Dục Tú chạy ra từ khoang chiếc lâu thuyền này. Cô cũng phát hiện chiếc thuyền có gì đó không ổn, thấp giọng nói: "Tên chăn bò, long cốt của chiếc thuyền này là long cốt thật!"
 
 Tần Mục ngẩn ra, theo cô cùng đi vào khoang thuyền, chỉ thấy long cốt của thuyền là bộ xương thần long khổng lồ. Khi chiếc thuyền này bay lên, long cốt cũng như rắn, lắc thân sang trái sang phải.
 

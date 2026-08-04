@@ -144,7 +144,7 @@ Tần Mục hứng thú bừng bừng, từng chút một quan sát cấu tạo 
 
 Tần Mục vừa quan sát vừa cảm khái trong lòng. Đột nhiên trên cao truyền xuống một giọng nói kinh ngạc:
 
-"Thằng chăn bò, sao ngươi còn ở Tương Long thành?"
+"Tên chăn bò, sao ngươi còn ở Tương Long thành?"
 
 Tần Mục nghe thấy quen tai, nhìn theo tiếng nói ngẩng đầu lên, lại thấy trên cột rồng thò ra một cái đầu nhỏ, chính là nha đầu đã dẫn cậu vào phủ thành chủ ăn chực uống chực kia.
 
