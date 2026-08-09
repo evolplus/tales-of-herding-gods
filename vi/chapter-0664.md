@@ -34,7 +34,7 @@ Tần Mục ghé sát tai nàng, lớn tiếng nói: "Cẩn thận!"
 
 Thiên lôi bắn ra từ Ngũ Lôi Hồ đột nhiên trở nên nồng đậm, sét đánh càng dữ hơn. Linh Dục Tú bị đánh đến ngoài khét trong mềm. Long Kỳ Lân cũng bị đánh không ngừng co giật. Nhưng long châu và kỳ lân châu xoay quanh họ, vết bỏng trên người họ rất nhanh liền khép lại.
 
-Linh Dục Tú nhịn đau, trong lòng kinh ngạc không thôi: "Long châu của Long béo còn có công hiệu này? Đúng rồi, long diên của Long béo có thể nhanh chóng chữa lành vết thương, long châu của nó e rằng cũng có công dụng tương tự. Khó trách bọn họ có thể kiên trì trong trung tâm sét đánh lâu như vậy."
+Linh Dục Tú nhịn đau, trong lòng kinh ngạc không thôi: "Long châu của Long béo còn có công hiệu này? Đúng rồi, long diên hương của Long béo có thể nhanh chóng chữa lành vết thương, long châu của nó e rằng cũng có công dụng tương tự. Khó trách bọn họ có thể kiên trì trong trung tâm sét đánh lâu như vậy."
 
 Nhưng để nguyên thần của mình xuất khiếu đối mặt sét đánh thì nàng vẫn không dám.
 

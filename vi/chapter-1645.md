@@ -46,7 +46,7 @@ Bọn họ đem những gì mình học, mình ngộ dùng vào đời sống th
 
 Bất kể là Tần Mục, Khai Hoàng, hay Quốc sư Giang Bạch Khuê, Lão Nhân Hoàng Tô Mạc Già, đều là đại cao thủ kiếm đạo. Bọn họ truyền kiếm đạo của mình khắp Diên Khang, chỉ cần có đủ tư chất và ngộ tính là có thể tu luyện, có thể trên cơ sở của bọn họ khai mở ra kiếm đạo mới, kiếm pháp mới!
 
-Thái Sơ có hai tôn phân thân ẩn núp ở Diên Khang. Hắn học được kiếm pháp của Tần Mục, Khai Hoàng, Giang Bạch Khuê, Tô Mạc Già và những người khác, đồng thời suy một ra ba, có lĩnh ngộ của riêng mình.
+Thái Sơ có hai tôn phân thân ẩn nấp ở Diên Khang. Hắn học được kiếm pháp của Tần Mục, Khai Hoàng, Giang Bạch Khuê, Tô Mạc Già và những người khác, đồng thời suy một ra ba, có lĩnh ngộ của riêng mình.
 
 Uy lực kiếm đạo của hắn không thể nói là không mạnh. Lấy pháp lực hùng hồn vô cùng của hắn thi triển ra, uy năng kiếm đạo thậm chí gần đuổi kịp Khai Hoàng năm xưa!
 

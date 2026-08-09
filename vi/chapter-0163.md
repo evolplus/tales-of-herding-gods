@@ -136,7 +136,7 @@ Ban Công Thố phất tay. Vu Tôn khom người lui ra sau, đóng cửa đi�
 
 Trong Khánh Môn Quan, Tần Mục ném cho Bá Sơn tế tửu hai bình ngọc, rồi đi mua một ít linh dược luyện đan.
 
-Hắn nối thân thể cho Đồ phu, dùng hết rất nhiều long diên, nhưng vẫn còn lại năm bình. Bá Sơn tế tửu liều mạng với cường giả Lâu Lan Hoàng Kim Cung, thương thế không nhẹ. Ngoài ngoại thương, còn cần linh đan để chữa nội thương, trừ bỏ ẩn tật.
+Hắn nối thân thể cho Đồ phu, dùng hết rất nhiều long diên hương, nhưng vẫn còn lại năm bình. Bá Sơn tế tửu liều mạng với cường giả Lâu Lan Hoàng Kim Cung, thương thế không nhẹ. Ngoài ngoại thương, còn cần linh đan để chữa nội thương, trừ bỏ ẩn tật.
 
 "Công tử, Tổ sư đang tìm công tử."
 

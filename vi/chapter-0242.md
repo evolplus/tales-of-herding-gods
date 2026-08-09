@@ -144,7 +144,7 @@ Tần Mục quát lớn, phong bế vết kiếm trên người, gào thét xôn
 
 Mặt tường xung quanh Tần Mục vẫn là tranh sơn hà.
 
-Tần Mục ngẩn ra, trượt xuống khỏi tường, bôi chút long diên lên vết thương, đắp thuốc xong thì khổ sở suy nghĩ, tiếp tục cải tiến Kiếm Lý Sơn Hà. Qua rất lâu, hắn lại đứng dậy xông về phía Thôn trưởng: "Thêm lần nữa!"
+Tần Mục ngẩn ra, trượt xuống khỏi tường, bôi chút long diên hương lên vết thương, đắp thuốc xong thì khổ sở suy nghĩ, tiếp tục cải tiến Kiếm Lý Sơn Hà. Qua rất lâu, hắn lại đứng dậy xông về phía Thôn trưởng: "Thêm lần nữa!"
 
 Ầm.
 

@@ -4,7 +4,7 @@ Tần Mục gật đầu, cười như có như không.
 
 Năm năm trước, Tinh Ngạn lấy lệnh bài Tần Thiên Tôn ra tính kế hắn, khiến hắn đến Đọa Thần Cốc. Đọa Thần Cốc chỉ là lối thông tới Thượng Hoàng Thiên Đình, nơi đó còn có đệ tử của Lăng Thiên Tôn là Dịch Thạch Sinh vẫn không ngừng thu thi cho Lăng Thiên Tôn.
 
-Khi Tần Mục đến Đọa Thần Cốc, các đệ tử Thiên Đế như Yên Khấp Linh, Mộ Thu Bạch cũng đến đó, còn có Thiên Long Vương dưới trướng Địa Mẫu, cùng Thần khí Ngự Thiên Tôn lặng lẽ ẩn núp tiến vào.
+Khi Tần Mục đến Đọa Thần Cốc, các đệ tử Thiên Đế như Yên Khấp Linh, Mộ Thu Bạch cũng đến đó, còn có Thiên Long Vương dưới trướng Địa Mẫu, cùng Thần khí Ngự Thiên Tôn lặng lẽ ẩn nấp tiến vào.
 
 Trên huyền quan của Đọa Thần Cốc viết những chữ gặp Tần Mục thì mở, thật ra ý là gặp Tần Thiên Tôn, Mục Thiên Tôn thì mở.
 

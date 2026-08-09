@@ -68,7 +68,7 @@ Lục Thiên Vương hít sâu một hơi, nói:
 
 "Ông đừng nói vội."
 
-Tần Mục lấy ra hai bình long diên chữa trị vết thương trên nhục thân cho ông, lại để ông uống một bình. Hắn trầm ngâm một lát, viết xuống một chuỗi tên thuốc, bảo Kiếm đường đường chủ đến kho phủ bốc thuốc theo đơn. Còn những dược liệu này có thể chữa khỏi Lục Thiên Vương hay không, trong lòng hắn cũng không nắm chắc. Tình huống tốt nhất là tàn phế, mà tình huống xấu nhất...
+Tần Mục lấy ra hai bình long diên hương chữa trị vết thương trên nhục thân cho ông, lại để ông uống một bình. Hắn trầm ngâm một lát, viết xuống một chuỗi tên thuốc, bảo Kiếm đường đường chủ đến kho phủ bốc thuốc theo đơn. Còn những dược liệu này có thể chữa khỏi Lục Thiên Vương hay không, trong lòng hắn cũng không nắm chắc. Tình huống tốt nhất là tàn phế, mà tình huống xấu nhất...
 
 Kiếm đường đường chủ nhanh chóng rời đi. Vết thương trên nhục thân Lục Thiên Vương khá hơn một chút, nhưng thương thế hồn phách và Thần Tàng lại càng nặng. Ông thở dốc nói:
 

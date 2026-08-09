@@ -72,7 +72,7 @@ Là thiếu niên duy nhất của Tàn Lão Thôn, từ nhỏ Tần Mục đã 
 
 Dược sư khí tiết cao thượng, cho rằng làm dược sư là một nghề mang tính nghệ thuật. Giữa thuốc bổ và thuốc độc vốn không có ranh giới cố định. Thuốc độc có thể là linh dược cứu mạng, thuốc bổ cũng có thể là kịch độc đoạt mệnh.
 
-Vừa rồi khi Tần Mục luyện đan chữa thương cho đám giao long kia, thứ hắn luyện chính là loại thuốc đại bổ này. Hắn lấy nước dãi rồng của Long Kỳ Lân làm nguyên liệu nền, phụ thêm đủ loại thuốc đại bổ rồi cho đám giao long dùng.
+Vừa rồi khi Tần Mục luyện đan chữa thương cho đám giao long kia, thứ hắn luyện chính là loại thuốc đại bổ này. Hắn lấy long diên hương của Long Kỳ Lân làm nguyên liệu nền, phụ thêm đủ loại thuốc đại bổ rồi cho đám giao long dùng.
 
 Sau khi ăn linh đan, vết thương của đám giao long nhanh chóng khép lại, cơ thịt tự mọc, xương gãy gân đứt cũng tự nối liền với tốc độ cực nhanh.
 

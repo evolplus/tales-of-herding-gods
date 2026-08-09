@@ -130,7 +130,7 @@ Tần Mục lập tức tán thần thức, tránh khỏi ánh nhìn của quái
 
 Trước tấm gương trong khoang thuyền, Tần Mục sắc mặt nghiêm nghị.
 
-Trong khối Tạo Hóa Thần Thạch Ngụy Tùy Phong để lại cho hắn ẩn chứa một loại ma quái nào đó. Ma quái này mượn Tạo Hóa Thần Thạch để ẩn núp, trộm khí huyết của hắn.
+Trong khối Tạo Hóa Thần Thạch Ngụy Tùy Phong để lại cho hắn ẩn chứa một loại ma quái nào đó. Ma quái này mượn Tạo Hóa Thần Thạch để ẩn nấp, trộm khí huyết của hắn.
 
 "Bên trong còn có một tế đàn. Loại tế đàn này hơi quen, là loại tế đàn thời tiền sử trong vùng Huyết Tú. Mục đích của hắn là vừa trộm khí huyết của ta, vừa mượn thần thức của ta để tái tạo thân thể cho hắn! Vậy thứ giấu trong Tạo Hóa Thần Thạch hẳn là một Tạo Vật Chủ thời tiền sử!"
 

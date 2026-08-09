@@ -120,7 +120,7 @@ Cao thấp thế nào, vừa nhìn đã rõ!
 
 Tần Mục tán thưởng, xung quanh cũng vang lên một trận khen ngợi. Lập tức có người bước lên muốn mua Môn Thần đồ, mở miệng ra giá, giá tiền ấy khiến Lão điếc bị đánh cho hồn vía lên mây. Ông bán tranh ở đây hơn hai tháng, nếu không phải Hồ Linh Nhi phát hiện ra thì đã suýt chết đói, không ngờ bức tranh đầu tiên bán được lại có giá kinh người như vậy.
 
-Hồ Linh Nhi cũng giật mình, vội vàng tiến lên mặc cả. Giá ấy vậy mà còn đắt hơn long diên rất nhiều lần, khiến người ta líu lưỡi.
+Hồ Linh Nhi cũng giật mình, vội vàng tiến lên mặc cả. Giá ấy vậy mà còn đắt hơn long diên hương rất nhiều lần, khiến người ta líu lưỡi.
 
 Một bức tranh của Lão điếc, đủ để hưởng dụng cả đời.
 

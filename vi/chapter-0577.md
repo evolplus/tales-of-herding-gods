@@ -94,7 +94,7 @@ Mấy cao thủ Ma tộc kia chia nhau vội rời đi. Tần Mục hơi cau mà
 
 "Công tử, những Ma tộc này hình như là vì chạy giữ mạng."
 
-Hồ Linh Nhi lấy ra một cái chậu lớn, để Long Kỳ Lân nhỏ chút long diên, bôi lên vết thương cho hắn, nghi hoặc nói: "Nếu bọn họ liên thủ, bản lĩnh e là còn lợi hại hơn chúng ta, nhưng lại bỏ chạy. Chẳng lẽ là để truyền tin? Để ổn thỏa, chúng ta nên lập tức trở về Ly thành!"
+Hồ Linh Nhi lấy ra một cái chậu lớn, để Long Kỳ Lân nhỏ chút long diên hương, bôi lên vết thương cho hắn, nghi hoặc nói: "Nếu bọn họ liên thủ, bản lĩnh e là còn lợi hại hơn chúng ta, nhưng lại bỏ chạy. Chẳng lẽ là để truyền tin? Để ổn thỏa, chúng ta nên lập tức trở về Ly thành!"
 
 Tần Mục nhướng mày, nói: "Đi tiếp về phía trước chính là trạm canh Vô Vọng Thành do Tang Diệp tôn thần trấn thủ. Về Ly thành quá xa, tới trạm canh gần hơn. Có Tang Diệp tôn thần ở đó, cường giả Ma tộc tầm thường cũng không dám tới."
 

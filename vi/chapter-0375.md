@@ -148,7 +148,7 @@ Hoạn Long Quân liên tục kêu quái dị. Trên thân hắn phồng lên t�
 
 Tần Mục dùng sức rút kiếm. Xà cửa đại điện quá cứng, với sức của hắn nhất thời không rút ra được. Hắn lập tức bỏ ý định ấy, vươn tay vỗ ngược lên xà ngang phía sau. Xoẹt một tiếng, thân kiếm xuyên qua người hắn, Tần Mục ngã nhào từ trên xà xuống.
 
-Tần Mục đứng dậy, đau đến nước mắt chảy ròng, vội đổ mấy bình long diên lên vết thương, rồi nói một cách đầy lý lẽ: "Đánh không lại, đương nhiên phải hạ độc!"
+Tần Mục đứng dậy, đau đến nước mắt chảy ròng, vội đổ mấy bình long diên hương lên vết thương, rồi nói một cách đầy lý lẽ: "Đánh không lại, đương nhiên phải hạ độc!"
 
 Đám Vương Mộc Nhiên lại ngây ra lần nữa. Tần Mục nói câu này, cứ như đánh không lại thì hạ độc là chuyện thiên kinh địa nghĩa, đơn giản như ăn cơm ngủ nghỉ vậy.
 

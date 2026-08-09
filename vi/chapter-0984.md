@@ -16,7 +16,7 @@ Trên bầu trời, vô số tinh cầu khổng lồ chen chúc, lấp đầy kh
 
 Hai vạn năm qua, Tạo Vật Chủ thỉnh thoảng xâm nhập, khiến Vô Ưu Hương thương vong thảm trọng.
 
-Dải tử tinh càng nguy hiểm hơn. Thường có Tạo Vật Chủ ẩn núp trong đó, quán tưởng đủ loại quái vật xông vào Vô Ưu Hương, thậm chí quán tưởng đủ loại thiên tai như lôi bạo, hồng thủy, cuồng phong, khiến Vô Ưu Hương phiền nhiễu không dứt.
+Dải tử tinh càng nguy hiểm hơn. Thường có Tạo Vật Chủ ẩn nấp trong đó, quán tưởng đủ loại quái vật xông vào Vô Ưu Hương, thậm chí quán tưởng đủ loại thiên tai như lôi bạo, hồng thủy, cuồng phong, khiến Vô Ưu Hương phiền nhiễu không dứt.
 
 Còn bây giờ, họ nhận được tin, Tạo Vật Chủ vậy mà cả tộc đánh tới, sắp tới Vô Ưu Hương!
 

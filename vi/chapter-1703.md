@@ -40,7 +40,7 @@ Thần thức Lam Ngự Điền dao động, vù một tiếng lao vào ý thứ
 
 Nguyên Mẫu phu nhân không phải như hắn dự đoán, khi động sát tâm sẽ luân hồi một lần, mà là luân hồi tới chín trăm sáu mươi lần!
 
-Không chỉ vậy, hắn còn thấy trong nơi sâu thẳm của đại dương tư duy Nguyên Mẫu, ý thức Đế hậu nương nương đang ẩn núp, như một cửa hang đen nhánh giấu dưới đại dương, không ngừng lớn mạnh!
+Không chỉ vậy, hắn còn thấy trong nơi sâu thẳm của đại dương tư duy Nguyên Mẫu, ý thức Đế hậu nương nương đang ẩn nấp, như một cửa hang đen nhánh giấu dưới đại dương, không ngừng lớn mạnh!
 
 Hiển nhiên, nguy hiểm hắn cảm nhận được chính là đến từ đây!
 

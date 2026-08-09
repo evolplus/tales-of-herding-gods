@@ -92,7 +92,7 @@ Tần Mục an ủi:
 
 "Yên tâm, ta nuôi nổi ngươi. À phải, có nước miếng không? Cho ta hứng một bình, ta mang đi xem có đổi được tiền không."
 
-Hồ Linh Nhi lấy bình ngọc tới, hứng một bình long diên. Tần Mục cất bình kỹ, dặn họ ở nhà, còn mình tới Thái Y Điện. Mấy lão thái y đang nghiên cứu đan phương trong điện. Thấy hắn, ai nấy đều vui mừng, cười nói:
+Hồ Linh Nhi lấy bình ngọc tới, hứng một bình long diên hương. Tần Mục cất bình kỹ, dặn họ ở nhà, còn mình tới Thái Y Điện. Mấy lão thái y đang nghiên cứu đan phương trong điện. Thấy hắn, ai nấy đều vui mừng, cười nói:
 
 "Tiểu thần y cuối cùng cũng về rồi! Lần này định luyện loại linh đan gì? Nếu là thuốc mê thuốc độc, phải báo trước với chúng ta một tiếng!"
 
@@ -110,7 +110,7 @@ Mấy vị thái y thấy bình ngọc nhỏ này, sắc mặt đại biến. D�
 
 Tần Mục vừa nói tới đây, Du thái y đã lấy ra một con dao nhỏ, chần chừ một chút, sau đó rạch một nhát lên cánh tay Đinh thái y, máu tươi chảy ròng.
 
-Đinh thái y giận dữ, đang định nổi cáu. Tần Mục vội tiến lên, mở bình ngọc, lấy một chút long diên bôi lên vết thương. Chỉ thấy vết thương kia lập tức bắt đầu khép lại, qua mấy nhịp thở đã khôi phục như cũ, không thấy sẹo.
+Đinh thái y giận dữ, đang định nổi cáu. Tần Mục vội tiến lên, mở bình ngọc, lấy một chút long diên hương bôi lên vết thương. Chỉ thấy vết thương kia lập tức bắt đầu khép lại, qua mấy nhịp thở đã khôi phục như cũ, không thấy sẹo.
 
 Mấy vị thái y kinh ngạc, vội xúm lại. Dư thái y nói:
 

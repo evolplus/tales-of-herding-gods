@@ -22,7 +22,7 @@ Vì tốc độ của hắn quá nhanh, bốn phía sấm chớp vang rền. Lô
 
 Long Kỳ Lân hoảng hốt nói: "Có vài chỗ ta liếm không tới!"
 
-Tần Mục ổn định thân hình, thân xác nhanh chóng phục hồi. Hắn vươn tay lấy ra mấy chục bình long diên, đập vỡ, để long diên chảy vào vết thương của Long Kỳ Lân.
+Tần Mục ổn định thân hình, thân xác nhanh chóng phục hồi. Hắn vươn tay lấy ra mấy chục bình long diên hương, đập vỡ, để long diên hương chảy vào vết thương của Long Kỳ Lân.
 
 Hắn ngẩng đầu nhìn lên. Cái đầu của thân thể khổng lồ kia đã xuất hiện trong tầng mây, mây khí bốn phía bị đẩy ra. Cái đầu ấy phun ra từng luồng khí, khói đặc cuồn cuộn, trong khói mang ánh lửa.
 

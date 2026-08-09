@@ -12,13 +12,13 @@ Diên Phong Đế miễn cưỡng mở mắt, hữu khí vô lực nói: "Trẫm
 
 Tần Mục kiểm tra kỹ thương thế của ông. Mười ngón tay tung bay, nhanh chóng dùng Tạo Hóa Thiên Ma Công phong ấn thần hồn của ông, phong ấn hồn phách ông trong cơ thể. Diên Phong Đế lập tức ngay cả nói cũng không nói được, tròng mắt cũng không nhúc nhích được.
 
-Tần Mục lấy một ít long diên bôi lên miệng vết thương của ông, ngẩng đầu nhìn, chỉ thấy Lão mù và Mã gia không dừng lại, trực tiếp rời đi.
+Tần Mục lấy một ít long diên hương bôi lên miệng vết thương của ông, ngẩng đầu nhìn, chỉ thấy Lão mù và Mã gia không dừng lại, trực tiếp rời đi.
 
 "Họ đang dẫn dụ truy binh sao?"
 
 Tần Mục lấy làm lạ, nói với Long Kỳ Lân: "Về sân viện của bà bà."
 
-Long Kỳ Lân quay đầu. Tần Mục ngồi trên lưng con Long Kỳ Lân này, lại cho Diên Phong Đế uống long diên, xoa bóp trên người ông một phen để ép máu bầm ra. Trong lòng hắn tính toán một lượt, lấy ra mấy viên linh đan.
+Long Kỳ Lân quay đầu. Tần Mục ngồi trên lưng con Long Kỳ Lân này, lại cho Diên Phong Đế uống long diên hương, xoa bóp trên người ông một phen để ép máu bầm ra. Trong lòng hắn tính toán một lượt, lấy ra mấy viên linh đan.
 
 Năm đó hắn tham ngộ ra công pháp đại nhất thống, vì công pháp có tệ đoan rất lớn dẫn đến cơ thể khí huyết đều hao hụt, tinh thần suy bại. Khi ấy hắn đã luyện hai loại linh đan cứu mạng: một loại là Linh Phật Đan bổ sung tinh thần, một loại là Huyết Vinh Hoàn bổ sung khí huyết. Cuối cùng, hắn dùng Linh Hoàn Đan Đại Bổ Công ăn sạch một con Hồng Long Lý Vương, lúc này mới bù đắp được phần hao hụt của thân thể.
 

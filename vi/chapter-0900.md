@@ -134,7 +134,7 @@ Khí tức của nguyên dịch này ngay cả thần ma cũng có thể căng n
 
 "Vậy..."
 
-Tần Mục lật bàn tay, năm ngón tay kẹp bốn bình ngọc nhỏ, đổ long diên trong bình ra:
+Tần Mục lật bàn tay, năm ngón tay kẹp bốn bình ngọc nhỏ, đổ long diên hương trong bình ra:
 
 "Đựng trong bình được không?"
 

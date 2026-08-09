@@ -74,7 +74,7 @@ Khi đó, Đế hậu và Nguyên Mẫu mới biết Tần Mục không nói sai
 
 Bà khẽ bật cười, trong mắt lóe lên khoái ý: “Con tiện nhân kia, con trai ngươi hại con trai ta, bổn cung liền hại con trai ngươi!”
 
-Bà không phải Nguyên Mẫu, mà là Đế hậu. Khi Vân Thiên Tôn vào Quy Khư Đại Uyên cứu Lăng Thiên Tôn, hắn dùng đạo Luân Hồi trấn áp Nguyên Mẫu, thả Đế hậu ra, mục đích là để Đế hậu nương nương dùng diện mạo Nguyên Mẫu phu nhân ẩn núp bên cạnh Hạo Thiên Đế, quấy loạn trận doanh của Hạo Thiên Đế.
+Bà không phải Nguyên Mẫu, mà là Đế hậu. Khi Vân Thiên Tôn vào Quy Khư Đại Uyên cứu Lăng Thiên Tôn, hắn dùng đạo Luân Hồi trấn áp Nguyên Mẫu, thả Đế hậu ra, mục đích là để Đế hậu nương nương dùng diện mạo Nguyên Mẫu phu nhân ẩn nấp bên cạnh Hạo Thiên Đế, quấy loạn trận doanh của Hạo Thiên Đế.
 
 Đến nay, cuối cùng cũng thấy thành quả!
 

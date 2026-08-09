@@ -94,7 +94,7 @@ Dưới nách hắn, xương sườn gãy đâm thủng da, đầu xương lộ 
 
 Dưới vách núi, Tần Mục lảo đảo đứng dậy, gầm một tiếng, vận chuyển Tạo Hóa Nhân Vương Công, phong bế vết thương trên người.
 
-Cậu không chọn dùng nước bọt rồng để trị thương. Trong vết thương của cậu ẩn chứa kiếm ý của đối phương, nếu không trừ kiếm ý, nước bọt rồng cũng không thể chữa trị thương thế của cậu.
+Cậu không chọn dùng long diên hương để trị thương. Trong vết thương của cậu ẩn chứa kiếm ý của đối phương, nếu không trừ kiếm ý, long diên hương cũng không thể chữa trị thương thế của cậu.
 
 Hơn nữa, đối phương cũng không trị thương. Đã như vậy, dứt khoát công bằng một trận!
 

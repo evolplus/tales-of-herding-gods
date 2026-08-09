@@ -116,9 +116,9 @@ Tần Mục treo Đế Điệp trước ngực, trầm giọng nói: "Câm gia g
 
 Long Kỳ Lân vội đứng lên. Con hươu lớn bốn vó rạp sát đất, thở hồng hộc, lưỡi thè dài ra.
 
-"Phì!" Long Kỳ Lân phun một bãi long diên về phía con hươu lớn.
+"Phì!" Long Kỳ Lân phun một bãi long diên hương về phía con hươu lớn.
 
-"Tên ngốc này lãng phí quá, phun ra mấy bình long diên!" Tần Mục nổi giận, đau lòng một trận.
+"Tên ngốc này lãng phí quá, phun ra mấy bình long diên hương!" Tần Mục nổi giận, đau lòng một trận.
 
 Tiếng bước chân trong bóng tối càng lúc càng gần. Hai con giao long khổng lồ bước vào tầm mắt họ trước tiên, từ chiếc đầu rồng to như gò núi nhỏ, tới chiếc cổ dài, móng rồng sắc bén. Sau đó, một đôi chân đang giẫm lên lưng hai con giao long hiện ra trong màn đen.
 

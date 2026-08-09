@@ -84,7 +84,7 @@ Một tiếng chuông vang lên. Ngọc Vũ Phi nát xương tan thịt, máu nh
 
 Âm Cửu Tôn xách Luân Hồi Chung đẫm máu lên, cười hì hì nói: “Cha ta phong lưu phóng khoáng, nếu không phải dì xinh đẹp, ông ấy sao có thể thay lòng đổi dạ? Muốn trách thì đừng trách cha ta, trách dì quá xinh đẹp ấy. Ta sẽ không trách cha ta đâu, đàn ông mà...”
 
-Hắn nâng Luân Hồi Chung, sải bước đi về phía Tần Mục đang nằm trên đất, cười nói: “Ta chờ lâu như vậy, cuối cùng cũng tìm được cơ hội lập công này. Mục Thiên Tôn, cha ta nói không sai, ngươi quả thật có bản lĩnh hơn người. Ta ẩn núp gần đây lâu như vậy, cuối cùng cũng tìm được một cơ hội ra tay ám toán ngươi. Vận số của ngươi hết rồi.”
+Hắn nâng Luân Hồi Chung, sải bước đi về phía Tần Mục đang nằm trên đất, cười nói: “Ta chờ lâu như vậy, cuối cùng cũng tìm được cơ hội lập công này. Mục Thiên Tôn, cha ta nói không sai, ngươi quả thật có bản lĩnh hơn người. Ta ẩn nấp gần đây lâu như vậy, cuối cùng cũng tìm được một cơ hội ra tay ám toán ngươi. Vận số của ngươi hết rồi.”
 
 Coong!
 

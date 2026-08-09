@@ -22,7 +22,7 @@ Tần Mục nối lại xương sườn bị gãy, bỏ mặc thi thể hòa th�
 
 Nếu vận may không tốt, ngay cả xương cũng chẳng còn.
 
-Hắn trở về thôn, hái vài loại linh dược trong vườn thuốc ngoài thôn, luyện hai lò linh đan, một loại trị ngoại thương, một loại trị nội thương, sau đó xin Long Kỳ Lân một ít long diên để pha thuốc.
+Hắn trở về thôn, hái vài loại linh dược trong vườn thuốc ngoài thôn, luyện hai lò linh đan, một loại trị ngoại thương, một loại trị nội thương, sau đó xin Long Kỳ Lân một ít long diên hương để pha thuốc.
 
 Long Kỳ Lân thấy hắn bị đánh thành như vậy thì lộ vẻ kinh ngạc, nhưng không hỏi nhiều.
 

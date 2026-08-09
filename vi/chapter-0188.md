@@ -40,7 +40,7 @@ Tần Mục rơi xuống đất, lăn hơn mười vòng mới dừng lại. H�
 
 Khóe miệng Tần Mục rướm máu, hai mắt trợn tròn, lồng ngực nghẹn đến mức không thở nổi. Một lát sau, hắn đột nhiên thở hổn hển từng ngụm lớn, trong phổi truyền ra tiếng rè, hẳn là phổi bị chấn thương.
 
-Hắn thở dốc mấy hơi, lấy Hồ Linh Nhi khỏi ngực. Hồ Linh Nhi cũng bị thương không nhẹ, hôn mê bất tỉnh. Tần Mục vội lấy một bình ngọc từ túi Thao Thiết, nạy miệng nàng, nhỏ vài giọt long diên vào miệng nàng.
+Hắn thở dốc mấy hơi, lấy Hồ Linh Nhi khỏi ngực. Hồ Linh Nhi cũng bị thương không nhẹ, hôn mê bất tỉnh. Tần Mục vội lấy một bình ngọc từ túi Thao Thiết, nạy miệng nàng, nhỏ vài giọt long diên hương vào miệng nàng.
 
 Một lát sau, cáo nhỏ từ từ tỉnh lại, ngẩn ra một lúc rồi nức nở:
 

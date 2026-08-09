@@ -90,7 +90,7 @@ Quỷ thuyền đột nhiên khởi hành. Trên mặt sông, sương mù dần 
 
 Quỷ thuyền đi trong sương mù. Đột nhiên, trong sương mù sấm chớp đùng đùng, từng tia sét loạn bổ bên ngoài thuyền.
 
-Sắc mặt Tần Mục và Ngụy Tùy Phong khẽ biến. Quỷ thuyền tiến vào sương mù, vật chất bất dịch khiến người vật trên Quỷ thuyền bắt đầu chảy ngược, trở về quá khứ. Thế nhưng cường giả đáng sợ ẩn núp đi theo kia vẫn không từ bỏ, vậy mà cũng nhân cơ hội bám theo!
+Sắc mặt Tần Mục và Ngụy Tùy Phong khẽ biến. Quỷ thuyền tiến vào sương mù, vật chất bất dịch khiến người vật trên Quỷ thuyền bắt đầu chảy ngược, trở về quá khứ. Thế nhưng cường giả đáng sợ ẩn nấp đi theo kia vẫn không từ bỏ, vậy mà cũng nhân cơ hội bám theo!
 
 “Bọn họ không lên thuyền, mà theo sương mù vào đây!”
 

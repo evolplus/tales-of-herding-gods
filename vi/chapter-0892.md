@@ -36,7 +36,7 @@ Lão què cả giận, đột nhiên ho dữ dội, ho ra máu.
 
 Long Kỳ Lân vội nói:
 
-"Què lão gia, ông chạy quá nhanh, bôn ba mấy ngày không nghỉ, đã tổn thương hồn phách và phế phủ. Hồn phách thì ta không biết chữa, nhưng thương thế thân xác chỉ cần dùng một chút long diên là được. Long diên chỗ ta nhiều lắm..."
+"Què lão gia, ông chạy quá nhanh, bôn ba mấy ngày không nghỉ, đã tổn thương hồn phách và phế phủ. Hồn phách thì ta không biết chữa, nhưng thương thế thân xác chỉ cần dùng một chút long diên hương là được. Long diên hương chỗ ta nhiều lắm..."
 
 "Lão tử không uống nước bọt của ngươi! Tạo Hóa Công của lão tử đã rất mạnh, không cần nước bọt của ngươi cũng có thể khỏi!"
 

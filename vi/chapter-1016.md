@@ -62,9 +62,9 @@ Tần Mục thở dài, thầm nghĩ: "Nếu có thể trộm hết công pháp 
 
 Cuối cùng, Thiên Long bảo liễn đến Thiên Thánh học cung. Tần Mục bước xuống bảo liễn, còn chưa kịp vào cửa đã nghe tiếng "ma ha ma ha" truyền tới. Hơn trăm con giao long kêu ngọt lịm, nhấn chìm hắn và Long Kỳ Lân.
 
-Tần Mục bị đám giao long liếm đến toàn thân đầy nước dãi rồng, vất vả lắm mới thoát thân, lại thấy Long Kỳ Lân bị đám giao long vùi ở dưới. Yên Nhi vội lấy ra ít linh đan, lúc này mới dụ được đám giao long đi.
+Tần Mục bị đám giao long liếm đến toàn thân đầy long diên hương, vất vả lắm mới thoát thân, lại thấy Long Kỳ Lân bị đám giao long vùi ở dưới. Yên Nhi vội lấy ra ít linh đan, lúc này mới dụ được đám giao long đi.
 
-Tần Mục chỉnh lại y phục, lấy gương ra soi, xác nhận trên mặt không dính nước dãi rồng rồi mới bước vào học cung.
+Tần Mục chỉnh lại y phục, lấy gương ra soi, xác nhận trên mặt không dính long diên hương rồi mới bước vào học cung.
 
 Thiên Thánh học cung hiện nay gọi là Thiên Thánh giáo, nhưng vẫn dùng phương thức dạy học của học cung, chưa hề thay đổi.
 

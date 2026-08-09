@@ -44,7 +44,7 @@ Nơi này không giống U Đô, không giống cấm địa giam giữ trọng 
 
 Trấn Hồn Tả Sứ khẽ nói:
 
-"Năm xưa sau khi bọn họ xông vào U Đô, gần như là tự chui đầu vào lưới. Trong U Đô có bốn đại tiết độ sứ của Thiên Đình, còn có những thế lực khác ẩn núp. Sau khi bọn họ xông vào thì trốn đông trốn tây. Chưa được mấy ngày, ngươi ra đời, rồi bị kẻ truy sát của Thiên Đình tìm tới. Chuyện về sau, hẳn ngươi còn nhớ chứ?"
+"Năm xưa sau khi bọn họ xông vào U Đô, gần như là tự chui đầu vào lưới. Trong U Đô có bốn đại tiết độ sứ của Thiên Đình, còn có những thế lực khác ẩn nấp. Sau khi bọn họ xông vào thì trốn đông trốn tây. Chưa được mấy ngày, ngươi ra đời, rồi bị kẻ truy sát của Thiên Đình tìm tới. Chuyện về sau, hẳn ngươi còn nhớ chứ?"
 
 Tần Mục lắc đầu, giọng khàn:
 

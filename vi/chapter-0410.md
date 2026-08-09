@@ -66,7 +66,7 @@ Tần Mục cười nói: "Để dự phòng. Nếu chân của Què gia gia l�
 
 "Phi phi! Lời trẻ nhỏ không chấp, đại cát đại lợi!"
 
-Lão què nhổ liền hai cái. Tần Mục lập tức tất bật chuẩn bị, nấu một nồi thang thuốc, chuẩn bị sẵn Vô Ưu Kiếm, thuốc mỡ và long diên để nối lại hai chân cho Lão què.
+Lão què nhổ liền hai cái. Tần Mục lập tức tất bật chuẩn bị, nấu một nồi thang thuốc, chuẩn bị sẵn Vô Ưu Kiếm, thuốc mỡ và long diên hương để nối lại hai chân cho Lão què.
 
 Dù sao hắn cũng đã quen tay quen việc, từng nối thân thể cho Lão què và Đồ phu, nối hai cái chân này không khó, trái lại còn rất nhẹ nhàng.
 

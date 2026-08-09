@@ -134,15 +134,15 @@ Tần Mục rút Thiếu Bảo Kiếm, đưa về phía Đồ phu, nói:
 
 Đồ phu rút sát trư đao, cắn răng cắt một nhát phía dưới thân mình, cắt bỏ lớp màng thịt kết lại ở vết thương. Tu vi ông mạnh mẽ, lập tức dùng nguyên khí phong bế vết thương, không để vết thương chảy máu.
 
-Tần Mục vớt nửa thân dưới ra khỏi đỉnh. Vết thương ở nửa thân dưới vẫn còn tươi, không cần hạ đao nữa. Tần Mục lấy từng bình ngọc ra, cẩn thận bôi long diên lên mặt cắt của nửa thân dưới và nửa thân trên.
+Tần Mục vớt nửa thân dưới ra khỏi đỉnh. Vết thương ở nửa thân dưới vẫn còn tươi, không cần hạ đao nữa. Tần Mục lấy từng bình ngọc ra, cẩn thận bôi long diên hương lên mặt cắt của nửa thân dưới và nửa thân trên.
 
-Long diên vừa bôi lên, chỉ thấy từng sợi mầm thịt nhanh chóng sinh trưởng, như từng con sâu nhỏ màu đỏ không ngừng ngọ nguậy.
+Long diên hương vừa bôi lên, chỉ thấy từng sợi mầm thịt nhanh chóng sinh trưởng, như từng con sâu nhỏ màu đỏ không ngừng ngọ nguậy.
 
 Hắn không lập tức nối hai đoạn thân thể lại với nhau, mà hóa nguyên khí thành tơ, lựa từng sợi gân mạch và thần kinh ra, để gân mạch nối liền, thần kinh nối liền.
 
 Tơ nguyên khí trào ra giữa ngón tay và lòng bàn tay hắn càng lúc càng nhiều, nối từng sợi mầm thịt, nối màng thịt, nối ruột dạ, nối xương sống. Thân thể Đồ phu dần khép lại, nhưng da ở eo vẫn chưa mọc ra.
 
-Cuối cùng Tần Mục bôi long diên lên miệng vết thương của ông. Da cũng tự sinh trưởng, nối liền chỗ bị thương.
+Cuối cùng Tần Mục bôi long diên hương lên miệng vết thương của ông. Da cũng tự sinh trưởng, nối liền chỗ bị thương.
 
 Hắn phấn chấn tinh thần, vác Đồ phu lên, đặt vào trong dược đỉnh, đổ gói dược liệu cuối cùng vào đỉnh, nhóm lửa chậm rãi hầm.
 

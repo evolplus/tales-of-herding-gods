@@ -220,7 +220,7 @@ Tần Mục đi ra khỏi hoàng cung, chỉ thấy thần thanh khí sảng, th
 
 Quốc sư Diên Khang biết thân phận thật của hắn. Nếu Diên Phong Đế không biết, hắn sẽ hơi lo lắng. Hiện giờ hoàng đế và Quốc sư đều biết, ngược lại an toàn, không cần lo hai vị cự đầu này ra tay với hắn.
 
-Hơn mười ngày sau, tây phòng của Tần Mục chất đầy Đại Phong tệ đổi bằng long diên. Bá Sơn Tế Tửu dẫn Vệ Dung và Mẫn Nguyệt thế tử ra ngoài lịch luyện, tới tây phòng của hắn ôm mấy bao tiền đi. Tần Mục cũng chẳng bận tâm, dù sao tài lực hùng hậu.
+Hơn mười ngày sau, tây phòng của Tần Mục chất đầy Đại Phong tệ đổi bằng long diên hương. Bá Sơn Tế Tửu dẫn Vệ Dung và Mẫn Nguyệt thế tử ra ngoài lịch luyện, tới tây phòng của hắn ôm mấy bao tiền đi. Tần Mục cũng chẳng bận tâm, dù sao tài lực hùng hậu.
 
 Mấy ngày nay hễ rảnh là hắn luyện chế Xích Hỏa Linh Đan và một loại linh đan bổ sung tinh thần khác. Vì khi luyện loại linh đan này hắn dùng thủ pháp Phật môn, linh đan luyện thành sẽ truyền ra Phật âm, nên Tần Mục gọi loại linh đan này là Linh Phật Đan.
 

@@ -22,9 +22,9 @@ Lúc này cậu mới cảm thấy trước ngực truyền tới đau đớn d�
 
 Đây cũng là mục đích quan trọng nhất của đạo kiếm quang thứ ba của cậu, phá hủy uy hiếp trí mạng, giữ lại tính mạng của mình.
 
-Lâu Thiên Trọng dù sao cũng cực kỳ mạnh mẽ. Tuy Tần Mục tránh được yếu hại, nhưng tổn thương gây ra cho cậu vẫn không nhỏ. Chỉ dựa vào long diên còn không thể chữa khỏi. Trong vết thương của cậu vẫn còn tàn dư thần thông của Lâu Thiên Trọng, cần phải trừ bỏ.
+Lâu Thiên Trọng dù sao cũng cực kỳ mạnh mẽ. Tuy Tần Mục tránh được yếu hại, nhưng tổn thương gây ra cho cậu vẫn không nhỏ. Chỉ dựa vào long diên hương còn không thể chữa khỏi. Trong vết thương của cậu vẫn còn tàn dư thần thông của Lâu Thiên Trọng, cần phải trừ bỏ.
 
-Tần Mục xử lý vết thương, luyện bỏ thần thông còn sót của Lâu Thiên Trọng, thúc giục Vô Lậu Tạo Hóa Huyền Kinh, lại phối hợp long diên, song quản tề hạ, lúc này mới cảm thấy dễ chịu hơn chút.
+Tần Mục xử lý vết thương, luyện bỏ thần thông còn sót của Lâu Thiên Trọng, thúc giục Vô Lậu Tạo Hóa Huyền Kinh, lại phối hợp long diên hương, song quản tề hạ, lúc này mới cảm thấy dễ chịu hơn chút.
 
 Bên cạnh cầu Đối Thiên ồn ào náo động. Tần Mục bước lên trước, thì ra thần thông giả bảo vệ cầu Đối Thiên đang chặn Tề Cửu Nghi và Triết Hoa Lê lại.
 

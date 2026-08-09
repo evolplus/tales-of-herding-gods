@@ -16,7 +16,7 @@ Nhưng vị Vu Vương này bay dọc đường tìm bọn họ, chứng tỏ B�
 
 Tần Mục ném cho Linh Dục Tú một bình ngọc nhỏ, quả quyết nói:
 
-"Muội tử, long diên có hiệu quả kỳ diệu với vết thương trên người muội. Muội bôi lên thân thể trước, bôi xong lập tức ngủ. Sáng mai chúng ta lên đường ngay!"
+"Muội tử, long diên hương có hiệu quả kỳ diệu với vết thương trên người muội. Muội bôi lên thân thể trước, bôi xong lập tức ngủ. Sáng mai chúng ta lên đường ngay!"
 
 Linh Dục Tú gật đầu, đi vào phòng. Một lát sau, cô gái này mở cửa phòng thò đầu ra, mái tóc đen mượt trước ngực rủ xuống, lộ ra nửa bờ vai trơn bóng. Những chỗ khác trên thân thể thì trốn sau cửa, có chút thẹn thùng:
 

@@ -70,7 +70,7 @@ Dao động do lần giao phong thứ ba sinh ra truyền tới. Đám Tần M�
 
 Mọi người vội đứng dậy, chỉ thấy vị đại sư tỷ của Tiểu Ngọc Kinh là Mộ Thanh Đại đã bị đè đến trợn trắng mắt.
 
-Tần Mục vội bóp miệng nàng, rót cho nàng một bình long diên, lúc này mới cứu được nàng tỉnh lại.
+Tần Mục vội bóp miệng nàng, rót cho nàng một bình long diên hương, lúc này mới cứu được nàng tỉnh lại.
 
 Luồng dao động thứ tư cách nơi này xa hơn, nhưng dao động vẫn không nhỏ, chấn đến thân thể mọi người run loạn. Dao động không gian khiến thân thể họ lúc cao lúc thấp, lúc béo lúc gầy. Khi béo, ngay cả Mộ Thanh Đại gầy nhất cũng bị không gian co nhỏ ép thành một cô nương béo tròn như quả cầu. Khi gầy, dù là Long Kỳ Lân béo nhất cũng bị kéo dài thành thon thả hẳn, không còn cái bụng lớn nữa.
 

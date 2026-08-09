@@ -28,17 +28,17 @@ Tần Mục thúc giục lượng nguyên khí còn sót lại. Vân Kiếm th�
 
 Trên mặt đất, Long Du rên khẽ. Hắn cũng không rút được thanh phi kiếm đang cắm trong ngực mình, bèn học theo dáng vẻ của Tần Mục, vỗ mạnh xuống đất. Phi kiếm lập tức xuyên qua lồng ngực.
 
-Long Du đau đến mức phát ra một tiếng kêu thảm long trời lở đất, nghiến chặt răng. Đúng lúc này, hai bình ngọc bay tới, chính là hai bình long diên Tần Mục ném cho hắn.
+Long Du đau đến mức phát ra một tiếng kêu thảm long trời lở đất, nghiến chặt răng. Đúng lúc này, hai bình ngọc bay tới, chính là hai bình long diên hương Tần Mục ném cho hắn.
 
-Long Du vội chộp lấy trong tay. Hắn không kịp mở nút bình, dùng sức bóp vỡ cả hai bình ngọc. Long diên chảy ra, lập tức bị nguyên khí của hắn cuốn lên đưa vào vết thương của mình.
+Long Du vội chộp lấy trong tay. Hắn không kịp mở nút bình, dùng sức bóp vỡ cả hai bình ngọc. Long diên hương chảy ra, lập tức bị nguyên khí của hắn cuốn lên đưa vào vết thương của mình.
 
-Công hiệu của long diên phát huy, máu thịt ở ngực hắn sinh trưởng, vừa đau vừa ngứa.
+Công hiệu của long diên hương phát huy, máu thịt ở ngực hắn sinh trưởng, vừa đau vừa ngứa.
 
 Long Du không để ý cơn đau dữ dội trước ngực, lập tức nhào lên, đánh tới đám huyết giao nhỏ xíu đang chạy tứ tán trên mặt đất.
 
 Cùng lúc đó, Vương Mộc Nhiên và Mộ Thanh Đại cũng làm theo, mỗi người cưỡng ép thoát khỏi tường và cột, để phi kiếm đang ghim chặt họ kéo theo một mảng máu thịt.
 
-Tần Mục cũng ném cho mỗi người hai bình long diên. Hai người vội đổ vào vết thương. Nếu là lúc bình thường, để tránh lưu lại ám tật, bọn họ còn phải thúc giục nguyên khí ép máu bầm trong cơ thể ra ngoài. Lúc này họ không còn lo được nhiều như vậy, lập tức thúc giục linh binh của mình, đánh tới những huyết giao nhỏ xíu kia.
+Tần Mục cũng ném cho mỗi người hai bình long diên hương. Hai người vội đổ vào vết thương. Nếu là lúc bình thường, để tránh lưu lại ám tật, bọn họ còn phải thúc giục nguyên khí ép máu bầm trong cơ thể ra ngoài. Lúc này họ không còn lo được nhiều như vậy, lập tức thúc giục linh binh của mình, đánh tới những huyết giao nhỏ xíu kia.
 
 "Đừng giẫm lên máu hỏng và Đế Điệp!"
 

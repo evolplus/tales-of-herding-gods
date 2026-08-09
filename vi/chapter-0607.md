@@ -14,7 +14,7 @@ Khí huyết trong cơ thể Tần Mục thất thoát cực nhanh. Cậu không
 
 Cuối cùng, cậu xông tới chân núi. Trong đầu đã trống rỗng, vì thiếu máu, hai tai cậu nghe thấy tiếng ù như sấm, hai mắt tối đen.
 
-Nguyên thần Tần Mục xuất khiếu, dùng nguyên thần quan sát bốn phía. Tay phải nhanh chóng lấy long diên từ túi Thao Thiết ra, đổ lên vết thương trên cổ, sau đó lại lấy Linh Phật Đan bổ huyết dưỡng vinh, nhanh chóng uống vào.
+Nguyên thần Tần Mục xuất khiếu, dùng nguyên thần quan sát bốn phía. Tay phải nhanh chóng lấy long diên hương từ túi Thao Thiết ra, đổ lên vết thương trên cổ, sau đó lại lấy Linh Phật Đan bổ huyết dưỡng vinh, nhanh chóng uống vào.
 
 Cậu sờ thân thể mình, trong lòng kinh hãi. Chỉ trong chốc lát ngắn ngủi này, cậu đã gầy trơ xương, e rằng cần tĩnh dưỡng một thời gian mới khôi phục được.
 

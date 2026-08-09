@@ -34,7 +34,7 @@ Tần Mục rên khẽ, vất vả rút mười ngón tay máu thịt be bét ra
 
 "Không cần."
 
-Hai tay Tần Mục lắc lư vô lực. Hắn vận chuyển nguyên khí, cưỡng ép nối lại cánh tay, nhịn đau lấy ra một bình long diên, bôi lên mười ngón tay rồi thở phào một hơi.
+Hai tay Tần Mục lắc lư vô lực. Hắn vận chuyển nguyên khí, cưỡng ép nối lại cánh tay, nhịn đau lấy ra một bình long diên hương, bôi lên mười ngón tay rồi thở phào một hơi.
 
 Long sào chân long vừa xuất hiện, Đế Điệp trước ngực hắn lập tức lại rục rịch, trở nên nóng bỏng. Hơn nữa, Đế Điệp còn đang duỗi "thân mình", như một con rồng nhỏ ngọ nguậy, cố bay khỏi trước ngực hắn để trở về Long sào.
 

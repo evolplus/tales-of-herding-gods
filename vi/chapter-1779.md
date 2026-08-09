@@ -104,7 +104,7 @@ Tần Mục tới mũi thuyền nhìn xuống, chỉ thấy gương mặt bà ta
 
 Tần Mục thở ra một hơi đục, trầm giọng nói: "Lần này ta tới bãi ô uế của Chung Cực Hư Không, gặp Đại công tử Thái Thượng, lĩnh ngộ ra một đạo lý đơn giản. Tựa núi núi đổ, dựa tường tường sập. Trên đời này không ai có thể dựa vào, bao gồm cả Thái Dịch! Thứ chúng ta có thể dựa vào chỉ có chính chúng ta!"
 
-Ánh mắt hắn chớp động. Thái Dịch đối với hắn tự nhiên không còn gì để nói, đối với Kỷ thứ mười bảy cũng có đại ân đức. Nhưng Thái Dịch chính là Chủ nhân Thiên Đô. Nếu dung hợp với người bại liệt, Khai Thiên chúng không biết ẩn núp nơi nào sẽ xuất hiện!
+Ánh mắt hắn chớp động. Thái Dịch đối với hắn tự nhiên không còn gì để nói, đối với Kỷ thứ mười bảy cũng có đại ân đức. Nhưng Thái Dịch chính là Chủ nhân Thiên Đô. Nếu dung hợp với người bại liệt, Khai Thiên chúng không biết ẩn nấp nơi nào sẽ xuất hiện!
 
 Theo những gì hắn biết, hành động của Khai Thiên chúng còn quá đáng hơn Di La Cung!
 

@@ -110,13 +110,13 @@ Hùng Kỳ Nhi nắm lấy Thanh Long Châu, cười ngọt ngào nói: "Cảm �
 
 Long Kỳ Lân nước dãi chảy ào ào, vẫy đuôi với Hùng Kỳ Nhi: "Chị ơi, cho ta chơi viên châu một chút đi! Chị yên tâm, ta tuyệt đối không ăn, ta dám cam đoan!"
 
-Tần Mục vội lấy ra mấy bình ngọc đặt dưới miệng gã này hứng long diên, thầm nghĩ: "Hứng thêm mấy bình, về kinh thành bán đi, lại có tiền rồi... Ừm, lần này về thôn trước, đón Linh Nhi tới. Nàng quản tiền giỏi hơn ta nhiều."
+Tần Mục vội lấy ra mấy bình ngọc đặt dưới miệng gã này hứng long diên hương, thầm nghĩ: "Hứng thêm mấy bình, về kinh thành bán đi, lại có tiền rồi... Ừm, lần này về thôn trước, đón Linh Nhi tới. Nàng quản tiền giỏi hơn ta nhiều."
 
 Cậu hứng hơn mười bình, Hùng Kỳ Nhi bỏ Thanh Long Châu vào túi áo nhỏ của mình, nước dãi Long Kỳ Lân lúc này mới ngừng.
 
 Tần Mục nháy mắt với Hùng Kỳ Nhi. Hùng Kỳ Nhi tuy còn nhỏ nhưng thông minh lanh lợi, lại lấy Thanh Long Châu ra. Đuôi Long Kỳ Lân vẫy vù vù, nước dãi lại chảy ào ào.
 
-Tần Mục hứng hơn hai mươi bình long diên, hài lòng thỏa ý. Cậu sợ long diên của Long Kỳ Lân chảy quá nhiều sẽ ảnh hưởng chất lượng, bèn ra hiệu cho Hùng Kỳ Nhi cất Thanh Long Châu đi.
+Tần Mục hứng hơn hai mươi bình long diên hương, hài lòng thỏa ý. Cậu sợ long diên hương của Long Kỳ Lân chảy quá nhiều sẽ ảnh hưởng chất lượng, bèn ra hiệu cho Hùng Kỳ Nhi cất Thanh Long Châu đi.
 
 Hai con Bạch Bức cũng khôi phục lại, Hùng Tích Vũ cũng hồi phục sức lực. Tần Mục dẫn bọn họ đi về phía đông.
 

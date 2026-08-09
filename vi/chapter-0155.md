@@ -128,7 +128,7 @@ Hắn khép địa lý đồ Lâu Lan Hoàng Kim Cung lại, đứng dậy đi r
 
 "Suýt nữa lấy nhầm Thất Mê Hương..."
 
-Hắn lấy ra một bình ngọc khác, cẩn thận lấy một ít long diên ra, bôi lên vết thương trên vai. Rất nhanh, chỗ bị thương phục hồi, cũng không còn đau nữa.
+Hắn lấy ra một bình ngọc khác, cẩn thận lấy một ít long diên hương ra, bôi lên vết thương trên vai. Rất nhanh, chỗ bị thương phục hồi, cũng không còn đau nữa.
 
 "Đan Ba La" cất bình ngọc, nghĩ một lát, cầm Thiếu Bảo Kiếm trong tay, đi ra khỏi kim điện này, vài bước đã tới một đại điện khác.
 

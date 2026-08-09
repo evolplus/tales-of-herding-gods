@@ -50,7 +50,7 @@ Ngọc Thần Tử nói:
 
 "Ngọc Thần sư huynh, tài trí của huynh dùng ở Thanh Vân Thiên thì tiếc quá. Kế sách rửa sạch hiềm nghi cho Thanh Vân Thiên của huynh, ta nhìn ra được, đó là một chuỗi bẫy liên hoàn, khiến Thanh Vân Thiên hoàn toàn thoát khỏi nghi ngờ."
 
-Tần Mục bôi long diên lên vết thương trên người Lão mù, liếc hắn một cái, khen:
+Tần Mục bôi long diên hương lên vết thương trên người Lão mù, liếc hắn một cái, khen:
 
 "Đội chính Thần Bộ doanh dù sao cũng là quan thất phẩm trong thần quan Thiên Đình. Hắn chết ở đây, chắc chắn sẽ dẫn cường giả Thiên Đình tới tranh đấu với Địa Long. Địa Long ắt phải chết. Khúc đội chính là người có bản lĩnh, Địa Long lại là cường giả sánh với cảnh giới Lăng Tiêu, vậy mà đều phải chết trong tay huynh. Tài cán của huynh bị nhốt trong Thanh Vân Thiên, chí lớn không nơi thi triển, chỉ khiến huynh ôm hận cả đời."
 
@@ -58,7 +58,7 @@ Ngọc Thần Tử cười nói:
 
 "Ta vốn là đạo nhân, đạo nhân nên say mê đạo thuật. Ở lại Thanh Vân Thiên cũng chẳng có gì không tốt."
 
-Tần Mục lấy ra mấy bình long diên tươi, định để Lão mù uống.
+Tần Mục lấy ra mấy bình long diên hương tươi, định để Lão mù uống.
 
 Lão mù lắc đầu:
 
@@ -66,7 +66,7 @@ Lão mù lắc đầu:
 
 Tần Mục vội nói:
 
-"Không phải nước miếng, là long diên. Nội tạng của ông bị rễ Địa Long đâm thủng rất nhiều chỗ, nếu không uống thì vết thương toàn thân sẽ nứt toác, chẳng mấy chốc máu sẽ chảy cạn."
+"Không phải nước miếng, là long diên hương. Nội tạng của ông bị rễ Địa Long đâm thủng rất nhiều chỗ, nếu không uống thì vết thương toàn thân sẽ nứt toác, chẳng mấy chốc máu sẽ chảy cạn."
 
 Long Kỳ Lân khục khặc cười:
 

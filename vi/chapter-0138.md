@@ -104,7 +104,7 @@ Dị thú Long Kỳ Lân kia nâng mắt, liếc cậu một cái, sau đó thè
 
 Tần Mục chỉ cảm thấy vai dần dần mát lạnh, sau đó cảm giác đau chậm rãi biến mất. Cậu vội cúi đầu kéo cổ áo nhìn, chỉ thấy vết thương nhỏ do kiếm mang đâm trên vai đang chậm rãi thu nhỏ. Những vết kiếm này có hơn mười vết, lúc này đều đang khép lại.
 
-Trong lòng Tần Mục kinh ngạc: "Đây là... long diên? Hay kỳ lân diên? Bất kể là loại nào cũng đều là dược liệu tốt!"
+Trong lòng Tần Mục kinh ngạc: "Đây là... long diên hương? Hay kỳ lân diên? Bất kể là loại nào cũng đều là dược liệu tốt!"
 
 Cậu vội giơ bàn tay lên. Dị thú kia lại liếm lòng bàn tay cậu một cái.
 
@@ -114,7 +114,7 @@ Tần Mục nhìn thấy máu thịt trong lòng bàn tay mình chậm rãi sinh
 
 Tần Mục ngồi xổm xuống, lấy một bình ngọc trong ngực ra, đặt dưới miệng dị thú, cười nói: "Là loại chua chua ấy, chua rụng răng ấy. Không thích sao? Vậy hoàng mai thì sao? Cũng đặc biệt đặc biệt chua, huynh chỉ nghĩ tới là sẽ bị chua đến chảy nước miếng... Cũng không thích? Ta mời huynh ăn chanh vậy..."
 
-Dị thú kia lườm cậu hai cái, không nói một lời, cũng không để ý tới cậu, ngồi ở đó không nhúc nhích, càng không có nước miếng long diên gì chảy xuống.
+Dị thú kia lườm cậu hai cái, không nói một lời, cũng không để ý tới cậu, ngồi ở đó không nhúc nhích, càng chẳng có chút long diên hương nào chảy xuống.
 
 "Vậy huynh thích ăn gì?" Tần Mục hỏi.
 
@@ -126,7 +126,7 @@ Tần Mục vỗ ngực, cười nói: "Người huynh đệ nghĩa khí như hu
 
 Long Kỳ Lân mừng rỡ, khóe miệng như sắp rơi nước dãi, rồi lại hít một tiếng nuốt về.
 
-Tần Mục đành trở lên núi, thầm nghĩ: "Xem ra chỉ có lôi con trâu xanh lớn kia tới cho hắn mới lừa được long diên. Con trâu xanh này, hình như ta từng thấy ở đâu rồi, dường như đang ăn cỏ trước một sân viện... Ừm, đi hỏi Linh Nhi. Mảnh núi này nó chạy qua chạy lại, quen thuộc hơn ta."
+Tần Mục đành trở lên núi, thầm nghĩ: "Xem ra chỉ có lôi con trâu xanh lớn kia tới cho hắn mới lừa được long diên hương. Con trâu xanh này, hình như ta từng thấy ở đâu rồi, dường như đang ăn cỏ trước một sân viện... Ừm, đi hỏi Linh Nhi. Mảnh núi này nó chạy qua chạy lại, quen thuộc hơn ta."
 
 Cậu đi lên núi. Lúc này trong Sĩ Tử Cư, Thần Thông Cư và Hoàng Tử Uyển đã lục tục có người tỉnh lại, túm năm tụm ba đi xuống núi, đi ngang qua bên cạnh Tần Mục. Một vị hoàng tử nói: "Được Quốc sư chỉ điểm, ta chỉ cảm thấy tu vi của mình tiến mạnh, hẳn có thể đại chiến ba trăm hiệp với vị đạo tử kia!"
 

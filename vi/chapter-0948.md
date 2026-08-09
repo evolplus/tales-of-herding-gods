@@ -64,7 +64,7 @@ Dù sao Đế hậu nương nương và Nguyên Mẫu phu nhân đều là cổ 
 
 Mục đích ban đầu khi Thiên Minh thành lập là để mọi người có quyền sống sót, nhưng tới trung kỳ thời Long Hán, sau khi Vân Thiên Tôn hấp thu Hạo Thiên Tôn và những người khác gia nhập, mục đích của Thiên Minh đã là trừ bỏ cổ thần, đoạt lấy quyền thống trị.
 
-Vì thế cổ thần ẩn núp trong Thiên Minh tuyệt đối không được bại lộ thân phận.
+Vì thế cổ thần ẩn nấp trong Thiên Minh tuyệt đối không được bại lộ thân phận.
 
 Tần Mục và Lạc Vô Song nhanh chóng xuyên qua tòa thành trống rỗng này, có chút kinh hồn táng đảm. Thần thông của Vân Sơ Tụ và Liên Hoa Hồn quá mạnh, không ai biết dư ba thần thông của họ sẽ kích phát ấn ký Hỏa Thiên Tôn và giọt thần huyết kia vào lúc nào.
 

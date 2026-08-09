@@ -146,7 +146,7 @@ Diên Phong Đế nhìn ra bên ngoài, nói: "Hồ máu ngoài kia?"
 
 "Là vị thần kia để lại. Hắn rất mạnh, chỉ bị chút thương ngoài da."
 
-Vết thương trước ngực Quốc sư Diên Khang lại rách ra. Tần Mục bôi cho ông một ít long diên, thương thế vừa lành lại lập tức bị thần thông tàn dư do thần giấu trong vết thương xé rách.
+Vết thương trước ngực Quốc sư Diên Khang lại rách ra. Tần Mục bôi cho ông một ít long diên hương, thương thế vừa lành lại lập tức bị thần thông tàn dư do thần giấu trong vết thương xé rách.
 
 Loại thương này đã không còn thuốc đá nào chữa được. Dù là linh đan có thể hoàn hồn cũng không loại bỏ được thần thông tàn dư của thần.
 
@@ -164,7 +164,7 @@ Hồ máu rung chuyển dữ dội, bùng lên tiếng vang kinh thiên động 
 
 Quốc sư Diên Khang tán thưởng: "Lại dùng uy năng thần huyết để triệt tiêu thần thông tàn dư của thần."
 
-Tần Mục bôi long diên lên lần nữa. Vết thương của ông cuối cùng không chảy máu nữa. Tần Mục nói: "Các thần thông khác trong cơ thể ông, ta không dẫn ra được. Bệ hạ, Quốc sư, hiện giờ có hai con đường. Một là ta đưa hai vị tới Đại Khư chữa thương, hai là đi kinh thành. Hai vị chọn một đường đi."
+Tần Mục bôi long diên hương lên lần nữa. Vết thương của ông cuối cùng không chảy máu nữa. Tần Mục nói: "Các thần thông khác trong cơ thể ông, ta không dẫn ra được. Bệ hạ, Quốc sư, hiện giờ có hai con đường. Một là ta đưa hai vị tới Đại Khư chữa thương, hai là đi kinh thành. Hai vị chọn một đường đi."
 
 Quốc sư Diên Khang nhìn Diên Phong Đế. Hai nam tử trung niên tâm ý tương thông, đồng thanh nói: "Kinh thành!"
 

@@ -6,7 +6,7 @@ Cậu đau đến toàn thân co giật, ngay sau đó hai tay cũng gãy gập.
 
 Bây giờ cậu không dám dùng chút sức nào, chỉ sợ hơi thở nặng thêm một chút là toàn bộ xương sườn cũng sẽ vỡ vụn.
 
-Pháp lực của cậu cũng đã cạn sạch, không thể lấy long diên trong Túi Thao Thiết ra trị thương.
+Pháp lực của cậu cũng đã cạn sạch, không thể lấy long diên hương trong Túi Thao Thiết ra trị thương.
 
 Đau đớn nhấn chìm cậu. Từng hạt mồ hôi không ngừng rịn ra.
 

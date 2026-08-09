@@ -30,7 +30,7 @@ Nam Thiên.
 
 Bạch Ngọc Quỳnh bình định loạn Nam Thiên, mở giáo dục, lập học viện học cung. Trải qua trận chiến Nam Thiên, Bạch Ngọc Quỳnh liên thủ với U Minh Thái Tử đại phá đại quân Thiên Đình, Thương Bình Ẩn trốn chạy. Dư nghiệt Thiên Đình nổi loạn khắp nơi, Bạch Ngọc Quỳnh và U Minh Thái Tử phải dùng hơn mười năm mới tiêu diệt được các lộ phản quân.
 
-Nhưng lúc này vẫn còn dư nghiệt Thiên Đình ẩn núp trong Nam Thiên, thỉnh thoảng lại xuất hiện một hai cuộc phản loạn, chỉ là phản loạn quy mô lớn đã không còn.
+Nhưng lúc này vẫn còn dư nghiệt Thiên Đình ẩn nấp trong Nam Thiên, thỉnh thoảng lại xuất hiện một hai cuộc phản loạn, chỉ là phản loạn quy mô lớn đã không còn.
 
 "Thái tử điện hạ, ta đến Diên Khang yết kiến Diên Phong Đế, thuật lại chiến sự Nam Thiên. Nam Thiên trăm việc đều cần khôi phục, đặc biệt mảng giáo dục bị Hỏa Thiên Tôn độc hại quá sâu, khó mà giải quyết. Ta đi gặp Diên Phong Đế lần này là cầu Diên Phong Đế giúp đỡ."
 

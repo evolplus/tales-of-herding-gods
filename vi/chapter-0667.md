@@ -48,7 +48,7 @@ Nhưng đầu của Lâu Thiên Trọng lại cứ thế mất tích.
 
 "Ma Thần trong Thừa Thiên Chi Môn thật ra chính là bản thể của ngươi, không phải Ma Thần chân chính, chỉ là trông rất lợi hại thôi."
 
-Tần Mục lấy một bình long diên, đổ lên vết thương ở ngực, nói với cái đầu trong tay: "Ngươi trốn trong Minh Đô, từ Minh Đô công kích ta. Vì vậy trong mắt người ở Thái Hoàng Thiên, ngươi là một bóng đen, không đánh được bản thể của ngươi. Cho nên Hư Sinh Hoa mới bị ngươi đánh bại. Hắn không hiểu sâu về Đại Khư, cũng biết không nhiều về pháp thuật thần thông U Đô. Thực lực của ngươi còn không bằng Tề Cửu Nghi, chỉ ỷ vào thần thông Minh Đô kỳ diệu mà thôi. Nhưng gặp một người sinh ra ở U Đô, lớn lên ở Đại Khư như ta, ta có thể để ngươi chết thành nhiều kiểu hơn."
+Tần Mục lấy một bình long diên hương, đổ lên vết thương ở ngực, nói với cái đầu trong tay: "Ngươi trốn trong Minh Đô, từ Minh Đô công kích ta. Vì vậy trong mắt người ở Thái Hoàng Thiên, ngươi là một bóng đen, không đánh được bản thể của ngươi. Cho nên Hư Sinh Hoa mới bị ngươi đánh bại. Hắn không hiểu sâu về Đại Khư, cũng biết không nhiều về pháp thuật thần thông U Đô. Thực lực của ngươi còn không bằng Tề Cửu Nghi, chỉ ỷ vào thần thông Minh Đô kỳ diệu mà thôi. Nhưng gặp một người sinh ra ở U Đô, lớn lên ở Đại Khư như ta, ta có thể để ngươi chết thành nhiều kiểu hơn."
 
 Cái đầu này là đầu của tôn Ma Thần kia, nhưng lúc này lại dần dần biến hóa. Gai xương dữ tợn rụt vào trong cơ thể, tóc tai rối bời cũng dần khôi phục suôn thẳng.
 

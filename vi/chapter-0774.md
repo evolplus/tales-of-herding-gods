@@ -180,7 +180,7 @@ Thủy Kỳ Lân nghiêng đầu nhìn Long Kỳ Lân, lộ vẻ khinh thường
 
 Tần Mục vội lấy linh đan ra. Long Kỳ Lân nhanh chóng đặt chậu mặt lớn trước mặt hắn, Tần Mục đổ đầy một chậu.
 
-Long Kỳ Lân mừng rỡ, nhìn chậu linh đan chất cao thành chóp mà nước dãi rồng chảy ròng. Một lát sau nó mới rưng rưng ăn một viên, những linh đan còn lại đều được nó cất đi.
+Long Kỳ Lân mừng rỡ, nhìn chậu linh đan chất cao thành chóp mà long diên hương chảy ròng. Một lát sau nó mới rưng rưng ăn một viên, những linh đan còn lại đều được nó cất đi.
 
 "Ăn đi, ăn đi."
 

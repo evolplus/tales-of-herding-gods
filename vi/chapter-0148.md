@@ -76,7 +76,7 @@ Hồ Linh Nhi vội lấy từng bình ngọc từ trong tay nải ra. Tần M�
 
 Tần Mục đứng dậy, cười nói: "Lão sư, Tú muội tử, có thể xuất phát rồi."
 
-Bá Sơn Tế Tửu liếc Long Kỳ Lân bị đánh mê, tò mò nói: "Ngươi hứng long diên làm gì?"
+Bá Sơn Tế Tửu liếc Long Kỳ Lân bị đánh mê, tò mò nói: "Ngươi hứng long diên hương làm gì?"
 
 Tần Mục giải thích: "Đây là kỳ dược trị ngoại thương. Nếu gặp đao thương kiếm thương, bôi lên vết thương có thể khiến thịt thối sinh cơ, da hỏng bong đi. Lần này ra ngoài lịch luyện, khó tránh có thương tổn, cho nên chuẩn bị nhiều một chút, phòng khi cần tới."
 

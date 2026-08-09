@@ -154,7 +154,7 @@ Tần Mục gật đầu, nói: "Ta cũng có cảm giác này. Ban Công Thố 
 
 Mắt Tần Mục chớp một cái, nghi hoặc nói: "Không kém ta? Ta mạnh lắm đấy."
 
-Bá Sơn Tế Tửu trừng hắn một cái: "Lục Hợp Thần Tàng của hắn sắp phá vách, hơn nữa ta cảm ứng được trong cơ thể hắn dường như có một luồng sức mạnh khủng bố đang ẩn núp. Ngươi chưa chắc đánh thắng hắn! Tên Man tử này chẳng lẽ có kỳ ngộ khác? Không giống kỳ ngộ, trái lại như bị quỷ nhập vào người... Ngươi đi gặp hoàng đế trước, quay lại ta tìm ngươi."
+Bá Sơn Tế Tửu trừng hắn một cái: "Lục Hợp Thần Tàng của hắn sắp phá vách, hơn nữa ta cảm ứng được trong cơ thể hắn dường như có một luồng sức mạnh khủng bố đang ẩn nấp. Ngươi chưa chắc đánh thắng hắn! Tên Man tử này chẳng lẽ có kỳ ngộ khác? Không giống kỳ ngộ, trái lại như bị quỷ nhập vào người... Ngươi đi gặp hoàng đế trước, quay lại ta tìm ngươi."
 
 Tần Mục và Linh Dục Tú vào cung, liền thấy hoàng đế và Quốc sư Diên Khang đều ở đó. Bên cạnh còn có một nam tử xấu xí mặt đầy mụn nhọt, đang chẩn đoán thương thế cho hai người.
 

@@ -72,7 +72,7 @@ Thân thể đang cúi của Mạnh Vân Quy không chống nổi, phịch một
 
 Hư Thiên Tôn nhạt giọng nói: “Trước mặt ta không cần cẩn thận như vậy. Ngươi tính đi tính lại, lại không tính tới Thái Đế sống lại sẽ mang đến biến hóa gì. Thái Đế mới là mối họa trong tim gan. Lần này ông ta sống lại, chắc chắn sẽ không chịu yên phận.”
 
-Thân hình nàng dần dần ẩn đi, giọng nói truyền tới: “Giết hay không giết Mục Thiên Tôn, trước cứ gác sang một bên. Thái Đế mới là trọng yếu nhất hiện nay. Ông ta vẫn chưa rời khỏi Thái Hư, còn đang ẩn núp ở đây.”
+Thân hình nàng dần dần ẩn đi, giọng nói truyền tới: “Giết hay không giết Mục Thiên Tôn, trước cứ gác sang một bên. Thái Đế mới là trọng yếu nhất hiện nay. Ông ta vẫn chưa rời khỏi Thái Hư, còn đang ẩn nấp ở đây.”
 
 Mạnh Vân Quy cẩn thận bò dậy, thấp giọng nói: “Mục Thiên Tôn tới đây là để xem bản lĩnh của ta. Không biết hắn đã nhìn ra điều gì...”
 

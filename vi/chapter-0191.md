@@ -180,9 +180,9 @@ Hồ Linh Nhi nhảy lên người Long Kỳ Lân, nhìn vết thương trên m�
 
 Long Kỳ Lân hừ khẽ một tiếng, không để ý tới nàng.
 
-Tần Mục bước lên, lấy ra mấy bình long diên, bôi lên vết thương cho gã to xác này. Thương thế trên người Long Kỳ Lân khá nặng, bị ánh mắt của Đô Thiên Ma Vương cắt vào trong bắp thịt ở mông, thậm chí xé rách cả long lân trên người hắn. May mà long lân của con Long Kỳ Lân này cực kỳ kiên cố, chặn được ánh mắt Đô Thiên Ma Vương một chút, bằng không chắc chắn đã bị cắt làm hai nửa.
+Tần Mục bước lên, lấy ra mấy bình long diên hương, bôi lên vết thương cho gã to xác này. Thương thế trên người Long Kỳ Lân khá nặng, bị ánh mắt của Đô Thiên Ma Vương cắt vào trong bắp thịt ở mông, thậm chí xé rách cả long lân trên người hắn. May mà long lân của con Long Kỳ Lân này cực kỳ kiên cố, chặn được ánh mắt Đô Thiên Ma Vương một chút, bằng không chắc chắn đã bị cắt làm hai nửa.
 
-Tần Mục lại lấy ra mấy bình long diên, để Thẩm Vạn Vân và mọi người chữa thương trên người.
+Tần Mục lại lấy ra mấy bình long diên hương, để Thẩm Vạn Vân và mọi người chữa thương trên người.
 
 "Vân Khuyết, Vạn Vân à, một bình một vạn đại phong tệ."
 
@@ -198,11 +198,11 @@ Tần Mục dở khóc dở cười, nói:
 
 "Linh Nhi, đừng hồ nháo. Lần này ta dẫn bọn họ ra ngoài lịch luyện, bọn họ bị thương thì ta có trách nhiệm chữa trị, huống hồ ta còn có danh tiểu thần y. Thầy thuốc như cha mẹ, sao có thể thu tiền? Đợi lần lịch luyện này kết thúc, nếu bọn họ lại bị thương, lúc đó hẵng thu tiền. Bây giờ thu tiền sẽ làm hỏng thanh danh của ta."
 
-Việt Thanh Hồng vốn còn định xin hắn một bình long diên để dự phòng, nghe vậy lập tức bỏ ý nghĩ này, thầm nghĩ:
+Việt Thanh Hồng vốn còn định xin hắn một bình long diên hương để dự phòng, nghe vậy lập tức bỏ ý nghĩ này, thầm nghĩ:
 
 "Trong xương cốt vẫn định thu tiền chữa bệnh, quả nhiên keo kiệt lắm..."
 
-Tư Vân Hương cũng bị thương, xin Tần Mục một bình long diên, kéo Việt Thanh Hồng vào trong rừng. Hai cô gái cởi y phục, bôi thuốc cho vết thương trên người nhau, tránh để lại sẹo.
+Tư Vân Hương cũng bị thương, xin Tần Mục một bình long diên hương, kéo Việt Thanh Hồng vào trong rừng. Hai cô gái cởi y phục, bôi thuốc cho vết thương trên người nhau, tránh để lại sẹo.
 
 "Dáng người tỷ tỷ thật đẹp, ta thì không lớn được như vậy." Tư Vân Hương đánh giá Việt Thanh Hồng, khen.
 

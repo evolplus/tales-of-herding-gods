@@ -166,7 +166,7 @@ Tần Mục tung người nhảy lên Ngọc Nhai. Dưới chân Long Kỳ Lân 
 
 Tần Mục xoay người, cười nói:
 
-"Ngươi đi theo ta làm gì? Ta chỉ đánh mê ngươi một lần, lấy chút long diên thôi, đến mức thù sâu oán nặng vậy sao?"
+"Ngươi đi theo ta làm gì? Ta chỉ đánh mê ngươi một lần, lấy chút long diên hương thôi, đến mức thù sâu oán nặng vậy sao?"
 
 "Ngươi đánh mê ta, phải lo ta ăn uống."
 
@@ -208,15 +208,15 @@ Long Kỳ Lân vội kêu:
 
 Tần Mục nhức đầu, nói:
 
-"Long diên ngươi phải chia cho ta một ít mỗi ngày, nếu không ta nuôi không nổi ngươi."
+"Mỗi ngày ngươi phải chia cho ta một ít long diên hương, nếu không ta nuôi không nổi ngươi."
 
-"Long diên?"
+"Long diên hương?"
 
 Con Long Kỳ Lân này lại cảnh giác.
 
 Tần Mục nói:
 
-"Long diên chính là nước miếng của ngươi."
+"Long diên hương chính là nước miếng của ngươi."
 
 Long Kỳ Lân hiển nhiên nghĩ lệch, thở phào, nói:
 
@@ -236,6 +236,6 @@ Hồ Linh Nhi thầm kinh ngạc.
 
 Tần Mục dẫn Long Kỳ Lân lên núi, tới Ngọc Long Hồ, trước hết để con Long Kỳ Lân này uống nước, thầm nghĩ:
 
-"Ta còn chưa biết một bình nhỏ long diên có thể bán bao nhiêu tiền, nhưng đây là linh dược trị thương, giá hẳn không thấp nhỉ? Mong là kiếm lại được vốn mua dược liệu, nếu không thật sự phải ngồi ăn núi lở..."
+"Ta còn chưa biết một bình nhỏ long diên hương có thể bán bao nhiêu tiền, nhưng đây là linh dược trị thương, giá hẳn không thấp nhỉ? Mong là kiếm lại được vốn mua dược liệu, nếu không thật sự phải ngồi ăn núi lở..."
 
 [Xem chương tiếp theo](chapter-0175.md)

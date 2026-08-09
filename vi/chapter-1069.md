@@ -96,7 +96,7 @@ Ngụy Tùy Phong chỉnh lại Thiên Long bảo liễn cho hắn, chớp chớ
 
 Tần Mục dở khóc dở cười, nói: “Huynh mang theo bên người, trực tiếp truyền cho đệ là được, cần gì làm trò lần theo bản đồ cứu ta?”
 
-Ngụy Tùy Phong lắc đầu nói: “Ta ẩn núp trong Thiên Đình, biết mình rất khó giấu được Thập Thiên Tôn, không biết lúc nào sẽ chết, nên đã giấu công pháp Đế Tọa ta thu thập được ở những nơi ta từng du lịch. Sư đệ, thủ trát của Lăng Thiên Tôn cũng ở một trong những nơi đó. Sau khi cứu Nam Đế, đệ nhất định phải đi một chuyến.”
+Ngụy Tùy Phong lắc đầu nói: “Ta ẩn nấp trong Thiên Đình, biết mình rất khó giấu được Thập Thiên Tôn, không biết lúc nào sẽ chết, nên đã giấu công pháp Đế Tọa ta thu thập được ở những nơi ta từng du lịch. Sư đệ, thủ trát của Lăng Thiên Tôn cũng ở một trong những nơi đó. Sau khi cứu Nam Đế, đệ nhất định phải đi một chuyến.”
 
 Tần Mục cười nói: “Sư huynh, huynh đang ở đây, trực tiếp truyền thụ cho đệ, cần gì để đệ đi tìm trong những bản đồ địa lý ấy?”
 

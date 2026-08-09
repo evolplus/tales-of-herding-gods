@@ -48,7 +48,7 @@ Tần Mục tính toán một chút, cười nói: "Sau khi Lâu Lan Hoàng Kim 
 
 Quốc sư Diên Khang định mặc cả, Tần Mục cười nói: "Thiên Vương, bản thân ta bỏ công bỏ sức còn chưa đòi tiền công, mời thiên công thứ hai thiên hạ ra tay, cái giá không nhỏ đâu! Huống chi ta còn là Thiên Thánh giáo chủ!"
 
-Quốc sư Diên Khang thở dài: "Ta không nên đồng ý để cậu làm Thiên Vương của Thiên Thánh giáo. Giờ bó tay bó chân, không thể mặc cả. Việc này ta cần tấu lên hoàng đế, xin bệ hạ định đoạt. Những năm này Diên Khang quốc thôn tính các nước, diệt không ít môn phái, trong quốc khố cũng tích trữ được chút thần kim thần liệu, chỉ là cần hoàng đế gật đầu. Cậu chờ mười mấy ngày, thánh chỉ của hoàng đế sẽ xuống."
+Quốc sư Diên Khang thở dài: "Ta không nên đồng ý với cậu làm Thiên Vương của Thiên Thánh giáo. Giờ bó tay bó chân, không thể mặc cả. Việc này ta cần tấu lên hoàng đế, xin bệ hạ định đoạt. Những năm này Diên Khang quốc thôn tính các nước, diệt không ít môn phái, trong quốc khố cũng tích trữ được chút thần kim thần liệu, chỉ là cần hoàng đế gật đầu. Cậu chờ mười mấy ngày, thánh chỉ của hoàng đế sẽ xuống."
 
 Tần Mục xoay người đi giúp luyện chế Thần Tiêu hoàn. Đối với thần kim thần liệu, cậu thật ra không lo, cũng không cảm thấy có gì quý giá. Khi luyện chế kiếm hoàn của mình, cậu đã dùng không ít vật liệu như vậy, đều lấy từ bảo khố Thiên Ma giáo, còn các loại trấn giáo chi bảo trên người cậu thì đều nộp vào bảo khố Thiên Ma giáo.
 

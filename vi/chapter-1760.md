@@ -1,6 +1,6 @@
 # Chương 1760: Vào quan tài
 
-Cành lá Thế Giới Thụ héo tàn, rễ cây nhanh chóng co rút, phạm vi Thế Giới Thụ bao phủ cũng càng lúc càng nhỏ. Lần này Vô Nhai lão nhân bị thương quá nặng, buộc phải ẩn núp tu dưỡng.
+Cành lá Thế Giới Thụ héo tàn, rễ cây nhanh chóng co rút, phạm vi Thế Giới Thụ bao phủ cũng càng lúc càng nhỏ. Lần này Vô Nhai lão nhân bị thương quá nặng, buộc phải ẩn nấp tu dưỡng.
 
 Trong Tổ Đình, những kẻ lén vượt sử tiền nhận được cảm triệu, nhao nhao bay về phía Thế Giới Thụ. Thậm chí ngay cả Phong Thứ Tam Lão cũng rút khỏi ngoài Ngọc Kinh Thành, trở về Thế Giới Thụ.
 

@@ -20,7 +20,7 @@ Long Kỳ Lân đi tới, vươn cái lưỡi dài ngoằng ra. Vương Mộc Nh
 
 Long Kỳ Lân xử lý xong Vương Mộc Nhiên, lại liếm Mộ Thanh Đại đang hôn mê một lượt, làm cô gái này ướt sũng. Mộ Thanh Đại bị hắn liếm tỉnh, để tránh xấu hổ, chỉ đành tiếp tục giả vờ hôn mê.
 
-Long Kỳ Lân đi về phía Tần Mục. Tần Mục hữu khí vô lực nói: "Đừng liếm ta. Long Du sư huynh, thương thế của huynh thế nào rồi? Trong Túi Thao Thiết của ta có long diên đựng trong bình ngọc, huynh lấy ra giúp ta bôi một chút là được..."
+Long Kỳ Lân đi về phía Tần Mục. Tần Mục hữu khí vô lực nói: "Đừng liếm ta. Long Du sư huynh, thương thế của huynh thế nào rồi? Trong Túi Thao Thiết của ta có long diên hương đựng trong bình ngọc, huynh lấy ra giúp ta bôi một chút là được..."
 
 "Liếm hắn! Đại béo... Long Đại, nhất định phải liếm hắn!" Long Du vội kêu lên.
 
@@ -56,9 +56,9 @@ Con hươu lớn liếc thấy Long Kỳ Lân cũng đã chữa khỏi thương 
 
 "Phì!"
 
-Long Kỳ Lân phun một ngụm long diên qua, rơi trước mặt con hươu lớn, vênh váo nói: "Tự cọ đi!"
+Long Kỳ Lân phun một ngụm long diên hương qua, rơi trước mặt con hươu lớn, vênh váo nói: "Tự cọ đi!"
 
-Con hươu lớn giận dữ, nhưng chữa thương quan trọng hơn, nó chỉ đành gian nan nhích người, cọ vết thương vào long diên, đau đến co giật.
+Con hươu lớn giận dữ, nhưng chữa thương quan trọng hơn, nó chỉ đành gian nan nhích người, cọ vết thương vào long diên hương, đau đến co giật.
 
 Long Kỳ Lân nhìn dáng vẻ nó cọ tới cọ lui trong nước dãi của mình, trong lòng vô cùng khoái ý: "Con hươu chết tiệt này nhiều lần làm ta mất oai trước mặt chủ cơm, chẳng nể mặt ta. Lần này cũng phải cho nó biết sự lợi hại của ta, để nó mất mặt trước chủ cơm của nó!"
 
@@ -128,13 +128,13 @@ Long Kỳ Lân thảm thiết kêu lên.
 
 "Ngươi liếm thử xem!" Tần Mục hung dữ nói.
 
-Nói thì nói vậy, nhưng hắn vẫn lấy ra từng bình long diên, nhanh chóng đổ vào miệng vết thương, vận chuyển nguyên khí giúp Long Kỳ Lân ép máu bầm ra, phong kín vết thương.
+Nói thì nói vậy, nhưng hắn vẫn lấy ra từng bình long diên hương, nhanh chóng đổ vào miệng vết thương, vận chuyển nguyên khí giúp Long Kỳ Lân ép máu bầm ra, phong kín vết thương.
 
 Long Kỳ Lân lấy lòng nói: "Giáo chủ, lần này ta lập đại công, vậy khẩu phần..."
 
 Tần Mục không để ý tới hắn, đi tới trước mặt con hươu lớn. Con hươu lớn này còn thảm hơn Long Kỳ Lân nhiều, số phi kiếm cắm trên người nhiều hơn gấp đôi, vẫn đang cọ tới cọ lui trong nước dãi của Long Kỳ Lân.
 
-Tần Mục lắc đầu, trước tiên giúp con hươu lớn nắn xương, sau đó lấy hơn mười bình long diên giúp nó cầm máu, rồi lần lượt nhổ từng thanh phi kiếm ra.
+Tần Mục lắc đầu, trước tiên giúp con hươu lớn nắn xương, sau đó lấy hơn mười bình long diên hương giúp nó cầm máu, rồi lần lượt nhổ từng thanh phi kiếm ra.
 
 Thương thế của Vương Mộc Nhiên đã khá hơn nhiều. Hắn chạy tới nhặt sừng hươu về, cắm lên đầu con hươu lớn.
 
@@ -142,7 +142,7 @@ Thương thế của Vương Mộc Nhiên đã khá hơn nhiều. Hắn chạy t
 
 "Ồ!"
 
-Vương Mộc Nhiên vội rút sừng hươu ra, kéo theo một mảng máu. Con hươu lớn đau đớn kêu lên. Vương Mộc Nhiên vội đổi chiều sừng hươu rồi cắm trở lại, lại xin Tần Mục một bình long diên rắc lên vết thương.
+Vương Mộc Nhiên vội rút sừng hươu ra, kéo theo một mảng máu. Con hươu lớn đau đớn kêu lên. Vương Mộc Nhiên vội đổi chiều sừng hươu rồi cắm trở lại, lại xin Tần Mục một bình long diên hương rắc lên vết thương.
 
 Tần Mục lại giúp những giao long khác chữa thương, bận rộn suốt nửa ngày. Đột nhiên, sắc trời bên ngoài bỗng trắng xóa, rồi bất chợt lại tối đen như mực, sau đó bầu trời lại sáng lên lần nữa.
 

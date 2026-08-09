@@ -70,7 +70,7 @@ Tần Mục bảo Long Kỳ Lân tiến lên, đến dưới gốc cây kia rồ
 
 Mấu chốt là tuổi của Lăng Cảnh Đạo Nhân đã lớn, thân thể không còn như trước, khiến những vết thương này trở nên nghiêm trọng, rất khó tự lành.
 
-Tần Mục trầm ngâm, lấy long diên ra chữa ngoại thương cho lão, sau đó lấy mấy viên Linh Phật Đan tu bổ tổn thương trên tinh thần của Lăng Cảnh Đạo Nhân. Tần Mục lục túi Thao Thiết, hắn mua một ít dược liệu từ Thái Học Viện để phòng khi cần dùng. Số dược liệu này không nhiều, nhưng luyện linh đan chữa thương cho Lăng Cảnh Đạo Nhân hẳn cũng đủ.
+Tần Mục trầm ngâm, lấy long diên hương ra chữa ngoại thương cho lão, sau đó lấy mấy viên Linh Phật Đan tu bổ tổn thương trên tinh thần của Lăng Cảnh Đạo Nhân. Tần Mục lục túi Thao Thiết, hắn mua một ít dược liệu từ Thái Học Viện để phòng khi cần dùng. Số dược liệu này không nhiều, nhưng luyện linh đan chữa thương cho Lăng Cảnh Đạo Nhân hẳn cũng đủ.
 
 Tần Mục lập tức luyện linh đan. Thủ pháp của hắn nhanh chóng, xuất thần nhập hóa, chẳng bao lâu đã luyện xong một lò linh đan, để Lăng Cảnh Đạo Nhân uống vào.
 

@@ -94,7 +94,7 @@ Nếu đã có quy củ lằn ranh nghiêm ngặt giữa thầy và trò, hạn 
 
 Lão quyết định dùng quyền lực và uy vọng của mình để làm thành một chuyện. Những kẻ phản đối lão trong giáo đều bị lão đuổi đi lưu đày, hoặc hạ sát, giam cầm. Cuối cùng lão được như nguyện, ruồng bỏ chính thê, cưới đồ đệ của mình.
 
-Đêm đó, Tư Ấu U vùng dậy hạ sát lão. Thế nhưng việc này nằm trong dự liệu của lão. Lão biến mình thành tâm ma, ẩn núp trong đạo tâm của đệ tử, chờ khoảnh khắc trở thành nữ tử này.
+Đêm đó, Tư Ấu U vùng dậy hạ sát lão. Thế nhưng việc này nằm trong dự liệu của lão. Lão biến mình thành tâm ma, ẩn nấp trong đạo tâm của đệ tử, chờ khoảnh khắc trở thành nữ tử này.
 
 Lệ Thiên Hành nhớ lại tất cả những chuyện ấy, không khỏi ngẩn ra.
 
