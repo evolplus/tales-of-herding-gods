@@ -164,10 +164,10 @@ Tần Mục vỗ tay cười nói: "Từ nay về sau, Giang Miểu chính là h
 
 Giang Miểu và Tần Ngọc đầy mặt mờ mịt, bị hắn đè dập đầu mấy cái.
 
-Tần Mục lau mồ hôi lạnh trên trán, nói thật nhanh: "Chúc mừng hai vị! Linh Nhi, Long béo, ta dẫn các ngươi đi gặp mấy vị tiền bối Long tộc. Đi thôi!"
+Tần Mục lau mồ hôi lạnh trên trán, nói thật nhanh: "Chúc mừng hai vị! Linh Nhi, Long béo, ta dẫn hai người đi gặp mấy vị tiền bối Long tộc. Đi thôi!"
 
 Hồ Linh Nhi còn muốn xem trò vui, bị Tần Mục bế lên đặt trên lưng Long Kỳ Lân rồi cưỡng ép mang đi. Trước thành lâu chỉ còn lại Tần Ngọc và Giang Miểu nhìn nhau không nói.
 
-"Công tử, ta còn muốn xem bọn họ ở chung thế nào!" Hồ Linh Nhi hứng thú bừng bừng nói, quay đầu nhìn lại, chỉ thấy Tần Ngọc và Giang Miểu trước thành lâu nhìn nhau không lời.
+"Công tử, muội còn muốn xem bọn họ ở chung thế nào!" Hồ Linh Nhi hứng thú bừng bừng nói, quay đầu nhìn lại, chỉ thấy Tần Ngọc và Giang Miểu trước thành lâu nhìn nhau không lời.
 
 [Xem chương tiếp theo](chapter-0575.md)

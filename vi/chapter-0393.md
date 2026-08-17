@@ -94,7 +94,7 @@ Lão tộc trưởng và mấy vị trưởng lão phóng thẳng lên trời. T
 
 Vầng đại nhật màu đen kia đã biến mất, thay vào đó là một vầng mặt trời lóe ánh vàng trắng, mặc sức rải xuống nhiệt lực cuồn cuộn.
 
-"Công tử sẽ không xảy ra chuyện chứ?"
+"Mục công tử sẽ không xảy ra chuyện chứ?"
 
 Hồ Linh Nhi vội bảo Long Kỳ Lân bay về phía vầng mặt trời kia. Linh Dục Tú cũng cuống lên, liên tục thúc giục Long Kỳ Lân. Tư Vân Hương thì mừng rỡ trong lòng: "Cuối cùng người ta cũng sắp thành quả phụ xinh đẹp rồi..."
 

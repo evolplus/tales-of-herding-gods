@@ -26,11 +26,11 @@ Hồ Linh Nhi đắc ý nói: "Công tử đánh bại những sĩ tử kia, b�
 
 Tần Mục súc miệng, phun ra một hơi đục, lắc đầu nói: "Linh Nhi, làm vậy hơi không phúc hậu. Ta đã đánh người ta hai trận rồi, muội lại cướp sạch họ, còn đòi tiền chuộc, hơi quá rồi. Họ đưa tiền chuộc, sau này ta còn ngại gì mà đánh họ nữa?"
 
-Hồ Linh Nhi thè lưỡi, có chút buồn bực: "Đã đánh một lần rồi sao? Lần trước công tử đánh họ mà không cướp sạch họ? Vậy chẳng phải lỗ to sao? Quy củ Đại Khư chúng ta, công tử rõ hơn ai hết mà! Trước kia ngài cũng từng nói, cướp bằng bản lĩnh thì không gọi là cướp."
+Hồ Linh Nhi thè lưỡi, có chút buồn bực: "Đã đánh một lần rồi sao? Lần trước công tử đánh họ mà không cướp sạch họ? Vậy chẳng phải lỗ to sao? Quy củ Đại Khư chúng ta, công tử rõ hơn ai hết mà! Trước kia công tử cũng từng nói, cướp bằng bản lĩnh thì không gọi là cướp."
 
 Tần Mục lắc đầu nói: "Muội cướp rồi còn thu tiền của họ, ta sợ mình cầm tiền sẽ mềm tay, đánh ra tình cảm, lần sau không tiện ra tay. Thôi vậy, tiền của chúng ta sắp tiêu hết, có số tiền này cũng chống đỡ được một thời gian. Lần sau không được cướp nữa, chờ tiền tiêu hết rồi cướp, nước chảy nhỏ mới được dài lâu."
 
-Hồ Linh Nhi liên tục gật đầu, nói: "Công tử dậy rồi, ta đi làm chút đồ ăn."
+Hồ Linh Nhi liên tục gật đầu, nói: "Công tử dậy rồi, muội đi làm chút đồ ăn."
 
 "Làm gì nữa? Chúng ta có tiền rồi, vào thành ăn món ngon, sơn hào hải vị, gan rồng mật phượng, tùy muội chọn."
 

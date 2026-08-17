@@ -66,7 +66,7 @@ Một sĩ tử vội nói: "Đợi đã, ta muốn mua lại kiếm hạp của 
 
 ...
 
-Hồ Linh Nhi xử lý xong kiếm hạp trong sân, cầm mấy tờ giấy nợ đi vào nhà, nói: "Công tử, ngài xem mấy tờ giấy nợ này có viết sai không? Ta không biết chữ."
+Hồ Linh Nhi xử lý xong kiếm hạp trong sân, cầm mấy tờ giấy nợ đi vào nhà, nói: "Công tử xem giúp muội mấy tờ giấy nợ này có viết sai không? Muội không biết chữ."
 
 Tần Mục cười như không cười nói: "Không biết chữ mà muội cũng dám nhận giấy nợ? Mấy tờ giấy nợ này không sai, muội cất kỹ là được."
 

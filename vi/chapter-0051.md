@@ -108,7 +108,7 @@ Tư bà bà kinh ngạc, cười nói:
 
 Hồ Linh Nhi lạnh sống lưng, thầm nghĩ:
 
-"Mục công tử nói không sai. Ông già bà lão trong thôn của hắn đều là cao thủ lừa gạt, cáo già thành tinh!"
+"Mục công tử nói không sai. Ông già bà lão trong thôn của công tử đều là cao thủ lừa gạt, cáo già thành tinh!"
 
 Không bao lâu sau, họ tới Tàn Lão Thôn. Tần Mục hơi ngẩn ra, chỉ thấy bên cạnh Tàn Lão Thôn chẳng biết từ lúc nào lại mọc thêm một thôn trang!
 

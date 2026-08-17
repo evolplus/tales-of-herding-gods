@@ -84,7 +84,7 @@ Vết nứt không gian kia xé toạc mảnh đất hắn vừa đứng. Lập 
 
 Long Kỳ Lân rùng mình. Hồ Linh Nhi nhảy như bay, bật lên trán hắn, kêu lên:
 
-"Long béo mau chạy! Công tử sắp hiện nguyên hình rồi..."
+"Long béo mau chạy! Mục công tử sắp hiện nguyên hình rồi..."
 
 Long Kỳ Lân vội co chân chạy. Phía sau truyền tới tiếng nổ kinh thiên động địa. Hồ Linh Nhi quay đầu nhìn lại, chỉ thấy trâu xanh cũng đang hoảng hốt bỏ chạy. Sau lưng trâu xanh chính là tòa trạm canh cao trăm trượng, chu vi hơn mười mẫu.
 
@@ -96,7 +96,7 @@ Sau đó, tiếng nổ ầm ầm không ngừng truyền tới. Đó là thần 
 
 Hồ Linh Nhi không rảnh thưởng thức. Ánh mắt nàng nhìn về luồng sáng hình cánh bướm, trong lòng hơi mất mát:
 
-"Công tử không phải hồ ly tinh, mà là bướm tinh..."
+"Mục công tử không phải hồ ly tinh, mà là bướm tinh..."
 
 Nơi Tần Mục đứng, mặt đất cũng không ngừng sụp xuống, lún sâu. Đất dưới chân Đồ phu, Lão mù và mọi người liên tục chìm xuống, lộ ra dung nham đỏ rực!
 

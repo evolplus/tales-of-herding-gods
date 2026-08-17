@@ -128,7 +128,7 @@ Lão giả ho một tiếng, nói:
 
 Hồ Linh Nhi trốn trong ngực Tần Mục lặng lẽ ngẩng đầu, thấp giọng nói:
 
-"Mục công tử, ngươi tin câu chuyện của lão không?"
+"Mục công tử, công tử tin câu chuyện của lão không?"
 
 Tần Mục do dự. Suy đoán của cậu và lão giả này hoàn toàn trái ngược. Trong câu chuyện của lão giả, Long mẫu cứu con nên dùng long châu hại người, hút khí huyết người khác để kéo dài mạng sống cho tiểu long. Còn lão giả trừ gian giúp đời, bị long châu ám toán.
 

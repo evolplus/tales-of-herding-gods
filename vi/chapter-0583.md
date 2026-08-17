@@ -170,7 +170,7 @@ Hắn vội lấy Hoạn Nhân Kinh ra, phát hiện vẫn còn, không khỏi t
 
 Tần Mục và Hồ Linh Nhi ngồi bên bàn ăn sáng. Hắn lấy ra một quyển sổ nhỏ, cẩn thận lật xem. Hồ Linh Nhi vội nói:
 
-"Công tử, ngài xem một lượt rồi đốt đi, tuyệt đối không được nói là ta chép."
+"Công tử, xem một lượt rồi đốt đi, tuyệt đối không được nói là muội chép."
 
 Tần Mục gật đầu, tiếp tục lật xem, cười lạnh:
 

@@ -30,7 +30,7 @@ Tần Mục ngạc nhiên nói: "Ta chuẩn bị cho ngươi đủ dùng ba bố
 
 "Chuyện này..." Long Kỳ Lân không nói nên lời.
 
-Hồ Linh Nhi vội nói: "Công tử, bọn muội đang tìm tung tích của công tử. Bây giờ công tử đang ở nơi nào?"
+Hồ Linh Nhi vội nói: "Công tử, bọn muội đang tìm tung tích của công tử. Bây giờ đang ở nơi nào?"
 
 Tần Mục lắc đầu nói: "Ta cũng không biết. Lãnh địa Ma tộc, trên trời không có mặt trời, cũng không có nhật nguyệt tinh tú. Ta không phân biệt được phương hướng, cũng không biết mình đang ở đâu. Ta bị Phược Nhật La bắt đi, vất vả lắm mới trốn ra được, giờ đang bị tinh nhuệ Ma tộc truy sát, nguyên thần không thể ở đây lâu."
 
@@ -94,7 +94,7 @@ Tư Vân Hương và Linh Dục Tú nhìn nhau, đồng thanh nói: "Bọn ta đ
 
 "Còn có muội!" Hồ Linh Nhi giơ đuôi lên, sau đó nhìn về phía Long Kỳ Lân.
 
-Long Kỳ Lân chần chừ một chút. Ánh mắt Hồ Linh Nhi lóe lên, dịu giọng nói: "Long béo, không tìm được công tử, ngươi chỉ có thể nhịn đói thôi."
+Long Kỳ Lân chần chừ một chút. Ánh mắt Hồ Linh Nhi lóe lên, dịu giọng nói: "Long béo, không tìm được Mục công tử, ngươi chỉ có thể nhịn đói thôi."
 
 Long Kỳ Lân lập tức tinh thần phấn chấn: "Tính ta một suất!"
 

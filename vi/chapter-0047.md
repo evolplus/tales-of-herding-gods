@@ -60,7 +60,7 @@ Dĩ nhiên, lúc Tần Mục đi vệ sinh, nó vẫn sẽ né ra.
 
 Hồ Linh Nhi vừa mừng vừa kinh ngạc, giọng trong trẻo nói:
 
-"Ngươi đứng ở đây ba ngày rồi, không bẩn mới lạ!"
+"Công tử đứng ở đây ba ngày rồi, không bẩn mới lạ!"
 
 "Ba ngày rồi?"
 
@@ -94,7 +94,7 @@ Tiếng ca này cho cậu cảm giác như trong sương mù có một nữ tử
 
 Tần Mục cúi đầu nhìn, không khỏi dở khóc dở cười. Hóa ra Hồ Linh Nhi run như cầy sấy, ôm chặt chân cậu, cái đuôi lại đặt lên Khích Khí La. Tâm Tần Mục không loạn, mà là tâm tiểu hồ ly loạn.
 
-"Linh Nhi, ngươi dời đuôi ra một chút." Tần Mục nói.
+"Linh Nhi, muội dời đuôi ra một chút." Tần Mục nói.
 
 Hồ Linh Nhi gạt đuôi sang một bên, tiếp tục run rẩy.
 

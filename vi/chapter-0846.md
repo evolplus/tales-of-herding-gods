@@ -110,7 +110,7 @@ Yên Nhi tiếp tục đút ăn, nói:
 
 Hồ Linh Nhi nhai linh đan rôm rốp, nói:
 
-"Công tử cũng rất lợi hại, Bá Sơn Tế Tửu muốn đánh huynh ấy thì hơi khó... Linh đan này có thể làm rỗng ở giữa không? Nếu mỗi viên linh đan đều thêm ít rượu ngon vào, vậy mùi vị sẽ càng tuyệt."
+"Công tử cũng rất lợi hại, Bá Sơn Tế Tửu muốn đánh công tử thì hơi khó... Linh đan này có thể làm rỗng ở giữa không? Nếu mỗi viên linh đan đều thêm ít rượu ngon vào, vậy mùi vị sẽ càng tuyệt."
 
 Ngự Thiên Tôn tới bên cạnh họ, há miệng, Yên Nhi đút một viên.
 

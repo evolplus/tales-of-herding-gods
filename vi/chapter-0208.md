@@ -120,7 +120,7 @@ Tần Mục thở ra một hơi đục. Giao dịch với nhân vật như Đô 
 
 Hắn vào gian phía tây lấy ít tiền, chuẩn bị tới kho phủ mua Hàn Thiết Kim Tinh và gỗ tốt để điêu khắc tượng thần. Lại thấy Hồ Linh Nhi đứng ở cửa nhìn quanh, Tần Mục cười nói:
 
-"Linh Nhi, ngươi không đi tu luyện, đứng đây ngóng gì?"
+"Linh Nhi, muội không đi tu luyện, đứng đây ngóng gì?"
 
 Hồ Linh Nhi ủ rũ:
 

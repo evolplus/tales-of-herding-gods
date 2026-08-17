@@ -114,7 +114,7 @@ Phong Tú Vân buồn bực nói:
 
 Hồ Linh Nhi cũng đột nhiên căng thẳng, thấp giọng nói:
 
-"Công tử, ta cảm giác có một luồng khí tức đang tới gần chúng ta, khí tức rất âm lạnh..."
+"Công tử, muội cảm giác có một luồng khí tức đang tới gần chúng ta, khí tức rất âm lạnh..."
 
 Đúng lúc này, Tần Mục đột nhiên mơ hồ cảm thấy có thứ gì đang nhìn mình. Ngư long sau lưng nhảy ra, há miệng nhả nửa đoạn Thiếu Bảo Kiếm.
 
@@ -144,7 +144,7 @@ Tần Mục nghe tiếng hát trong nước liền cảm thấy đáy lòng hơi
 
 Cậu đột nhiên tung người nhảy khỏi lâu thuyền, rơi lên mặt nước. Phong Tú Vân vươn tay chộp nhưng không bắt được cậu. Hồ Linh Nhi cũng nhảy ra, sau đó nhìn thấy nữ tử trong nước, không khỏi sởn gai ốc, vội vừa nhảy vừa chạy theo cậu. Hồ ly nhỏ đạp trên mặt nước chạy như điên, giẫm ra từng gợn sóng.
 
-"Công tử, chậm chút! Ta sợ..."
+"Công tử, chậm chút! Muội sợ..."
 
 Tiếng hát vẫn tiếp tục. Dù cậu đi nhanh đến đâu cũng không thể đuổi kịp nữ tử trong nước.
 

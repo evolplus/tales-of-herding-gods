@@ -116,7 +116,7 @@ Tần Mục ngồi dậy, phát hiện mình đang nằm trên giường. Hẳn 
 
 Hồ Linh Nhi thở phào, nói:
 
-"Công tử làm ta sợ chết khiếp. Chỉ trong thời gian ngắn, huynh đã đói gầy đi. Lúc nãy huynh ngã xuống, ta còn lo huynh không dậy nổi nữa..."
+"Công tử làm muội sợ chết khiếp. Chỉ trong thời gian ngắn, công tử đã đói gầy đi. Lúc nãy công tử ngã xuống, muội còn lo không dậy nổi nữa..."
 
 Tần Mục yên tâm dẫn hóa dược lực. Chỉ thấy theo dược lực tan ra, được thân thể hấp thu, chết thì tạm thời chưa chết được, nhưng thân thể vẫn đang trong trạng thái hao hụt.
 

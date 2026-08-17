@@ -160,7 +160,7 @@ Tần Mục nhíu mày, trong lòng hơi bất an: "Ta ở Thiên Đình nghèo 
 
 Vị thần nhân kia đưa họ tới phủ Mục Thiên Tôn ở Ngọc Kinh Thành. Chỉ thấy phủ đệ này cực kỳ rộng lớn, hơn nữa xa hoa, năm bước một lầu, mười bước một gác, quả thực là một tòa tiểu Thiên Cung!
 
-Tần Mục hơi mờ mịt, chỉ nghe bên trong truyền tới giọng Hồ Linh Nhi: "Nhanh lên nhanh lên! Trước khi công tử trở về, phải trang trí nơi này cho xong... Đây là Thiên Tôn phủ, tốt xấu gì cũng phải có khí phái của Thiên Tôn phủ, không thể làm công tử mất mặt. Chúng ta lại không thiếu tiền... Long béo, tới bên này, đây là cung điện của ngươi..."
+Tần Mục hơi mờ mịt, chỉ nghe bên trong truyền tới giọng Hồ Linh Nhi: "Nhanh lên nhanh lên! Trước khi Mục công tử trở về, phải trang trí nơi này cho xong... Đây là Thiên Tôn phủ, tốt xấu gì cũng phải có khí phái của Thiên Tôn phủ, không thể làm Mục công tử mất mặt. Chúng ta lại không thiếu tiền... Long béo, tới bên này, đây là cung điện của ngươi..."
 
 Tần Mục bước vào Thiên Tôn phủ, nghe giọng Hồ Linh Nhi càng lúc càng gần: "...Ngươi thích bố trí thành long sào hay kỳ lân quật? Khi ngủ có cần buộc xích mới ngủ được không? Hay ta bảo xưởng đốc tạo Thiên Công của Diên Khang rèn cho ngươi một sợi xích thuần kim?"
 

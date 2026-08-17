@@ -90,7 +90,7 @@ Hồ Linh Nhi liên tục gật đầu.
 
 Tuy cô là yêu, nhưng cảnh tượng trước mắt cũng làm cô sợ hãi.
 
-"Linh Nhi, ngươi về trước tìm những tỷ muội của ngươi. Ta xuống xem thử, tránh để những thi thể này chất đống tạo thành hồ chắn dòng nghìn xác!"
+"Linh Nhi, muội về trước tìm những tỷ muội của muội. Ta xuống xem thử, tránh để những thi thể này chất đống tạo thành hồ chắn dòng nghìn xác!"
 
 Tần Mục nói xong liền tung người lao xuống, men theo vách đá chạy thẳng xuống mặt sông bên dưới, sau đó đạp sông mà đi.
 

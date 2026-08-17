@@ -160,7 +160,7 @@ Lão tộc trưởng bất đắc dĩ, đành đặt nàng vào suối nước n
 
 "Phì, ông mới tiểu tiện ấy!"
 
-Hồ Linh Nhi hớn hở ngồi xuống, chỉ cảm thấy từng luồng sức mạnh từ trong nước tràn tới, tưới nhuần tứ chi bách hài, Thần Tàng, Linh Thai, hồn phách, nơi nào cũng khoan khoái. Nàng nhìn cô bé gầy yếu bên cạnh, mừng rỡ nói: "Tinh tỷ tỷ nhà họ Viêm, hóa ra tỷ cũng ở đây. Công tử, sao người không mở mắt? À đúng rồi, lúc nãy khi người nằm sấp ở đó, mông người lộ ra ngoài đấy!"
+Hồ Linh Nhi hớn hở ngồi xuống, chỉ cảm thấy từng luồng sức mạnh từ trong nước tràn tới, tưới nhuần tứ chi bách hài, Thần Tàng, Linh Thai, hồn phách, nơi nào cũng khoan khoái. Nàng nhìn cô bé gầy yếu bên cạnh, mừng rỡ nói: "Tinh tỷ tỷ nhà họ Viêm, hóa ra tỷ cũng ở đây. Công tử, sao không mở mắt? À đúng rồi, lúc nãy khi công tử nằm sấp ở đó, mông công tử lộ ra ngoài đấy!"
 
 Tần Mục chậm rãi mở mắt. Hai cô bé chỉ cảm thấy trước mắt trắng xóa, giống như vô số mặt trời đồng thời bùng phát ánh sáng mãnh liệt, đâm vào mắt khiến nước mắt tuôn rơi!
 

@@ -62,7 +62,7 @@ Trong Hoa Hạng, Tần Mục nhìn những lầu gác hai bên, trong lòng bu�
 
 "Tiểu ca ca lên chơi đi!" Có mấy tiểu tỷ tỷ trên lầu vẫy tay với cậu.
 
-"Mục công tử, cậu quen họ sao?"
+"Mục công tử, công tử quen họ sao?"
 
 Hồ Linh Nhi buồn bực nói: "Các cô ấy gọi rất nhiệt tình đó!"
 

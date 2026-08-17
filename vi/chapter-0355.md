@@ -56,7 +56,7 @@ Lão điếc vội vàng ăn cơm, đầu cũng không ngẩng lên, nói: "Chư
 
 "Lão điếc gia gia nên tới trước cửa Quốc sư phủ bán tranh, Quốc sư Diên Khang chắc chắn sẵn lòng bỏ giá cao mua."
 
-Hồ Linh Nhi nói tới đây, đột nhiên nhớ ra, ảo não nói: "Quốc sư Diên Khang cũng không có tiền. Phu nhân ông ấy sinh, thêm một bé trai, lệnh Phúc lão đưa thiệp mời tới cho công tử. Công tử không ở nhà nên con đi. Quốc sư Diên Khang cũng không ở nhà, tiệc mừng làm rất đơn sơ, canh trong nước nhạt. Mẹ con họ đói đến xanh xao, nói là Quốc sư đánh trận, quốc khố cũng không còn bao nhiêu tiền, nên Quốc sư quyên cả tích góp của mình. Con nhất thời mềm lòng bèn gói một bao lì xì lớn cho phu nhân, phu nhân liền quấn lấy con, nói muốn cho con trai nhận công tử làm cha nuôi... Sau đó hoàng đế nghe nói, trong cung tiết kiệm ăn dùng chắt bóp được một ít tiền, mẹ con họ mới có thể no bụng."
+Hồ Linh Nhi nói tới đây, đột nhiên nhớ ra, ảo não nói: "Quốc sư Diên Khang cũng không có tiền. Phu nhân ông ấy sinh, thêm một bé trai, lệnh Phúc lão đưa thiệp mời tới cho Mục công tử. Mục công tử không ở nhà nên con đi. Quốc sư Diên Khang cũng không ở nhà, tiệc mừng làm rất đơn sơ, canh trong nước nhạt. Mẹ con họ đói đến xanh xao, nói là Quốc sư đánh trận, quốc khố cũng không còn bao nhiêu tiền, nên Quốc sư quyên cả tích góp của mình. Con nhất thời mềm lòng bèn gói một bao lì xì lớn cho phu nhân, phu nhân liền quấn lấy con, nói muốn cho con trai nhận Mục công tử làm cha nuôi... Sau đó hoàng đế nghe nói, trong cung tiết kiệm ăn dùng chắt bóp được một ít tiền, mẹ con họ mới có thể no bụng."
 
 Lão điếc nói: "Quân tử cố cùng, tiểu nhân cùng thì làm bậy. Quốc sư Diên Khang đúng là tri âm của ta."
 
@@ -92,7 +92,7 @@ Lão điếc lắc đầu: "Ta bán tranh là sống được, không cần con 
 
 Tần Mục dở khóc dở cười, gỡ Hồ Linh Nhi đang cọ qua cọ lại trên cổ mình xuống, ôm vào lòng nhẹ nhàng vuốt đầu nhỏ của nàng, cười nói: "Linh Nhi đang học chữ với Lão điếc gia gia? Chữ trong sách đều nhận ra không?"
 
-Hồ Linh Nhi lại biến thành một bé gái, cười ngọt ngào nói: "Đều nhận ra, chỉ là ý nghĩa không dễ hiểu lắm. Những ngày này con thường chạy tới cầu Lão điếc gia gia dạy con."
+Hồ Linh Nhi lại biến thành một bé gái, cười ngọt ngào nói: "Đều nhận ra, chỉ là ý nghĩa không dễ hiểu lắm. Những ngày này muội thường chạy tới cầu Lão điếc gia gia dạy muội."
 
 Tần Mục đặt nàng xuống, ánh mắt lóe lên, nói: "Lão điếc gia gia bán chữ họa như vậy không được. Người biết hàng dù sao cũng ít. Hơn nữa gần đây đánh trận, thái bình chuộng chữ họa, loạn thế quý vàng, hai năm trước lại thiên tai liên miên, người có tiền cũng không nhiều. Nếu ông muốn bán được, phải thi triển chút thủ đoạn."
 

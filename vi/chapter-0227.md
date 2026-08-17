@@ -92,13 +92,13 @@ Long Kỳ Lân chậm rãi nói: "Ả không mặc áo quần, đương nhiên l
 
 Tần Mục cười nói: "Phía sau còn có truy binh, chúng ta đi thôi." Nói xong, hắn lén liếc qua khe hở giữa rừng bia đá đen một cái.
 
-"Công tử là chính nhân quân tử!" Hồ Linh Nhi tràn đầy tin tưởng với hắn, khen ngợi.
+"Mục công tử là chính nhân quân tử!" Hồ Linh Nhi tràn đầy tin tưởng với hắn, khen ngợi.
 
 "Quan nhân bên ngoài, cứu mạng với!"
 
 Nữ tử trong hồ thảm thiết kêu lên: "Mau đẩy ngã bia đá, cứu thiếp thân ra, thiếp thân nguyện lấy thân báo đáp!"
 
-Tần Mục và mọi người vòng qua ven hồ. Hồ Linh Nhi lanh lảnh nói: "Yêu tinh, công tử nhà ta sẽ không mắc mưu ngươi đâu. Nói cho ngươi biết, công tử nhà ta là Thánh giáo chủ của Thiên Thánh giáo!"
+Tần Mục và mọi người vòng qua ven hồ. Hồ Linh Nhi lanh lảnh nói: "Yêu tinh, Mục công tử nhà ta sẽ không mắc mưu ngươi đâu. Nói cho ngươi biết, Mục công tử nhà ta là Thánh giáo chủ của Thiên Thánh giáo!"
 
 Đột nhiên nữ tử ấy im bặt. Một giọng nói âm trầm vang lên: "Thánh giáo chủ của Thiên Thánh giáo?"
 

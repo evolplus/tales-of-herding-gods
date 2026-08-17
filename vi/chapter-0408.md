@@ -74,7 +74,7 @@ Long Kỳ Lân chần chừ, kêu khổ: "Giáo chủ, làm gì có nhiều nư�
 
 "Suỵt, đừng nói nước miếng."
 
-Hồ Linh Nhi vội nhảy tới bên tai Long Kỳ Lân, nhỏ giọng nói: "Gọi là long diên hương. Nói nước miếng thì sau này bán không được đâu. Ngươi ngoan ngoãn liếm cho họ đi, ta bảo công tử cho ngươi thêm bữa."
+Hồ Linh Nhi vội nhảy tới bên tai Long Kỳ Lân, nhỏ giọng nói: "Gọi là long diên hương. Nói nước miếng thì sau này bán không được đâu. Ngươi ngoan ngoãn liếm cho họ đi, ta bảo Mục công tử cho ngươi thêm bữa."
 
 Long Kỳ Lân lập tức phấn chấn tinh thần, vội vàng bận rộn, nói: "Linh Nhi tỷ, chuyện thêm bữa đừng quên đấy."
 

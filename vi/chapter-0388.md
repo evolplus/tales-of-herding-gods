@@ -84,7 +84,7 @@ Tần Mục nhìn quanh một vòng, ánh mắt rơi lên người Linh Dục T�
 
 Hắn lộ vẻ áy náy, nói: "Các muội không giống chúng ta. Các muội là người bên ngoài, còn chúng ta là khí dân Đại Khư."
 
-Hồ Linh Nhi hóa thành tiểu hồ ly, nhảy lên cổ Tần Mục, đuổi con mặc giao đang quấn trên người hắn xuống, treo ở đó như một chiếc khăn quàng cổ, nói: "Ta cũng là khí dân Đại Khư, ta sẽ đi cùng công tử!"
+Hồ Linh Nhi hóa thành tiểu hồ ly, nhảy lên cổ Tần Mục, đuổi con mặc giao đang quấn trên người hắn xuống, treo ở đó như một chiếc khăn quàng cổ, nói: "Muội cũng là khí dân Đại Khư, muội sẽ đi cùng công tử!"
 
 Tư Vân Hương thẹn thùng nói: "Lấy gà theo gà, lấy chó theo chó. Người ta đã là giáo chủ phu nhân rồi, giáo chủ đi đâu, giáo chủ phu nhân đương nhiên cũng phải đi theo."
 

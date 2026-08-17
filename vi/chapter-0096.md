@@ -184,7 +184,7 @@ Tần Mục đáp lễ những con hồ ly này, nói:
 
 Mắt bạch hồ sáng long lanh, vội chạy vào nhà cỏ, thu dọn một phen. Con hồ ly nhỏ này đeo một chiếc bọc nhỏ nhanh chân đi ra, cười nói:
 
-"Các tỷ muội, các muội ở lại đây tu luyện. Ta và công tử ra ngoài xông xáo. Chúng ta xuất phát!"
+"Các tỷ muội, các muội ở lại đây tu luyện. Ta và Mục công tử ra ngoài xông xáo. Chúng ta xuất phát!"
 
 Bọc đồ của hồ ly nhỏ nhỏ hơn bọc của Tần Mục cả trăm lần, đeo trên lưng trông rất xinh xắn.
 
@@ -212,7 +212,7 @@ Tần Mục lắc đầu nói:
 
 Hồ Linh Nhi chớp chớp mắt:
 
-"Đại gia hỏa ngốc nghếch như vậy, làm sao lanh lợi bằng ta? Hơn nữa công tử dọc đường ăn ở sinh hoạt cũng cần có người chăm sóc chứ? Thiếp thân không muốn gả cho Yêu Linh Đại Vương, công tử nỡ lòng đưa hồ vào miệng hổ sao?"
+"Đại gia hỏa ngốc nghếch như vậy, làm sao lanh lợi bằng muội? Hơn nữa dọc đường công tử ăn ở sinh hoạt cũng cần có người chăm sóc chứ? Muội không muốn gả cho Yêu Linh Đại Vương, công tử nỡ lòng đưa hồ vào miệng hổ sao?"
 
 Tần Mục bất đắc dĩ, nói:
 

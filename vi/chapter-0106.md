@@ -138,7 +138,7 @@ Tần Mục đã đi xa, cười nói với tiểu hồ ly trốn trong bọc đ
 
 Hồ Linh Nhi giật mình, thất thanh:
 
-"Công tử, cao thủ Thi Tiên giáo kia cũng có thể bị độc chết sao? Ta thấy tu vi ông ta cao lắm!"
+"Công tử, cao thủ Thi Tiên giáo kia cũng có thể bị độc chết sao? Muội thấy tu vi ông ta cao lắm!"
 
 Tần Mục thản nhiên nói:
 

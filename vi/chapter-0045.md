@@ -14,7 +14,7 @@ Tần Mục bật cười.
 
 Bạch hồ nghe tiếng cười, vội ngẩng đầu. Thấy thiếu niên ngoài cửa sổ, nó thở phào. Giọng nói trở lại bình thường, trong trẻo dễ nghe:
 
-"Hóa ra là thiếu niên hôm trước mượn gió của ta. Hôm trước ta đi dự tiệc uống say, có chút thất lễ, chậm trễ rồi. Công tử đừng đứng ngoài đó, vào đi."
+"Hóa ra là thiếu niên hôm trước mượn gió của muội. Hôm trước muội đi dự tiệc uống say, có chút thất lễ, chậm trễ rồi. Công tử đừng đứng ngoài đó, vào đi."
 
 Tần Mục bước vào thảo lư, nhìn đông nhìn tây, trong lòng hơi kinh ngạc. Trong thảo lư này được sắp xếp vô cùng gọn gàng sạch sẽ. Có giường, chum gạo, đồ đạc, bình phong, thậm chí còn có cả bàn trang điểm.
 
@@ -24,11 +24,11 @@ Bạch hồ đứng bằng hai chân sau, cúi người thi lễ với Tần M�
 
 Tần Mục đáp lễ, tò mò hỏi:
 
-"Ngươi đang nấu cơm?"
+"Muội đang nấu cơm?"
 
 Bạch hồ nói:
 
-"Hôm qua các tỷ muội mời khách, ta uống nhiều mấy chén. Sáng nay dậy hơi nhức đầu, đang nấu một bát canh giải rượu. Mời công tử ngồi."
+"Hôm qua các tỷ muội mời khách, muội uống nhiều mấy chén. Sáng nay dậy hơi nhức đầu, đang nấu một bát canh giải rượu. Mời công tử ngồi."
 
 Trong lòng Tần Mục thầm lấy làm lạ. Con bạch hồ này thông minh hơn Ma viên một chút, vậy mà còn biết tự nấu canh. Chỉ là con hồ ly này tham chén, ngày nào cũng uống say.
 
@@ -38,7 +38,7 @@ Cậu liếc thấy bên cạnh có một giá sách, bèn đi tới. Trên giá
 
 Bạch hồ nấu xong canh giải rượu, thấy Tần Mục đọc đến nhập thần, mừng rỡ hỏi:
 
-"Ta không biết chữ trong sách, chỉ nhìn hình mà tu luyện. Nếu công tử nhận ra chữ bên trên, có thể giảng cho ta nghe không?"
+"Muội không biết chữ trong sách, chỉ nhìn hình mà tu luyện. Nếu công tử nhận ra chữ bên trên, có thể giảng cho muội nghe không?"
 
 "Có gì không được?"
 
@@ -56,11 +56,11 @@ Bạch hồ vừa uống canh giải rượu vừa nghe đến mê mẩn, chợt
 
 Tần Mục nói:
 
-"Mi tâm chính là Linh Thai Thần Tàng. Dẫn khí lên Phương Thốn Sơn, tức là dẫn nguyên khí tới mi tâm. Nhưng khi nguyên khí vận hành đến mi tâm, sẽ có thần âm từ ngoài chín tầng trời truyền tới, cản trở nguyên khí của ngươi."
+"Mi tâm chính là Linh Thai Thần Tàng. Dẫn khí lên Phương Thốn Sơn, tức là dẫn nguyên khí tới mi tâm. Nhưng khi nguyên khí vận hành đến mi tâm, sẽ có thần âm từ ngoài chín tầng trời truyền tới, cản trở nguyên khí của muội."
 
 Bạch hồ thử một chút, lắc đầu:
 
-"Ta không nghe thấy thần âm."
+"Muội không nghe thấy thần âm."
 
 Tần Mục nhíu mày. Trước kia khi cậu dẫn nguyên khí tới mi tâm, sẽ có thần âm ngăn cản cậu phá vách. Cậu vốn tưởng bạch hồ cũng sẽ gặp tình huống này, không ngờ bạch hồ lại nói không có.
 
@@ -70,17 +70,17 @@ Cậu không nghĩ nhiều, tiếp tục giảng giải. Không bao lâu sau, c�
 
 Bạch hồ thông minh, lĩnh ngộ nội dung trong sách rồi cười nói:
 
-"Trước kia ta tu luyện theo hình, vốn tưởng đã học được thứ ghi trong sách, không ngờ vẫn luyện sai rất nhiều chỗ. Đa tạ công tử giải hoặc cho ta. Ta tên Hồ Linh Nhi, dám hỏi công tử họ tên?"
+"Trước kia muội tu luyện theo hình, vốn tưởng đã học được thứ ghi trong sách, không ngờ vẫn luyện sai rất nhiều chỗ. Đa tạ công tử giải hoặc cho muội. Muội tên Hồ Linh Nhi, dám hỏi công tử họ tên?"
 
 "Ta tên Tần Mục, nghĩa là thằng bé chăn bò họ Tần, không phải công tử gì cả."
 
 Tần Mục cười nói:
 
-"Ta ở gần đây, cách nơi này không xa. Cổ tịch ở chỗ ngươi lấy từ đâu ra?"
+"Ta ở gần đây, cách nơi này không xa. Cổ tịch ở chỗ muội lấy từ đâu ra?"
 
 Hồ Linh Nhi uống canh giải rượu, cảm thấy cái đầu choáng váng đỡ hơn một chút, nói:
 
-"Đi về phía tây, cách đây sáu mươi dặm có một di tích. Có lần ta ra ngoài về muộn, liền trốn bóng tối trong di tích ấy, vô tình mở được một thạch thất, phát hiện mấy cuốn sách này cùng một bình đan dược. Ta uống đan dược vào, bỗng tai thính mắt sáng, có ý thức, cảm thấy sách là thứ tốt nên mang về. Chỉ là ta không biết chữ, vì vậy vẫn chỉ có thể nhìn hình. Pháp thuật của ta đều học từ sách."
+"Đi về phía tây, cách đây sáu mươi dặm có một di tích. Có lần muội ra ngoài về muộn, liền trốn bóng tối trong di tích ấy, vô tình mở được một thạch thất, phát hiện mấy cuốn sách này cùng một bình đan dược. Muội uống đan dược vào, bỗng tai thính mắt sáng, có ý thức, cảm thấy sách là thứ tốt nên mang về. Chỉ là muội không biết chữ, vì vậy vẫn chỉ có thể nhìn hình. Pháp thuật của muội đều học từ sách."
 
 "Về phía tây sáu mươi dặm?"
 
@@ -90,7 +90,7 @@ Tần Mục kinh ngạc, suy nghĩ:
 
 Mắt Hồ Linh Nhi sáng lên:
 
-"Ở đó quả thật có rất nhiều tượng rồng. Nhưng bên trong rất hiểm ác, có đại hung hiểm. Ta không dám vào, chỉ mang ít sách về."
+"Ở đó quả thật có rất nhiều tượng rồng. Nhưng bên trong rất hiểm ác, có đại hung hiểm. Muội không dám vào, chỉ mang ít sách về."
 
 Tần Mục vội hỏi:
 
@@ -104,13 +104,13 @@ Nó rất xấu hổ, không nói tiếp. Nghĩ đến khi đó hẳn đã sợ 
 
 Tần Mục hơi hưng phấn:
 
-"Ngươi không muốn mở mang kiến thức về Long Cung sao? Bên trong nói không chừng còn có Long Vương!"
+"Muội không muốn mở mang kiến thức về Long Cung sao? Bên trong nói không chừng còn có Long Vương!"
 
 "Không muốn."
 
 Hồ Linh Nhi nghĩ một chút, đôi mắt ranh mãnh chớp chớp:
 
-"Nếu Mục công tử thường tới đây giảng giải những cổ tịch này, ta sẽ dẫn ngươi đi, nhưng ta không vào."
+"Nếu Mục công tử thường tới đây giảng giải những cổ tịch này, muội sẽ dẫn công tử đi, nhưng muội không vào."
 
 "Thành giao!"
 
@@ -118,11 +118,11 @@ Tần Mục cười nói, giơ bàn tay lên. Hồ Linh Nhi do dự một lát r
 
 Một người một hồ rời khỏi thảo lư, đi về phía tây.
 
-"Hôm trước ngươi đi dự tiệc, là dự tiệc của ai?"
+"Hôm trước muội đi dự tiệc, là dự tiệc của ai?"
 
 Tần Mục nhớ tới chuyện hôm trước, bèn hỏi.
 
-"Là yến tiệc do Yêu Linh Đại Vương tổ chức, mời các lộ đại yêu. Sau khi ta lấy được cổ tịch ở Dũng Giang Long Cung, linh trí mở rộng, cũng coi như đại yêu có chút danh tiếng gần đây. Chỉ là ta đánh không lại những kẻ có sức mạnh man rợ, nên xếp cuối trong đám đại yêu."
+"Là yến tiệc do Yêu Linh Đại Vương tổ chức, mời các lộ đại yêu. Sau khi muội lấy được cổ tịch ở Dũng Giang Long Cung, linh trí mở rộng, cũng coi như đại yêu có chút danh tiếng gần đây. Chỉ là muội đánh không lại những kẻ có sức mạnh man rợ, nên xếp cuối trong đám đại yêu."
 
 Hồ Linh Nhi nhảy lên một chiếc lá chuối, thúc giục pháp thuật, kéo theo một luồng yêu phong. Yêu phong thổi lá chuối bay lên, nó cười nói:
 
@@ -136,7 +136,7 @@ Cùng lúc đó, cách thảo lư hai ba dặm, một con Thao Thiết cự thú
 
 Trên sông, cách Tàn Lão Thôn trăm dặm, một luồng gió thổi chiếc lá chuối dài một trượng. Trên lá chuối ngồi một con bạch hồ, bên cạnh còn có một thiếu niên đạp gió chạy đi, chính là Tần Mục và Hồ Linh Nhi.
 
-"Với pháp lực của ta bây giờ còn chưa thể bay, chỉ có thể dùng pháp thuật dấy lên yêu phong. Yêu phong thổi lá chuối mới có thể bay trên không. Nếu ta giống ngươi chạy trong gió, chắc chắn sẽ rơi xuống... Long Cung ở gần đây!"
+"Với pháp lực của muội bây giờ còn chưa thể bay, chỉ có thể dùng pháp thuật dấy lên yêu phong. Yêu phong thổi lá chuối mới có thể bay trên không. Nếu muội giống công tử chạy trong gió, chắc chắn sẽ rơi xuống... Long Cung ở gần đây!"
 
 Hồ Linh Nhi hạ yêu phong. Tần Mục và bạch hồ trên lá chuối dần hạ xuống đất. Một lát sau, một người một hồ đáp xuống.
 

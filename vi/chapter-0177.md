@@ -6,7 +6,7 @@ Tâm thần Tần Mục chấn động mạnh. Hắn đi vào sân, nói:
 
 Hồ Linh Nhi vội nói:
 
-"Công tử, nhà chúng ta không có trà. Huynh không uống trà mà."
+"Công tử, nhà chúng ta không có trà. Công tử không uống trà mà."
 
 Tần Mục cười ha hả:
 

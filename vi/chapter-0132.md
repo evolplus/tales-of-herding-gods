@@ -100,7 +100,7 @@ Tần Mục chần chừ một thoáng, nói: "Nếu giao phong chính diện tr
 
 Việt Thanh Hồng cười lạnh: "Đúng là thổi pháp loa! Ngươi và hắn chia năm năm, chẳng phải nói ngươi còn lợi hại hơn thần thông giả cảnh giới Lục Hợp sao?"
 
-Hồ Linh Nhi chỉ vào cô gái này, vẻ mặt kinh ngạc, lắp bắp nói: "Công tử, cô gái này chính là người bị công tử dựa lưng đâm vào cột đồng! Ta từng thấy mặt cô ta!"
+Hồ Linh Nhi chỉ vào cô gái này, vẻ mặt kinh ngạc, lắp bắp nói: "Công tử, cô gái này chính là người bị công tử dựa lưng đâm vào cột đồng! Muội từng thấy mặt cô ta!"
 
 Việt Thanh Hồng vừa xấu hổ vừa phẫn nộ. Con hồ ly này đáng ghét quá.
 
@@ -114,13 +114,13 @@ Vân Khuyết cười nói: "Tần sư đệ, khẩu khí của đệ chưa kh�
 
 "Công tử, hòa thượng này chính là kẻ bị công tử một quyền đánh ngất!"
 
-Hồ Linh Nhi chỉ vào Vân Khuyết, kinh ngạc nói: "Chính là cái đầu trọc lốc này, ta nhớ cái đầu này! Hòa thượng, áo quần của ngươi còn ở chỗ công tử, ngươi định bỏ bao nhiêu tiền chuộc lại?"
+Hồ Linh Nhi chỉ vào Vân Khuyết, kinh ngạc nói: "Chính là cái đầu trọc lốc này, ta nhớ cái đầu này! Hòa thượng, áo quần của ngươi còn ở chỗ Mục công tử, ngươi định bỏ bao nhiêu tiền chuộc lại?"
 
 Nụ cười của Vân Khuyết cứng trên mặt, ấm ức nói: "Người xuất gia xem tiền tài là vật ngoài thân. Hiện giờ ta còn chưa có, đợi khi ta có tiền rồi sẽ đi chuộc..."
 
 "Nói hồi lâu, vẫn là một hòa thượng nghèo."
 
-Hồ Linh Nhi không còn hứng thú với hắn, nói: "Ngươi phải nhanh lên, nếu không công tử sẽ đem áo quần của ngươi đi cầm."
+Hồ Linh Nhi không còn hứng thú với hắn, nói: "Ngươi phải nhanh lên, nếu không Mục công tử sẽ đem áo quần của ngươi đi cầm."
 
 Đang nói, lại có một vị thần thông giả đi ra từ sơn môn. Người này khí vũ hiên ngang, tướng mạo không tầm thường, tiến lên hành lễ với hai đạo nhân chặn cửa, nói: "Chấn Uy Hiệu Úy Côn Tử Vũ, cả gan xin đạo tử chỉ giáo. Ta là cảnh giới Thất Tinh, tự phong Thất Tinh Thần Tàng."
 

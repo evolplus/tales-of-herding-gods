@@ -194,7 +194,7 @@ Sau đó hắn lại kéo Đô Thiên Ma Vương ra, mở bụng tượng thần
 
 Hồ Linh Nhi đứng thẳng người, hai móng chống eo:
 
-"Công tử nhà ta bây giờ đã có một trăm loại thủ đoạn khiến ngươi sống không bằng chết!"
+"Mục công tử nhà ta bây giờ đã có một trăm loại thủ đoạn khiến ngươi sống không bằng chết!"
 
 Tần Mục đầy ẩn ý:
 
@@ -228,6 +228,6 @@ Tần Mục do dự. Ma tính của Đô Thiên Ma Vương sâu nặng. Pháp Kh
 
 Tần Mục lắc đầu, chậm rãi nói nhỏ:
 
-"Ta không phải loại người đó. Linh Nhi, sau này để hắn đi theo ngươi, ta dạy ngươi cách điều khiển cơ quan trong này."
+"Ta không phải loại người đó. Linh Nhi, sau này để hắn đi theo muội, ta dạy muội cách điều khiển cơ quan trong này."
 
 [Xem chương tiếp theo](chapter-0211.md)

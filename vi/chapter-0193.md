@@ -172,6 +172,6 @@ Sau đó Hồ Linh Nhi thấy sau mông Tần Mục rủ xuống một cái đu�
 
 Hồ Linh Nhi ngẩn người, quay đầu nói với Quốc sư Diên Khang:
 
-"Công tử nhà ta hiện hình rồi! Hiện nguyên hình rồi! Không phải hồ ly tinh, là ngưu tinh!"
+"Mục công tử nhà ta hiện hình rồi! Hiện nguyên hình rồi! Không phải hồ ly tinh, là ngưu tinh!"
 
 [Xem chương tiếp theo](chapter-0194.md)

@@ -164,7 +164,7 @@ Tần Mục đi tới, cười nói:
 
 Hồ Linh Nhi reo lên, rồi vội hạ thấp giọng, cười nói:
 
-"Công tử, ta biết công tử thích ăn loại cá này, nên bảo Long béo bắt hai con. Chỉ là chiếc rương không nên thân, lúc giấu trong bụng nó lại bị đạo nhân giữ hồ phát hiện."
+"Công tử, muội biết công tử thích ăn loại cá này, nên bảo Long béo bắt hai con. Chỉ là chiếc rương không nên thân, lúc giấu trong bụng nó lại bị đạo nhân giữ hồ phát hiện."
 
 Tần Mục xoa tay, cười nói:
 

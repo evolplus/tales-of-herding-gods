@@ -84,7 +84,7 @@ Tiểu hồ ly tức giận:
 
 Hồ Linh Nhi giật nảy mình, nhìn Tần Mục:
 
-"Công tử, vừa rồi ngươi nói lúc hạ xuống sẽ hơi xóc?"
+"Công tử, vừa rồi công tử nói lúc hạ xuống sẽ hơi xóc?"
 
 "Ừ."
 

@@ -118,7 +118,7 @@ Hồ Linh Nhi cảm thấy ánh mắt Tần Mục đang nhìn chằm chằm đu�
 
 Tần Mục ho khan một tiếng, nói:
 
-"Linh Nhi, đuôi hồ ly của ngươi lòi ra rồi."
+"Linh Nhi, đuôi hồ ly của muội lòi ra rồi."
 
 "Đâu có?"
 

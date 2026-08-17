@@ -6,9 +6,9 @@ Giọng Long Kỳ Lân truyền tới: "Phòng của ta cứ giống phòng Yên
 
 Long Kỳ Lân quay đầu, vừa kinh ngạc vừa vui mừng. Nhưng Hồ Linh Nhi đã nhào tới trước nó một bước. Hồ ly tinh này hóa hình thành một cô bé mười tuổi, giang hai tay, người nghiêng về phía trước, chạy như bay về phía Tần Mục.
 
-Tần Mục vội khom lưng, bế nàng lên, đặt lên vai mình ngồi, cười nói: "Quả nhiên là Linh Nhi tới! Linh Nhi, sao em tới Thiên Đình?"
+Tần Mục vội khom lưng, bế nàng lên, đặt lên vai mình ngồi, cười nói: "Quả nhiên là Linh Nhi tới! Linh Nhi, sao muội tới Thiên Đình?"
 
-Hồ Linh Nhi ôm mặt hắn cọ qua cọ lại, líu lo nói rất nhanh: "Thiên Đình muốn xây linh năng đối thiên kiều, việc này bị xưởng đốc tạo của Diên Khang chúng ta nhận lấy. Lần này em tới là để giao đối thiên kiều đã chế tạo xong cho Tạo Phụ Cung, kết toán tiền bạc, tiện thể sắp xếp phủ Thiên Tôn của công tử một chút. Mấy hôm trước em tới đây, chỉ thấy phủ của các Thiên Tôn khác đều vàng son lộng lẫy, chỉ riêng phủ Thiên Tôn của công tử là rách nát nghèo nàn. Long béo và Yên Nhi tỷ còn phải dựa vào tên nhóc Tề Cửu Nghi kia tiếp tế sống qua ngày, đói đến xanh xao vàng vọt... Vị tỷ tỷ này là ai?"
+Hồ Linh Nhi ôm mặt hắn cọ qua cọ lại, líu lo nói rất nhanh: "Thiên Đình muốn xây linh năng đối thiên kiều, việc này bị xưởng đốc tạo của Diên Khang chúng ta nhận lấy. Lần này muội tới là để giao đối thiên kiều đã chế tạo xong cho Tạo Phụ Cung, kết toán tiền bạc, tiện thể sắp xếp phủ Thiên Tôn của công tử một chút. Mấy hôm trước muội tới đây, chỉ thấy phủ của các Thiên Tôn khác đều vàng son lộng lẫy, chỉ riêng phủ Thiên Tôn của công tử là rách nát nghèo nàn. Long béo và Yên Nhi tỷ còn phải dựa vào tên nhóc Tề Cửu Nghi kia tiếp tế sống qua ngày, đói đến xanh xao vàng vọt... Vị tỷ tỷ này là ai?"
 
 Nàng đột nhiên chú ý tới Lãng Uyển Thần Vương, không tự chủ lộ ra địch ý. Từng cái đuôi cáo sau lưng dựng lên, lông trên đuôi dựng từng sợi, rất cảnh giác.
 
@@ -26,7 +26,7 @@ Lãng Uyển Thần Vương kiên nhẫn giải thích: "Đây là một tiểu 
 
 Hồ Linh Nhi động lòng lắm. Mặt vẫn ngoảnh sang một bên không nhìn nàng, nhưng bàn tay ngắn nhỏ lại duỗi ra, lén lút nhặt viên tiểu chư thiên linh châu kia lên, cất đi. Trên mặt lập tức tươi cười rạng rỡ, nói: "Sao tỷ biết ta thích uống rượu?"
 
-Lãng Uyển Thần Vương khẽ mỉm cười, liếc Tần Mục. Hồ Linh Nhi hiểu ý, thầm nghĩ: "Quả nhiên vẫn là công tử đối xử với ta tốt nhất."
+Lãng Uyển Thần Vương khẽ mỉm cười, liếc Tần Mục. Hồ Linh Nhi hiểu ý, thầm nghĩ: "Quả nhiên vẫn là Mục công tử đối xử với ta tốt nhất."
 
 Tần Mục lại biết hắn căn bản chưa từng nói với Lãng Uyển Thần Vương sở thích của Hồ Linh Nhi. Sở dĩ Lãng Uyển Thần Vương biết, là vì thần thức của nàng quá mạnh. Chỉ cần tiếp xúc với Hồ Linh Nhi một chút, nàng đã mò rõ ngọn ngành của nàng ấy.
 

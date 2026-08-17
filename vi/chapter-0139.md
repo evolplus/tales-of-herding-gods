@@ -64,9 +64,9 @@ Rất nhiều sĩ tử Thần Thông Cư và Hoàng Tử Uyển không khỏi nh
 
 Lập tức có hoàng tử và công chúa trong Hoàng Tử Uyển tiến lên, lộ ý lôi kéo. Thẩm Vạn Vân không đáp ứng cũng không từ chối, tránh đắc tội quá nhiều người, thầm nghĩ: "Xem ra chiến tích của ta cũng không tệ, nếu không cũng sẽ không có người tới lôi kéo. Không biết kết quả Tần sư đệ giao thủ với hòa thượng này thế nào? Hắn chống đỡ được mấy chiêu dưới tay Phật tử?"
 
-"Con trâu xanh công tử nói, ta từng thấy vài lần."
+"Con trâu xanh công tử nói, muội từng thấy vài lần."
 
-Trong Thái Học Viện, Hồ Linh Nhi dẫn Tần Mục tới hậu sơn, nói: "Hậu sơn có một vườn rau. Mấy ngày trước ta lang thang trong núi, muốn tìm vài bảo vật như linh chi tiên hoa, đi ngang qua bên kia, thấy trong vườn có mấy gốc linh thảo, gặp con trâu này, nó rống với ta mấy lần. Ta thấy nó bảo vệ mấy gốc linh thảo kia, trong lòng rất khó chịu, đã sớm muốn bắt về ăn rồi."
+Trong Thái Học Viện, Hồ Linh Nhi dẫn Tần Mục tới hậu sơn, nói: "Hậu sơn có một vườn rau. Mấy ngày trước muội lang thang trong núi, muốn tìm vài bảo vật như linh chi tiên hoa, đi ngang qua bên kia, thấy trong vườn có mấy gốc linh thảo, gặp con trâu này, nó rống với muội mấy lần. Muội thấy nó bảo vệ mấy gốc linh thảo kia, trong lòng rất khó chịu, đã sớm muốn bắt về ăn rồi."
 
 Tần Mục kinh ngạc: "Trong vườn rau? Phần lớn là trâu hoang, nếu không ai lại thả trong vườn rau cho ăn rau?"
 
@@ -96,7 +96,7 @@ Tần Mục ước lượng một chút. Con trâu xanh này cao bằng hai ba c
 
 Đột nhiên, con trâu xanh kia phát ra tiếng người, nhét một nắm mẫu đơn vào miệng, ánh sáng trắng trong lỗ mũi hút vào cơ thể. Ánh mắt nó như điện, nhìn về phía Tần Mục, rồi cất bước đi tới. Vừa đi, từng cục cơ bắp trên người nó vừa nhảy lên thình thịch.
 
-Tần Mục phun ra một hơi đục, nói với Hồ Linh Nhi: "Không phải chỉ là một con trâu sao? Ta từ nhỏ chăn trâu lớn lên, chẳng lẽ không làm gì được nó? Linh Nhi, ngươi lui ra sau trước. Lát nữa nếu ta bảo ngươi chạy, ngươi mau chạy. Hiểu chưa?"
+Tần Mục phun ra một hơi đục, nói với Hồ Linh Nhi: "Không phải chỉ là một con trâu sao? Ta từ nhỏ chăn trâu lớn lên, chẳng lẽ không làm gì được nó? Linh Nhi, muội lui ra sau trước. Lát nữa nếu ta bảo muội chạy, muội mau chạy. Hiểu chưa?"
 
 Hồ Linh Nhi gật đầu, lui về sau.
 
@@ -108,7 +108,7 @@ Hồ Linh Nhi lui lên núi. Đột nhiên chỉ nghe phía vườn rau truyền
 
 Hồ Linh Nhi vội co chân chạy, lén liếc về phía sau, chỉ thấy hốc mắt Tần Mục sưng lên, mũi bầm tím. Hiển nhiên chỉ trong khoảnh khắc ngắn ngủi, đứa trẻ chăn trâu của Tàn Lão Thôn đã bị con trâu xanh này đánh cho một trận.
 
-Hồ Linh Nhi âm thầm líu lưỡi, thầm nghĩ: "Công tử trước nay thần võ, tới Thái Học Viện đánh người này đánh người kia, sao bây giờ lại bị một con trâu đánh?"
+Hồ Linh Nhi âm thầm líu lưỡi, thầm nghĩ: "Mục công tử trước nay thần võ, tới Thái Học Viện đánh người này đánh người kia, sao bây giờ lại bị một con trâu đánh?"
 
 Sau lưng họ truyền tới tiếng móng ầm ầm, hiển nhiên con trâu kia đang hung hăng đuổi giết phía này, không chịu bỏ qua.
 

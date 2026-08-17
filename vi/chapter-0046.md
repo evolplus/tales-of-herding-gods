@@ -18,7 +18,7 @@ Muốn qua đó, họ buộc phải đi qua đầm nước mới tới được 
 
 Hồ Linh Nhi khẽ nói:
 
-"Ta ném đá qua, dụ cá lớn đi, chúng ta nhân cơ hội xông qua!"
+"Muội ném đá qua, dụ cá lớn đi, chúng ta nhân cơ hội xông qua!"
 
 Dứt lời, móng vuốt nó chộp một hòn đá, dùng sức ném ra.
 
@@ -32,7 +32,7 @@ Hồ Linh Nhi dẫn đường. Tần Mục vội chạy dọc theo bờ đầm v
 
 Một người một hồ vừa chạy đến bờ bên kia, mấy con cá quái kia đột nhiên nghe thấy tiếng bước chân. Chúng rung vây, đổi hướng, bay về phía họ.
 
-"Công tử theo ta!"
+"Công tử theo muội!"
 
 Hồ Linh Nhi vèo một cái chui vào lối đi đối diện. Tần Mục cũng vội chui vào. Lối đi không rộng, mấy con cá lớn phía sau tới trước cửa lối đi thì không thể bay, nhưng lại lấy bốn vây làm chân, chạy như điên trong thông đạo, đuổi theo Tần Mục và tiểu hồ ly.
 
@@ -68,7 +68,7 @@ Một cây cột đổ xuống, suýt nữa đè trúng Tần Mục và tiểu h
 
 Hồ Linh Nhi đi vào nửa tòa đại điện đã sụp, nói:
 
-"Ta phát hiện những cổ tịch ấy ở đây."
+"Muội phát hiện những cổ tịch ấy ở đây."
 
 Tần Mục bước lại gần. Trong tòa đại điện đổ nát này có một thạch thất ẩn, xây trong vách tường. Cửa đá đã đổ xuống, thạch thất mới bị Hồ Linh Nhi phát hiện.
 
@@ -86,7 +86,7 @@ Tần Mục nhìn về phía cánh cổng kia. Chỉ thấy phía sau cổng lo�
 
 Giọng Hồ Linh Nhi hơi run:
 
-"Ngươi đến cạnh cổng là có thể cảm nhận khí tức của hắn, rồi ngươi sẽ mềm nhũn ra, bò không dậy nổi..."
+"Công tử đến cạnh cổng là có thể cảm nhận khí tức của hắn, rồi công tử sẽ mềm nhũn ra, bò không dậy nổi..."
 
 Tần Mục đi về phía trước. Hồ Linh Nhi đánh bạo đi theo sau cậu. Đợi đến cạnh cổng, Tần Mục đột nhiên cảm thấy một luồng sát khí mãnh liệt vô cùng ập vào mặt, khiến người ta kinh hãi, khiến người ta run rẩy. Cảm giác như giữa ban ngày, nửa bầu trời bỗng bị mây đen đè xuống trước mặt mình, trong lớp mây đen ấy có một con cự thú khổng lồ kinh khủng đang nhìn chằm chằm vào cậu.
 
@@ -102,13 +102,13 @@ Bên cạnh cậu, bạch hồ đã mềm nhũn xương, nằm bẹp trên mặt
 
 Tần Mục xách nó lên. Bạch hồ mềm oặt nói:
 
-"Đừng bắt ta, ta sắp chết rồi, tim đập dữ quá..."
+"Đừng bắt muội, muội sắp chết rồi, tim đập dữ quá..."
 
-"Ngươi chưa chết. Thứ trong Long Cung này mới chết rồi."
+"Muội chưa chết. Thứ trong Long Cung này mới chết rồi."
 
 Tần Mục cười nói:
 
-"Ngươi đoán ta nhìn thấy gì?"
+"Muội đoán ta nhìn thấy gì?"
 
 Hồ Linh Nhi không trả lời. Bốn chân nó chậm rãi quạt trong không khí, đuôi cũng lắc qua lắc lại, như thể muốn bò đi, một khắc cũng không muốn ở lại đây.
 
@@ -138,7 +138,7 @@ Hồ Linh Nhi vội mở mắt:
 
 Tần Mục gật đầu:
 
-"Lần này ngươi yên tâm rồi chứ? Đi vào cùng ta."
+"Lần này muội yên tâm rồi chứ? Đi vào cùng ta."
 
 Hồ Linh Nhi vội lắc đầu. Tần Mục bất đắc dĩ, đành đặt nó xuống. Nhưng cậu lại thấy bạch hồ này vẫn áp bụng sát đất, yếu ớt bò ra ngoài. Tần Mục lại xách nó lên, đặt lên vai mình, cất bước đi vào trong cổng.
 

@@ -138,7 +138,7 @@ Trong Khánh Môn Quan, Tần Mục ném cho Bá Sơn tế tửu hai bình ngọ
 
 Hắn nối thân thể cho Đồ phu, dùng hết rất nhiều long diên hương, nhưng vẫn còn lại năm bình. Bá Sơn tế tửu liều mạng với cường giả Lâu Lan Hoàng Kim Cung, thương thế không nhẹ. Ngoài ngoại thương, còn cần linh đan để chữa nội thương, trừ bỏ ẩn tật.
 
-"Công tử, Tổ sư đang tìm công tử."
+"Huynh, Tổ sư đang tìm huynh."
 
 Tần Mục lấy thuốc xong, tiểu nhị dược phố nói:
 

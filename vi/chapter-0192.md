@@ -20,7 +20,7 @@ Mà con Long Kỳ Lân này khi đối mặt với Thiên Ma chúng ào ạt xô
 
 Tần Mục kinh ngạc, nhìn con Long Kỳ Lân này. Hồ Linh Nhi ghé vào tai hắn, thấp giọng nói:
 
-"Công tử, gã to xác ăn của chúng ta, uống của chúng ta, trên đường lại không làm việc cũng không góp sức. Bây giờ hay rồi, bảo vệ người khác chứ không bảo vệ chúng ta. Ta cảm thấy ngoài bóc lột long diên hương của gã to xác, còn có thể bóc lột thêm thứ khác."
+"Công tử, gã to xác ăn của chúng ta, uống của chúng ta, trên đường lại không làm việc cũng không góp sức. Bây giờ hay rồi, bảo vệ người khác chứ không bảo vệ chúng ta. Muội cảm thấy ngoài bóc lột long diên hương của gã to xác, còn có thể bóc lột thêm thứ khác."
 
 "Ta cũng nghĩ vậy." Tần Mục gật đầu.
 

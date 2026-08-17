@@ -102,7 +102,7 @@ Tần Mục tiếp tục nói: "Đại Khư chúng ta không có vương pháp, 
 
 Tần Mục nói: "Chỉ cần ngươi nắm được quy củ của Đại Khư, thật ra Đại Khư an toàn hơn Diên Khang quốc nhiều. Không tin ngươi hỏi Linh Nhi."
 
-Đô Thiên Ma Vương nhìn Hồ Linh Nhi. Hồ Linh Nhi gật đầu liên tục, rất đồng tình: "Diên Khang nguy hiểm hơn Đại Khư nhiều. Lần này công tử ra ngoài chính là đi Diên Khang quốc lịch luyện. Chúng ta ở Đại Khư đều không tính là lịch luyện, đủ thấy Diên Khang quốc hung hiểm thế nào."
+Đô Thiên Ma Vương nhìn Hồ Linh Nhi. Hồ Linh Nhi gật đầu liên tục, rất đồng tình: "Diên Khang nguy hiểm hơn Đại Khư nhiều. Lần này Mục công tử ra ngoài chính là đi Diên Khang quốc lịch luyện. Chúng ta ở Đại Khư đều không tính là lịch luyện, đủ thấy Diên Khang quốc hung hiểm thế nào."
 
 Đột nhiên, phía sau họ truyền tới tiếng núi lở đất nứt. Tần Mục quay đầu nhìn lại, chỉ thấy vô số xúc tu bay múa đầy trời, một quái vật khổng lồ đen kịt như núi đang chạy về phía này.
 

@@ -90,11 +90,11 @@ Trong Long Cung lập tức vang lên từng tiếng mắng chửi. Giọng lão
 
 Hồ Linh Nhi thò đầu ra khỏi ngực cậu, thắc mắc:
 
-"Mục công tử, sao ngươi biết lão có ác ý?"
+"Mục công tử, sao công tử biết lão có ác ý?"
 
 Tần Mục nói:
 
-"Lúc chúng ta vừa tới, ta dùng thiền trượng bức lui sương mù, có rất nhiều thây khô rơi từ trên không xuống. Ngươi có chú ý ngoài thây khô ra, còn có rất nhiều bộ xương khô không?"
+"Lúc chúng ta vừa tới, ta dùng thiền trượng bức lui sương mù, có rất nhiều thây khô rơi từ trên không xuống. Muội có chú ý ngoài thây khô ra, còn có rất nhiều bộ xương khô không?"
 
 Hồ Linh Nhi gật đầu. Nó có chú ý tới. Có vài bộ xương bị thây khô rơi xuống đè vỡ, trên người những bộ xương này vẫn còn khoác áo.
 
@@ -112,7 +112,7 @@ Hồ Linh Nhi bừng tỉnh, vội nói:
 
 Tần Mục gật đầu:
 
-"Nếu triều đình chưa chắc sẽ tới cứu lão, vậy lão dứt khoát làm một mẻ, ra tay độc ác, hấp thu toàn bộ khí huyết của môn sinh, tránh cho mình bị phong ấn quá lâu mà chết đói. Chỉ là thủ đoạn của lão hẳn khác với long châu của Long mẫu, càng quỷ dị hơn, ngay cả máu thịt của môn sinh lão cũng hấp thu sạch, biến họ thành từng bộ xương. Ngươi còn nhớ lúc vừa vào Long Cung, thiền trượng của ta cứ kêu mãi không?"
+"Nếu triều đình chưa chắc sẽ tới cứu lão, vậy lão dứt khoát làm một mẻ, ra tay độc ác, hấp thu toàn bộ khí huyết của môn sinh, tránh cho mình bị phong ấn quá lâu mà chết đói. Chỉ là thủ đoạn của lão hẳn khác với long châu của Long mẫu, càng quỷ dị hơn, ngay cả máu thịt của môn sinh lão cũng hấp thu sạch, biến họ thành từng bộ xương. Muội còn nhớ lúc vừa vào Long Cung, thiền trượng của ta cứ kêu mãi không?"
 
 Hồ Linh Nhi nhớ ra. Khi đó nó nằm bẹp trên ống quần Tần Mục, run lẩy bẩy, Tần Mục còn bảo nó dời đuôi ra.
 
@@ -124,25 +124,25 @@ Tần Mục nói:
 
 Hồ Linh Nhi trợn mắt há miệng. Một lát sau, tiểu hồ ly cười khúc khích:
 
-"Mục công tử, ngươi thật sự chỉ có mười hai tuổi?"
+"Mục công tử, công tử thật sự chỉ có mười hai tuổi?"
 
 "Qua mùa thu mới mười hai tuổi." Tần Mục cười thật thà.
 
-"Vậy ngươi cũng là hồ ly tinh rồi?"
+"Vậy công tử cũng là hồ ly tinh rồi?"
 
 Hồ Linh Nhi hưng phấn nói:
 
-"Ngươi nhất định là cáo đực thành tinh, hơn nữa là loại thông minh gian xảo!"
+"Công tử nhất định là cáo đực thành tinh, hơn nữa là loại thông minh gian xảo!"
 
 Tần Mục kể khổ:
 
-"Ngươi không biết tuổi thơ ta trải qua thế nào đâu! Từ nhỏ ta đã bị một đám ông già bà lão đào hố lừa gạt. Ngay trước lúc ra ngoài săn bắn, bà bà còn lừa ta vào ổ gà nhặt trứng. Đó là một con Kê bà long, đánh ta chạy khắp nơi, ta căn bản đánh không lại nó! Còn bà bà thì lén chuồn qua, nhặt trứng đi mất!"
+"Muội không biết tuổi thơ ta trải qua thế nào đâu! Từ nhỏ ta đã bị một đám ông già bà lão đào hố lừa gạt. Ngay trước lúc ra ngoài săn bắn, bà bà còn lừa ta vào ổ gà nhặt trứng. Đó là một con Kê bà long, đánh ta chạy khắp nơi, ta căn bản đánh không lại nó! Còn bà bà thì lén chuồn qua, nhặt trứng đi mất!"
 
 Không bao lâu sau, họ vòng qua đầm nước, đi ra khỏi Long Vương miếu.
 
 Hồ Linh Nhi làm phép gọi yêu phong. Tần Mục thì đạp gió mà đi. Một người một hồ tới trước thảo lư bên thác nước. Tần Mục vội về thôn nên định cáo từ. Hồ Linh Nhi cười nói:
 
-"Bây giờ người ngươi vừa bẩn vừa hôi, vội vàng về làm gì? Bên thác nước này của ta chính là đầm nước. Ngươi xuống tắm trước, ta giúp ngươi giặt y phục. Đợi khô rồi, ngươi mặc vào sạch sẽ khoan khoái chẳng phải tốt sao? Hơn nữa ta còn có vài nghi hoặc trong tu luyện muốn thỉnh giáo ngươi."
+"Bây giờ công tử vừa bẩn vừa hôi, vội vàng về làm gì? Bên thác nước này của muội chính là đầm nước. Công tử xuống tắm trước, muội giúp giặt y phục. Đợi khô rồi mặc vào sạch sẽ khoan khoái chẳng phải tốt sao? Hơn nữa muội còn có vài nghi hoặc trong tu luyện muốn thỉnh giáo công tử."
 
 Tần Mục do dự một chút, đang định nói thì trong thảo lư truyền ra tiếng cười lạnh của Tư bà bà:
 

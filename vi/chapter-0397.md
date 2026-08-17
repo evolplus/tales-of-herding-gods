@@ -120,7 +120,7 @@ Vũ Chiêu Thanh tò mò nhìn cô bé chỉ cao hơn cẳng chân mình một c
 
 Hồ Linh Nhi lập tức cảm thấy trong đầu mình có thêm vài thứ, đó là ngôn ngữ của Thiên Vũ tộc. Đồng thời, Hồ Linh Nhi cũng cảm nhận được Vũ Chiêu Thanh đã dùng ngôn ngữ Thiên Vũ tộc để trao đổi lấy ngôn ngữ của thế giới này.
 
-Hồ Linh Nhi bừng tỉnh: "Không phải hôn môi à, ta còn tưởng ngươi chiếm tiện nghi công tử nhà ta..."
+Hồ Linh Nhi bừng tỉnh: "Không phải hôn môi à, ta còn tưởng ngươi chiếm tiện nghi Mục công tử nhà ta..."
 
 Vũ Chiêu Thanh nở nụ cười, cúi người lại chấm nhẹ lên môi nàng một cái. Hồ Linh Nhi lập tức đỏ mặt, tim đập loạn xạ, lảo đảo như uống say, ngượng ngùng nói: "Hôn một cái cũng đâu có sao..."
 

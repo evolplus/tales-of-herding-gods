@@ -184,7 +184,7 @@ Tần Mục khom người tiến lên, Thẩm Vạn Vân và những người kh
 
 Tim Tần Mục khẽ nhảy, đè nén xung động lập tức xông ra cắt ngang tế tự, thấp giọng:
 
-"Các ngươi quan sát địa hình. Quan sát xong, chúng ta sẽ ra tay. Linh Nhi, ngươi dẫn Long Kỳ Lân sang phía bên kia, tạo động tĩnh thu hút sự chú ý của bọn họ."
+"Các ngươi quan sát địa hình. Quan sát xong, chúng ta sẽ ra tay. Linh Nhi, muội dẫn Long Kỳ Lân sang phía bên kia, tạo động tĩnh thu hút sự chú ý của bọn họ."
 
 Hồ Linh Nhi vội dẫn Long Kỳ Lân lặng lẽ vòng qua tế đàn, đi về phía bên phải.
 

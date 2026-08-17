@@ -80,7 +80,7 @@ Tư Vân Hương sa sầm mặt, tức giận nói: "Cô cô dù sao cũng là n
 
 Tư bà bà ném nàng sang một bên, đi thẳng về phía mấy cô gái, quan sát những cô gái còn lại, cười nói: "Mục nhi là do ta nuôi lớn, thân hơn cháu nhiều. Nha đầu Hương, hồi nhỏ ta chưa từng bế cháu đâu. Mục nhi, nha đầu Hương là hồ ly tinh, lắm tâm tư lắm, con phải cẩn thận với nó."
 
-Hồ Linh Nhi nhảy dựng lên, kêu: "Con biết ngay ả ta là hồ ly tinh mà! Bà bà, con trông chừng công tử rất tốt, không cho đám tiểu hồ ly tinh bên ngoài có cơ hội tiếp xúc với công tử!"
+Hồ Linh Nhi nhảy dựng lên, kêu: "Con biết ngay ả ta là hồ ly tinh mà! Bà bà, con trông chừng Mục công tử rất tốt, không cho đám tiểu hồ ly tinh bên ngoài có cơ hội tiếp xúc với Mục công tử!"
 
 Tư bà bà đi tới bên cạnh Tần Mục, giơ tay lên, muốn sờ đầu hắn, không khỏi tức giận nói: "Cao lên rồi! Còn không cúi xuống?"
 

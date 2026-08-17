@@ -112,11 +112,11 @@ Tư bà bà nắm tay hắn, hăm hở đi vào khe nứt. Long Kỳ Lân và H�
 
 Dược sư trầm giọng nói: "Chúng ta đi Phong Đô ở Đại Khư, tìm Thôn trưởng, cùng nghĩ cách. Linh Nhi, con thường xuyên thông qua nơi sinh tử để đến Phong Đô, con dẫn đường."
 
-Hồ Linh Nhi vâng lời, nói với Long Kỳ Lân đang mất mát: "Công tử đến La Phù Thiên rồi. Long béo, ngươi đi Phong Đô với chúng ta."
+Hồ Linh Nhi vâng lời, nói với Long Kỳ Lân đang mất mát: "Mục công tử đến La Phù Thiên rồi. Long béo, ngươi đi Phong Đô với chúng ta."
 
 Trong lòng Long Kỳ Lân trống rỗng, lắc đầu nói: "Ta muốn ở lại đây chờ giáo chủ trở về. Giáo chủ đi vội, không kịp luyện chế khẩu phần cho ta..."
 
-Hồ Linh Nhi cười nói: "Có Dược sư gia gia ở đây, còn thiếu khẩu phần của ngươi được sao? Y thuật đan thuật của công tử đều học từ Dược sư gia gia mà!"
+Hồ Linh Nhi cười nói: "Có Dược sư gia gia ở đây, còn thiếu khẩu phần của ngươi được sao? Y thuật đan thuật của Mục công tử đều học từ Dược sư gia gia mà!"
 
 Long Kỳ Lân mừng rỡ, vội lay thân, hiện ra chân thân bốn mươi trượng, cười lấy lòng: "Các vị lão gia, mời lên lưng tiểu long. Bước chân tiểu long khá nhanh, chở các vị lão gia đến Phong Đô! Phong Đô ta cũng từng đến rồi!"
 
@@ -138,7 +138,7 @@ Lão mù cực kỳ hâm mộ. Trong thôn có rất nhiều người có tiền
 
 Chỉ riêng Lão mù dựa vào xem bói kiếm sống, ngày tháng hơi thanh bần, vì vậy có chút thù ghét người giàu trong thôn, thầm nghĩ: "May mà Thôn trưởng còn nghèo hơn ta, đáng tiếc chết rồi..."
 
-Hồ Linh Nhi đảo mắt liên tục, không nói thật, thầm nghĩ: "Long béo một ngày ăn nhiều linh đan như vậy, sau khi công tử trở về nhất định sẽ giật mình. Ta cũng muốn xem lúc đó hắn sẽ béo đến mức nào..."
+Hồ Linh Nhi đảo mắt liên tục, không nói thật, thầm nghĩ: "Long béo một ngày ăn nhiều linh đan như vậy, sau khi Mục công tử trở về nhất định sẽ giật mình. Ta cũng muốn xem lúc đó hắn sẽ béo đến mức nào..."
 
 Trong La Phù Thiên, Tần Mục lặng lẽ giơ tay định gỡ chiếc lá liễu vàng che con mắt thứ ba ở mi tâm. Tư bà bà bốp một tiếng đánh tay hắn xuống, trách: "Con mắt này của con có quái lạ, đừng tùy tiện gỡ!"
 

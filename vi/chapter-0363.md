@@ -126,15 +126,15 @@ Tần Mục do dự một chút: "Quốc sư Diên Khang còn nợ con một tr�
 
 Thôn trưởng lắc đầu: "Bảo vật của Lâu Lan Hoàng Kim Cung cũng đáng để vào mắt sao? Đại Tôn của Hoàng Kim Cung chỉ là một kẻ nhặt đồ nát. Bảo vật hắn thu thập cả đời, Lão què còn chẳng thèm nhìn."
 
-Tần Mục chần chừ một chút, vội gọi Hồ Linh Nhi tới, dặn: "Linh Nhi, Quốc sư Diên Khang còn nợ công tử một trăm món bảo bối. Sau khi ông ấy về Kinh, em giúp công tử thu lấy."
+Tần Mục chần chừ một chút, vội gọi Hồ Linh Nhi tới, dặn: "Linh Nhi, Quốc sư Diên Khang còn nợ ta một trăm món bảo bối. Sau khi ông ấy về Kinh, muội giúp ta thu lấy."
 
 Mắt Hồ Linh Nhi lập tức sáng như tuyết, cười nói: "Công tử, bảo bối gì vậy?"
 
 Tần Mục nói: "Bảo vật ông ấy mang về từ Lâu Lan Hoàng Kim Cung, để chúng ta tùy ý chọn một trăm món!"
 
-Hồ Linh Nhi vui đến nở hoa trong lòng, rồi lại do dự nói: "Công tử, nhãn lực của em không cao bằng công tử, chỉ e không chọn được món tốt nhất."
+Hồ Linh Nhi vui đến nở hoa trong lòng, rồi lại do dự nói: "Công tử, nhãn lực của muội không cao bằng công tử, chỉ e không chọn được món tốt nhất."
 
-"Ta truyền Cửu Trọng Thiên Khai Nhãn Pháp cho em. Em mở mắt ra xem, sẽ nhìn được bảo bối nào đáng tiền."
+"Ta truyền Cửu Trọng Thiên Khai Nhãn Pháp cho muội. Muội mở mắt ra xem, sẽ nhìn được bảo bối nào đáng tiền."
 
 ...
 

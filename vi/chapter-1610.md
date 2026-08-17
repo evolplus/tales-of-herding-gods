@@ -158,7 +158,7 @@ Tần Mục nhắm mắt lại. Một lát sau hắn mới chậm rãi mở mắ
 
 Tần Mục uống trà, sắc mặt bình tĩnh nói: "Bây giờ ta chỉ cần lặng chờ Thiên Đình và Diên Khang đàm phán, lặng chờ cái chết của Hỏa Thiên Tôn."
 
-Ngay lúc này, Hồ Linh Nhi và Tư Vân Hương dẫn theo mấy trăm cao thủ Đạo môn nối đuôi nhau đi vào. Hồ Linh Nhi giòn giã nói: "Công tử, dữ liệu mậu dịch và dữ liệu lưu thông Thiên tệ của chư thiên vạn giới mà ngài cần đã chỉnh lý xong rồi!"
+Ngay lúc này, Hồ Linh Nhi và Tư Vân Hương dẫn theo mấy trăm cao thủ Đạo môn nối đuôi nhau đi vào. Hồ Linh Nhi giòn giã nói: "Công tử, dữ liệu mậu dịch và dữ liệu lưu thông Thiên tệ của chư thiên vạn giới mà công tử cần đã chỉnh lý xong rồi!"
 
 Tần Mục vội uống cạn trà trong chén, lại tự bận rộn.
 

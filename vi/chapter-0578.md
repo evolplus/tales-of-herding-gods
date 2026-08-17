@@ -144,7 +144,7 @@ Thiên Phong Cấu tiếp tục nói: "Cấu thành của ta tuy người sống
 
 Tang Diệp thản nhiên nói: "Hai vị sư huynh cùng sống sót ra khỏi Cấu thành với ngươi hiện giờ ở đâu? Theo ta biết, tuy họ sống sót trong trận Cấu thành, nhưng lại chết trong trận Vô Vọng Thành sau đó. Họ cũng đều chết rồi, người sống sót của Cấu thành vẫn chỉ còn ngươi."
 
-Hồ Linh Nhi căng thẳng ôm sáu cái đuôi vào lòng: "Công tử, ta đã choáng rồi..."
+Hồ Linh Nhi căng thẳng ôm sáu cái đuôi vào lòng: "Công tử, muội đã choáng rồi..."
 
 Tần Mục lẩm bẩm: "Ta cũng choáng... Nhưng muốn phán đoán ai mới là kẻ phản bội còn có một cách, đó là đi tới phế tích Vô Vọng Thành. Nếu Tang Diệp tôn thần là kẻ phản bội, vậy nhất định có cường giả Ma tộc ở đó chờ ta tự chui đầu vào lưới. Nếu không có, vậy..."
 

@@ -194,7 +194,7 @@ Thánh Lâm Sơn.
 
 Tần Mục dặn dò:
 
-"Linh Nhi, ngọn núi này tuy là thánh địa của Thiên Thánh giáo ta, nhưng ta cũng là lần đầu tiên tới đây, không biết nơi này còn những hung hiểm nào. Ngươi đừng chạy loạn khắp nơi. Chờ ta tu thành pháp môn truyền tống trên vách này, ta sẽ dẫn ngươi ra ngoài."
+"Linh Nhi, ngọn núi này tuy là thánh địa của Thiên Thánh giáo ta, nhưng ta cũng là lần đầu tiên tới đây, không biết nơi này còn những hung hiểm nào. Muội đừng chạy loạn khắp nơi. Chờ ta tu thành pháp môn truyền tống trên vách này, ta sẽ dẫn muội ra ngoài."
 
 Hồ Linh Nhi đáp một tiếng rồi xoay người chạy ra khỏi cung điện này.
 

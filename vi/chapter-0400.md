@@ -58,7 +58,7 @@ Mão Nhật tinh hoàn vẫn chưa đóng lại được ấn ký mặt trời �
 
 Viêm Tinh Tinh bơi từ bên cạnh tới, quan sát đồng tử của hắn, suy nghĩ rồi nói: "Mão Nhật tinh hoàn hẳn là một phần công pháp của loại Thần Nhãn này, không đầy đủ, cho nên nhật diệu văn không thể đóng kín hoàn toàn..."
 
-Hồ Linh Nhi ghé tới bên phải Tần Mục, bắt chước quan sát mắt phải của hắn rất ra dáng, nói: "Công tử, trong mắt ngài có sao!"
+Hồ Linh Nhi ghé tới bên phải Tần Mục, bắt chước quan sát mắt phải của hắn rất ra dáng, nói: "Công tử, trong mắt công tử có sao!"
 
 Tần Mục dở khóc dở cười, nói: "Đó là Mão Nhật tinh hoàn. Ta và Tinh muội muội đang nghiên cứu chuyện này, muội đừng quấy rối. Tinh muội muội, lạc ấn mà đôi mắt của thần chỉ Tỷ Thanh để lại trong mắt ta hẳn là ấn ký Thần Nhãn của nàng. Biết đâu có thể từ những ấn ký này nắm được Thần Nhãn của nàng. Thần Nhãn của nàng tuyệt đối là Đệ nhất thần nhãn thời Khai Hoàng, nếu có thể nắm giữ thì không tầm thường chút nào!"
 
@@ -104,7 +104,7 @@ Tần Mục đứng dậy, chợt thấy mông hơi lạnh, vội ngồi xuống
 
 Viêm Tinh Tinh và Hồ Linh Nhi nghe lời quay lưng đi. Tần Mục vội trèo ra khỏi ao. Hồ Linh Nhi ngoảnh đầu nhìn trộm, Viêm Tinh Tinh vội nói: "Không được nhìn trộm!"
 
-Hồ Linh Nhi thì thầm: "Ta xem công tử có mọc đuôi không."
+Hồ Linh Nhi thì thầm: "Muội xem công tử có mọc đuôi không."
 
 Viêm Tinh Tinh tò mò hỏi: "Thấy đuôi không?"
 

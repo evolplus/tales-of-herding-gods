@@ -120,7 +120,7 @@ Ban Công Thố nhất thời hào khí ngất trời, cười ha hả:
 
 Trước Li Giang Điện, rất nhiều cường giả lần lượt trở về các viện, chờ Tần Mục khiêu chiến. Hồ Linh Nhi cũng hưng phấn, cưỡi một luồng yêu phong rời đi, vui sướng nói:
 
-"Công tử, ta chờ huynh tới khiêu chiến ở Yêu viện!"
+"Công tử, muội chờ công tử tới khiêu chiến ở Yêu viện!"
 
 Tần Mục gãi đầu:
 
