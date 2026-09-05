@@ -22,7 +22,7 @@ Tần Mục lộ nụ cười, phấn chấn tinh thần, đi ra khỏi Hỗn Đ
 
 Hắn đứng trước điện, nhìn về phía Di La Cung. Di La Cung vẫn đóng chặt cửa.
 
-"Thưa thầy, tương lai người nhìn thấy chưa từng xảy ra."
+"Thưa sư phụ, tương lai người nhìn thấy chưa từng xảy ra."
 
 Tần Mục thấp giọng nói:
 
@@ -282,11 +282,11 @@ Chỉ là...
 
 Thái Thượng đột nhiên rùng mình:
 
-"Chỉ là, nếu thầy nhìn thấy cảnh này, chẳng phải nghĩa là tương lai chưa từng thay đổi sao? Mọi nỗ lực của Đệ Thập Thất Kỷ, mọi nỗ lực của Hỗn Độn, đều đã bị thầy nhìn thấy? Tương lai chưa từng thay đổi!"
+"Chỉ là, nếu sư phụ nhìn thấy cảnh này, chẳng phải nghĩa là tương lai chưa từng thay đổi sao? Mọi nỗ lực của Đệ Thập Thất Kỷ, mọi nỗ lực của Hỗn Độn, đều đã bị sư phụ nhìn thấy? Tương lai chưa từng thay đổi!"
 
 Hắn tuyệt vọng, trở về Ngọc Kinh Thành, nhập diệt mà chết.
 
-Cuối cùng hắn cũng giống Chủ nhân Di La Cung, đạo tâm chết đi. Chỉ là không còn ai cười nhạo hắn học theo thầy mình nữa.
+Cuối cùng hắn cũng giống Chủ nhân Di La Cung, đạo tâm chết đi. Chỉ là không còn ai cười nhạo hắn học theo sư phụ mình nữa.
 
 Tang lễ của Thái Thượng rất đơn giản. Lam Ngự Điền và Hư Sinh Hoa cũng đến. Thái Dịch ở đó khóc đến trời đất tối sầm. Đối thủ hai đời, cuối cùng vẫn tuyệt vọng mà chết.
 
@@ -326,7 +326,7 @@ Nhưng kiếp Phá Diệt của vũ trụ thứ nhất cũng không thể chốn
 
 Một bộ xương khô trấn giữ trong Di La Cung hiện ra thân hình. Đạo Thụ của hắn rực rỡ sinh huy, Đạo quả tỏa sáng vạn trượng, chống lại sự xâm nhập của hư không!
 
-"Thầy!" Thái Dịch bái xuống trước bộ xương khô ấy.
+"Sư phụ!" Thái Dịch bái xuống trước bộ xương khô ấy.
 
 Các bậc thành đạo may mắn sống sót trong Ngọc Kinh Thành cũng lần lượt bái xuống trước bộ xương khô ấy, nước mắt già nua chảy dọc ngang.
 

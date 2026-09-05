@@ -72,7 +72,7 @@ Chủ điện Linh Quan nói: “Bệ hạ, thực lực của ngài kém hắn 
 
 Hạo Thiên Đế khó che lửa giận trong lòng, hạ giọng cười lạnh: “Đạo huynh, trẫm đã bổ toàn mọi sơ hở trong công pháp, còn sợ tên giặc Mục nhỏ nhoi kia sao? Bây giờ trẫm muốn giết hắn, hắn trong tay trẫm không đi nổi mười chiêu!”
 
-Chủ điện Linh Quan lắc đầu nói: “Nếu bệ hạ thật sự ra tay, e rằng trong tay hắn không đi nổi mười chiêu. Bệ hạ, ngài bổ toàn sơ hở công pháp, chỉ là công pháp của bản thân ngài không có sơ hở mà thôi, nhưng Thất công tử cần gì đi tìm sơ hở của ngài? Hiện nay hắn đã tham ngộ ra tuyệt học của thầy, còn có một chiêu là tuyệt học của đối thủ sống chết với thầy. Giữa hai chiêu ấy, bệ hạ tất bại. Trong vòng mười chiêu, bệ hạ có nguy cơ vẫn lạc. Tam công tử và Tứ công tử bồi dưỡng ngài không phải để ngài chết trong tay Thất công tử, tác dụng của ngài không phải là liều mạng với Thất công tử.”
+Chủ điện Linh Quan lắc đầu nói: “Nếu bệ hạ thật sự ra tay, e rằng trong tay hắn không đi nổi mười chiêu. Bệ hạ, ngài bổ toàn sơ hở công pháp, chỉ là công pháp của bản thân ngài không có sơ hở mà thôi, nhưng Thất công tử cần gì đi tìm sơ hở của ngài? Hiện nay hắn đã tham ngộ ra tuyệt học của sư phụ, còn có một chiêu là tuyệt học của đối thủ sống chết với sư phụ. Giữa hai chiêu ấy, bệ hạ tất bại. Trong vòng mười chiêu, bệ hạ có nguy cơ vẫn lạc. Tam công tử và Tứ công tử bồi dưỡng ngài không phải để ngài chết trong tay Thất công tử, tác dụng của ngài không phải là liều mạng với Thất công tử.”
 
 Hạo Thiên Đế nhíu mày.
 
@@ -98,13 +98,13 @@ Tần Mục nhíu mày. Độ Thế Kim Thuyền chạy về phía Vô Ưu Hươ
 
 Ánh mắt hắn rơi lên đại doanh Thiên Đình phía đối diện, có phần lo lắng âm thầm.
 
-“Loại pháp thành đạo thứ ba là do Nhị công tử Di La Cung sáng tạo. Nhị công tử Vô Cực là Quy Khư Thần Nữ, đạo của nàng là Vô Cực, mênh mông mịt mờ, không dấu không cùng, không tìm được căn cơ. Khi nàng thành đạo, nàng phát hiện pháp thành đạo bằng Đạo Cảnh và pháp thành đạo bằng Ngọc Kinh Thành mà thầy truyền, đối với nàng đều vô dụng. Đạo Quy Khư của nàng vĩnh viễn không thể khắc dấu trong hư không.”
+“Loại pháp thành đạo thứ ba là do Nhị công tử Di La Cung sáng tạo. Nhị công tử Vô Cực là Quy Khư Thần Nữ, đạo của nàng là Vô Cực, mênh mông mịt mờ, không dấu không cùng, không tìm được căn cơ. Khi nàng thành đạo, nàng phát hiện pháp thành đạo bằng Đạo Cảnh và pháp thành đạo bằng Ngọc Kinh Thành mà sư phụ truyền, đối với nàng đều vô dụng. Đạo Quy Khư của nàng vĩnh viễn không thể khắc dấu trong hư không.”
 
-Chủ điện Linh Quan cùng Hạo Thiên Đế đi vào trong cung, ngồi xuống rồi nói: “Khi ấy, nàng khai sáng pháp thành đạo bằng Quy Khư, cuối cùng thành đạo, uy lực mạnh đến mức khiến thầy cũng khen ngợi không thôi. Ta thấy ngài có huyết mạch Quy Khư Thần Nữ, lại tu luyện đạo Quy Khư, chỉ là đạo Quy Khư không thể thành đạo, nên mới nhớ tới pháp thành đạo của Nhị công tử.”
+Chủ điện Linh Quan cùng Hạo Thiên Đế đi vào trong cung, ngồi xuống rồi nói: “Khi ấy, nàng khai sáng pháp thành đạo bằng Quy Khư, cuối cùng thành đạo, uy lực mạnh đến mức khiến sư phụ cũng khen ngợi không thôi. Ta thấy ngài có huyết mạch Quy Khư Thần Nữ, lại tu luyện đạo Quy Khư, chỉ là đạo Quy Khư không thể thành đạo, nên mới nhớ tới pháp thành đạo của Nhị công tử.”
 
 Hạo Thiên Đế vái dài sát đất, nói: “Xin đạo huynh dạy ta!”
 
-Chủ điện Linh Quan lắc đầu nói: “Pháp thành đạo bằng Quy Khư vô dụng với ta, ta cũng biết không nhiều về cách thành đạo, chỉ từng nghe thầy nói một lần, hình như cần hỗn độn gieo sen. Thầy nói, một ao Hỗn Độn, gieo được kim liên nở. Cụ thể gieo thế nào, nở thế nào, thì không phải điều ta có thể biết.”
+Chủ điện Linh Quan lắc đầu nói: “Pháp thành đạo bằng Quy Khư vô dụng với ta, ta cũng biết không nhiều về cách thành đạo, chỉ từng nghe sư phụ nói một lần, hình như cần hỗn độn gieo sen. Sư phụ nói, một ao Hỗn Độn, gieo được kim liên nở. Cụ thể gieo thế nào, nở thế nào, thì không phải điều ta có thể biết.”
 
 Khi hắn nói câu “một ao Hỗn Độn, gieo được kim liên nở”, hắn dùng đạo ngữ, ý cảnh sâu xa vô cùng, giọng điệu cổ xưa vô cùng, rõ ràng không phải đạo ngữ mà Chủ điện Linh Quan có thể tham ngộ ra, mà xuất phát từ miệng Chủ nhân Di La Cung.
 

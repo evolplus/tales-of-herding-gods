@@ -14,7 +14,7 @@ Có lẽ cả hai đều có.
 
 Các đời Nhân Hoàng nhìn nhau, rồi ánh mắt rơi lên người Nhị Tổ. Tất cả cùng đưa tay chọc vào eo Nhị Tổ.
 
-Nhị Tổ Nhân Hoàng đau điếng, không tình nguyện lắm bước lên, tùy tiện nói: "Lão già... phì, ông trông còn trẻ hơn ta! Sư phụ, Tần Nhân Hoàng có sự kiêu ngạo của cậu ấy. Nếu thầy không hủy tâm huyết của chúng ta, không đập nát hài cốt và bia mộ của ta, cậu ấy cũng sẽ không đối xử với thầy như vậy. Đừng tự oán tự than nữa. Cậu ấy không học, công pháp của thầy có thể truyền cho ta mà."
+Nhị Tổ Nhân Hoàng đau điếng, không tình nguyện lắm bước lên, tùy tiện nói: "Lão già... phì, ông trông còn trẻ hơn ta! Sư phụ, Tần Nhân Hoàng có sự kiêu ngạo của cậu ấy. Nếu người không hủy tâm huyết của chúng ta, không đập nát hài cốt và bia mộ của ta, cậu ấy cũng sẽ không đối xử với người như vậy. Đừng tự oán tự than nữa. Cậu ấy không học, công pháp của sư phụ có thể truyền cho ta mà."
 
 Sơ Tổ Nhân Hoàng nhìn ông một cái, lắc đầu nói: "Ta cho ngươi tám trăm năm thời gian, ngươi vẫn không học được. Ta đã tuyệt vọng với ngươi rồi. Ta cảm thấy Tần Nhân Hoàng là Bá Thể, nhiều nhất mấy tháng là học được."
 
@@ -76,7 +76,7 @@ Nhưng bé gái và con thần khuyển này đều đông cứng tại chỗ. C
 
 Các vị Nhân Hoàng nhìn đông ngó tây, trong lòng càng lúc càng kinh hãi.
 
-Cách đó không xa có một vị thần chỉ dáng thư sinh. Trước mặt ông là một cô gái trẻ ôm mấy cuộn sách trong lòng, đang ngẩng đầu nhìn lên, dường như xin thầy chỉ điểm một vấn đề khó.
+Cách đó không xa có một vị thần chỉ dáng thư sinh. Trước mặt ông là một cô gái trẻ ôm mấy cuộn sách trong lòng, đang ngẩng đầu nhìn lên, dường như xin sư phụ chỉ điểm một vấn đề khó.
 
 Trong sân còn có mấy thiếu niên đang tu luyện thần thông. Hai thiếu niên trong đó đang tỉ thí, dáng người mạnh mẽ, tay kết ấn, như đang thi triển một loại ấn pháp thần thông. Vài thiếu niên đứng bên cạnh mỉm cười, ghé tai thì thầm, dường như bàn luận xem ai lợi hại hơn.
 
@@ -108,7 +108,7 @@ Bờ vai ông run hai cái, nuốt nước mắt vào lòng, đờ đẫn nói: 
 
 Ông tự giễu cười cười, lắc đầu: "Thời thế tạo anh hùng. Ta không muốn làm anh hùng này, không muốn làm Nhân Hoàng, nhưng họ đẩy ta lên vị trí ấy."
 
-Nhị Tổ Nhân Hoàng nói: "Sau đó thầy thu ta làm đồ đệ, ném Nhân Hoàng ấn cho ta, là vì thầy cảm thấy mình không xứng với khối Nhân Hoàng ấn này?"
+Nhị Tổ Nhân Hoàng nói: "Sau đó sư phụ thu ta làm đồ đệ, ném Nhân Hoàng ấn cho ta, là vì sư phụ cảm thấy mình không xứng với khối Nhân Hoàng ấn này?"
 
 Sơ Tổ Nhân Hoàng gật đầu.
 
@@ -118,25 +118,25 @@ Sơ Tổ Nhân Hoàng gật đầu.
 
 Nhị Tổ Nhân Hoàng và mọi người lại không bước vào Ngọc Minh Các, mà nhìn ông.
 
-Đột nhiên, Nhị Tổ giọng khàn khàn: "Sư phụ, nếu thầy có công pháp thần thông tốt hơn cao hơn, vì sao không truyền cho ta? Vì sao không truyền cho thế nhân? Thầy cảm thấy những người thầy cứu sống đều là phàm nhân, đều là tiện dân, không xứng với công pháp nơi này sao?"
+Đột nhiên, Nhị Tổ giọng khàn khàn: "Sư phụ, nếu người có công pháp thần thông tốt hơn cao hơn, vì sao không truyền cho ta? Vì sao không truyền cho thế nhân? Người cảm thấy những kẻ người cứu sống đều là phàm nhân, đều là tiện dân, không xứng với công pháp nơi này sao?"
 
-Ông không nhịn được lớn tiếng chất vấn, cười lạnh nói: "Đúng, thầy là Nhân Hoàng được các tộc cùng tôn kính, chúng ta chỉ là tiện dân, phàm nhân do thầy cứu, không bằng huyết thống cao quý của thầy. Thầy là hoàng tử, cao cao tại thượng, chúng ta không xứng với công pháp của thầy! Nếu thầy muốn truyền, vì sao hai vạn năm trước không truyền?"
+Ông không nhịn được lớn tiếng chất vấn, cười lạnh nói: "Đúng, người là Nhân Hoàng được các tộc cùng tôn kính, chúng ta chỉ là tiện dân, phàm nhân do người cứu, không bằng huyết thống cao quý của người. Người là hoàng tử, cao cao tại thượng, chúng ta không xứng với công pháp của người! Nếu người muốn truyền, vì sao hai vạn năm trước không truyền?"
 
-Ông không kìm được nỗi chua xót trong lòng, cao giọng nói: "Thầy biết không? Sau khi thầy đi, ta một mình đối kháng Thượng Thương. Ta liều chết chinh chiến, không biết bao nhiêu lần suýt bị đánh chết. Nhưng chính vì khối ấn rách thầy cho ta, ta kiên trì được. Ta cảm thấy ta là Nhân Hoàng, ta nên làm chút gì đó cho nhân tộc! Thầy dạy ta đi, thầy dạy ta đi chứ!"
+Ông không kìm được nỗi chua xót trong lòng, cao giọng nói: "Sư phụ biết không? Sau khi người đi, ta một mình đối kháng Thượng Thương. Ta liều chết chinh chiến, không biết bao nhiêu lần suýt bị đánh chết. Nhưng chính vì khối ấn rách người cho ta, ta kiên trì được. Ta cảm thấy ta là Nhân Hoàng, ta nên làm chút gì đó cho nhân tộc! Sư phụ dạy ta đi, sư phụ dạy ta đi chứ!"
 
 Sơ Tổ đờ đẫn.
 
-Nhị Tổ chỉ vào các đời Nhân Hoàng sau lưng, nghiêm giọng nói: "Họ, họ cũng kế thừa khối ấn rách ấy của thầy, vì lý tưởng mà thầy chẳng buồn đoái hoài, liều cả đời, đấu cả đời, dốc hết tâm huyết cả đời! Trong số họ có rất nhiều người cả đời chưa từng thành thân, không có con, không có hậu duệ, chỉ sợ vì thân phận Nhân Hoàng này mà liên lụy đời sau, chỉ sợ chuyện yêu đương làm lỡ sự nghiệp của Nhân Hoàng! Còn thầy thì sao? Thầy trốn cả đời, trốn suốt hai vạn năm đó! Thầy phụ chúng ta!"
+Nhị Tổ chỉ vào các đời Nhân Hoàng sau lưng, nghiêm giọng nói: "Họ, họ cũng kế thừa khối ấn rách ấy của người, vì lý tưởng mà người chẳng buồn đoái hoài, liều cả đời, đấu cả đời, dốc hết tâm huyết cả đời! Trong số họ có rất nhiều người cả đời chưa từng thành thân, không có con, không có hậu duệ, chỉ sợ vì thân phận Nhân Hoàng này mà liên lụy đời sau, chỉ sợ chuyện yêu đương làm lỡ sự nghiệp của Nhân Hoàng! Còn sư phụ thì sao? Người trốn cả đời, trốn suốt hai vạn năm đó! Người phụ chúng ta!"
 
 Thân thể Sơ Tổ run rẩy, lắc đầu nói: "Ta không thể truyền. Thời đại Khai Hoàng chỉ còn lại chút người này, ta không thể truyền cho các ngươi. Truyền cho các ngươi, các ngươi có sức uy hiếp, sẽ bị diệt."
 
 Ông ngẩng đầu, trong mắt ngập nước đục: "Truyền cho các ngươi chính là hại các ngươi, ta không thể truyền..."
 
-Nhị Tổ đờ đẫn. Rất lâu sau, ông khổ sở nói: "Bây giờ chúng ta đã chết rồi, chỉ còn nguyên thần. Lúc này thầy truyền cho chúng ta còn có ích gì?"
+Nhị Tổ đờ đẫn. Rất lâu sau, ông khổ sở nói: "Bây giờ chúng ta đã chết rồi, chỉ còn nguyên thần. Lúc này sư phụ truyền cho chúng ta còn có ích gì?"
 
 Sơ Tổ vùi đầu vào khuỷu tay, giọng khàn khàn: "Trong Ngọc Minh Cung có rất nhiều thân xác. Họ chết quá nhanh, thân xác được giữ lại. Các ngươi... các ngươi tự đoạt xá trọng sinh đi. Tần Nhân Hoàng cần các ngươi, cậu ấy mới xứng gọi là Nhân Hoàng... Đi! Đi đi! Đừng để ta nhìn thấy các ngươi!"
 
-Nhị Tổ và các đời Nhân Hoàng ngẩn ngơ. Đột nhiên Nhị Tổ bái xuống: "Thầy!"
+Nhị Tổ và các đời Nhân Hoàng ngẩn ngơ. Đột nhiên Nhị Tổ bái xuống: "Sư phụ!"
 
 Các Nhân Hoàng khác lần lượt bái xuống. Khi họ ngẩng đầu, Sơ Tổ Nhân Hoàng đã che mặt rời đi.
 

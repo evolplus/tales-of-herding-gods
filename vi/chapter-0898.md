@@ -10,7 +10,7 @@ Tần Mục quan sát bốn phía, trong lòng kinh ngạc, cười nói:
 
 Võ Cực Thần Tôn mời hắn lên ghế trên, nói:
 
-"Thầy ta là thanh mộc đắc đạo. Trước thời Long Hán, thầy ta là một cây cổ thụ, cành lá héo tàn khô mục. Ngự Thiên Tôn ngộ đạo dưới gốc cây, khai sáng Linh Thai Thần Tàng, trở thành Thiên Tôn đầu tiên đương thời. Khi ấy chư thiên chấn động, cổ thần xuất hiện trên bầu trời, tán tụng Ngự Thiên Tôn, ban phúc cho ngài. Thầy ta cũng được hưởng lợi từ Ngự Thiên Tôn. Cây cổ thụ vốn sắp khô héo, không ngờ nhờ vậy được chút thần khí, cây già hồi xuân hóa thành thần mộc."
+"Sư phụ ta là thanh mộc đắc đạo. Trước thời Long Hán, sư phụ ta là một cây cổ thụ, cành lá héo tàn khô mục. Ngự Thiên Tôn ngộ đạo dưới gốc cây, khai sáng Linh Thai Thần Tàng, trở thành Thiên Tôn đầu tiên đương thời. Khi ấy chư thiên chấn động, cổ thần xuất hiện trên bầu trời, tán tụng Ngự Thiên Tôn, ban phúc cho ngài. Sư phụ ta cũng được hưởng lợi từ Ngự Thiên Tôn. Cây cổ thụ vốn sắp khô héo, không ngờ nhờ vậy được chút thần khí, cây già hồi xuân hóa thành thần mộc."
 
 Tần Mục để Long Kỳ Lân phủ phục bên chân mình. Yên Nhi thì hóa thành một cô gái mập lớn đứng sau chỗ ngồi của Tần Mục, hoàn toàn không thấy mỹ mạo lúc ở rừng đào, trái lại có chút vẻ ngốc nghếch.
 
@@ -22,27 +22,27 @@ Những thần nhân dưới trướng Võ Cực Thần Tôn thấy hắn ngồi
 
 Võ Cực Thần Tôn cười nói:
 
-"Nhưng thầy ta tuy nhờ vậy thành thần mộc, cũng vì vậy mà gặp kiếp nạn."
+"Nhưng sư phụ ta tuy nhờ vậy thành thần mộc, cũng vì vậy mà gặp kiếp nạn."
 
 Tần Mục làm như không thấy ánh mắt của những người khác, hỏi:
 
 "Vì sao lại thế?"
 
-"Vốn dĩ thầy ta không có tài, lại già nua, là cây mục. Chặt xuống làm đồ dùng không được, chạm thành thần tượng đẹp cũng không xong, làm củi đốt cũng tốn sức, vì vậy mới có thể sống sót."
+"Vốn dĩ sư phụ ta không có tài, lại già nua, là cây mục. Chặt xuống làm đồ dùng không được, chạm thành thần tượng đẹp cũng không xong, làm củi đốt cũng tốn sức, vì vậy mới có thể sống sót."
 
 Võ Cực Thần Tôn mỉm cười, trong lời nói ẩn ý sâu xa:
 
-"Nhưng khi thầy ta trở thành thần mộc, trái lại lại có ích. Qua vài năm liền bị người ta chặt xuống luyện thành bảo vật, vì vậy trong mấy chục vạn năm đều thân bất do kỷ. Mục Thiên Tôn, không tài không dụng mới là đạo sinh tồn. Ngài nói có phải không?"
+"Nhưng khi sư phụ ta trở thành thần mộc, trái lại lại có ích. Qua vài năm liền bị người ta chặt xuống luyện thành bảo vật, vì vậy trong mấy chục vạn năm đều thân bất do kỷ. Mục Thiên Tôn, không tài không dụng mới là đạo sinh tồn. Ngài nói có phải không?"
 
 Tần Mục cười ha hả:
 
 "Có vài phần đạo lý."
 
-"Thầy ta vì thành vật liệu nên bị người ta chặt luyện bảo. Năm xưa hội Dao Trì đầu thời Long Hán, thầy ta bị người ta mang lên Dao Trì, nhờ đó được thấy chín vị Thiên Tôn, trong đó có Mục Thiên Tôn, cũng được thấy vẻ huy hoàng của thời thịnh thế ấy."
+"Sư phụ ta vì thành vật liệu nên bị người ta chặt luyện bảo. Năm xưa hội Dao Trì đầu thời Long Hán, sư phụ ta bị người ta mang lên Dao Trì, nhờ đó được thấy chín vị Thiên Tôn, trong đó có Mục Thiên Tôn, cũng được thấy vẻ huy hoàng của thời thịnh thế ấy."
 
 Võ Cực Thần Tôn nói:
 
-"Khi ấy thầy ta mơ mơ hồ hồ, là một linh binh, bị người cầm trong tay, nghe giảng giữa đám đông. Mà trên thần đài giảng giải Thiên Cung chính là Ngự Thiên Tôn và Hạo Thiên Tôn. Sau này thầy ta mới biết Ngự Thiên Tôn kia thật ra là Mục Thiên Tôn, vì vậy thầy ta vô cùng cảm kích các hạ."
+"Khi ấy sư phụ ta mơ mơ hồ hồ, là một linh binh, bị người cầm trong tay, nghe giảng giữa đám đông. Mà trên thần đài giảng giải Thiên Cung chính là Ngự Thiên Tôn và Hạo Thiên Tôn. Sau này sư phụ ta mới biết Ngự Thiên Tôn kia thật ra là Mục Thiên Tôn, vì vậy sư phụ ta vô cùng cảm kích các hạ."
 
 Tần Mục bật cười:
 
@@ -50,17 +50,17 @@ Tần Mục bật cười:
 
 Võ Cực Thần Tôn nói:
 
-"Về sau hậu thiên sinh linh và bán thần tự xây Thiên Đình, chinh chiến không ngừng, thầy ta cũng đổi chủ mấy lần. Khi Long Hán sơ kiếp bùng nổ, Thiên Đình bay lên, rời xa phàm gian, cao cư ngoài chín tầng trời. Sau chiến tranh, thầy ta cũng trở thành cây vô chủ rơi vào phàm gian. Lại qua mấy vạn năm, khi thầy ta sắp thoát khỏi thân cây, lại bị thần nhân thời Xích Minh nhìn trúng, chặt đi luyện thành chày."
+"Về sau hậu thiên sinh linh và bán thần tự xây Thiên Đình, chinh chiến không ngừng, sư phụ ta cũng đổi chủ mấy lần. Khi Long Hán sơ kiếp bùng nổ, Thiên Đình bay lên, rời xa phàm gian, cao cư ngoài chín tầng trời. Sau chiến tranh, sư phụ ta cũng trở thành cây vô chủ rơi vào phàm gian. Lại qua mấy vạn năm, khi sư phụ ta sắp thoát khỏi thân cây, lại bị thần nhân thời Xích Minh nhìn trúng, chặt đi luyện thành chày."
 
 Tần Mục bóp cổ tay thở dài:
 
 "Trải nghiệm của Đông Thiên Thanh Đế đúng là lắm tai nhiều nạn, khiến người ta đồng tình."
 
-"Dọc đường trôi dạt, nguyên linh của thầy ta trước sau bất diệt, lại mấy lần đổi chủ, thậm chí từng có một thời gian rơi vào tay Minh Hoàng, trở thành thần binh Đế Tọa. Đến thời Thượng Hoàng, sát phạt càng nặng, thầy ta trở thành một trong những thần khí mạnh nhất mà Nam Bắc Thượng Hoàng Thiên Đình tranh đoạt."
+"Dọc đường trôi dạt, nguyên linh của sư phụ ta trước sau bất diệt, lại mấy lần đổi chủ, thậm chí từng có một thời gian rơi vào tay Minh Hoàng, trở thành thần binh Đế Tọa. Đến thời Thượng Hoàng, sát phạt càng nặng, sư phụ ta trở thành một trong những thần khí mạnh nhất mà Nam Bắc Thượng Hoàng Thiên Đình tranh đoạt."
 
 Võ Cực Thần Tôn nói:
 
-"Thời Thượng Hoàng, cổ thần Thiên Đình cũng từng tham chiến. Vì thầy ta được luyện quá mạnh, Đông Đế Thanh Long đích thân ra tay, đánh gãy thầy ta trong một trận đại chiến, vì vậy kết thù với thầy ta."
+"Thời Thượng Hoàng, cổ thần Thiên Đình cũng từng tham chiến. Vì sư phụ ta được luyện quá mạnh, Đông Đế Thanh Long đích thân ra tay, đánh gãy sư phụ ta trong một trận đại chiến, vì vậy kết thù với sư phụ ta."
 
 Tần Mục nhìn về phía những bích họa kia, bừng tỉnh nói:
 
@@ -68,7 +68,7 @@ Tần Mục nhìn về phía những bích họa kia, bừng tỉnh nói:
 
 Võ Cực Thần Tôn nói:
 
-"Thầy ta tuy bị Đông Đế đánh gãy, nhưng không chết. Đến cuối thời Thượng Hoàng hóa thành thân người, vì vậy thề tương lai tất báo đại thù. Về sau càng được Thiên Đình trọng dụng, một lần trở thành Đông Thiên Thanh Đế, chủ nhân Đông Thiên Cung. Tương lai thầy ta cũng sẽ thay thế Thanh Long Thiên Cung, trở thành Đông Đế!"
+"Sư phụ ta tuy bị Đông Đế đánh gãy, nhưng không chết. Đến cuối thời Thượng Hoàng hóa thành thân người, vì vậy thề tương lai tất báo đại thù. Về sau càng được Thiên Đình trọng dụng, một lần trở thành Đông Thiên Thanh Đế, chủ nhân Đông Thiên Cung. Tương lai sư phụ ta cũng sẽ thay thế Thanh Long Thiên Cung, trở thành Đông Đế!"
 
 Tần Mục tán thưởng:
 
@@ -76,7 +76,7 @@ Tần Mục tán thưởng:
 
 Võ Cực Thần Tôn nói:
 
-"Thầy ta không muốn làm địch với Mục Thiên Tôn. Dù sao Mục Thiên Tôn có ân với thầy ta. Từ lúc ở kinh thành Diên Khang, thầy ta đã nhường nhịn Mục Thiên Tôn nhiều lần."
+"Sư phụ ta không muốn làm địch với Mục Thiên Tôn. Dù sao Mục Thiên Tôn có ân với sư phụ ta. Từ lúc ở kinh thành Diên Khang, sư phụ ta đã nhường nhịn Mục Thiên Tôn nhiều lần."
 
 Tần Mục nghiêm sắc mặt:
 
@@ -84,7 +84,7 @@ Tần Mục nghiêm sắc mặt:
 
 Võ Cực Thần Tôn nói:
 
-"Trước khi thầy ta trở về Đông Thiên đã dặn ta, nếu Mục Thiên Tôn có thể an cư lạc nghiệp ở đây, Đông Thiên Cung nguyện ý cung cấp bảo hộ cho Mục Thiên Tôn, bảo đảm Mục Thiên Tôn an toàn. Thầy ta nói, năm xưa ông là cây vô dụng, về sau vì hữu dụng nên chìm nổi mấy chục vạn năm, thân bất do kỷ, mãi về sau mới có thể thoát thân. Mục Thiên Tôn là người thông minh, hẳn hiểu ý thầy ta."
+"Trước khi sư phụ ta trở về Đông Thiên đã dặn ta, nếu Mục Thiên Tôn có thể an cư lạc nghiệp ở đây, Đông Thiên Cung nguyện ý cung cấp bảo hộ cho Mục Thiên Tôn, bảo đảm Mục Thiên Tôn an toàn. Sư phụ ta nói, năm xưa ông là cây vô dụng, về sau vì hữu dụng nên chìm nổi mấy chục vạn năm, thân bất do kỷ, mãi về sau mới có thể thoát thân. Mục Thiên Tôn là người thông minh, hẳn hiểu ý sư phụ ta."
 
 Tần Mục cười:
 
@@ -92,7 +92,7 @@ Tần Mục cười:
 
 Võ Cực Thần Tôn cười nói:
 
-"Thầy ta chính là ý này. Để giữ Mục Thiên Tôn, thầy ta cam lòng đối đầu với vài thế lực nào đó, cũng rất khó xử. Thầy ta nói Mục Thiên Tôn không còn hồn phách, chỉ e khó chống đỡ quá lâu. Đông Thiên Cung chúng ta dù chịu chút khổ cũng không sao. Mục Thiên Tôn dưỡng lão ở đây, an hưởng tuổi trời, cũng xem như báo đáp ơn truyền công truyền pháp của Mục Thiên Tôn tại hội Dao Trì. Mục Thiên Tôn hẳn có thể lĩnh hội khổ tâm của thầy ta."
+"Sư phụ ta chính là ý này. Để giữ Mục Thiên Tôn, sư phụ ta cam lòng đối đầu với vài thế lực nào đó, cũng rất khó xử. Sư phụ ta nói Mục Thiên Tôn không còn hồn phách, chỉ e khó chống đỡ quá lâu. Đông Thiên Cung chúng ta dù chịu chút khổ cũng không sao. Mục Thiên Tôn dưỡng lão ở đây, an hưởng tuổi trời, cũng xem như báo đáp ơn truyền công truyền pháp của Mục Thiên Tôn tại hội Dao Trì. Mục Thiên Tôn hẳn có thể lĩnh hội khổ tâm của sư phụ ta."
 
 "Ta lĩnh hội, nhưng không nhận tình."
 
@@ -102,7 +102,7 @@ Tần Mục bật cười:
 
 Sắc mặt Võ Cực Thần Tôn khẽ biến, rồi lại nở nụ cười:
 
-"Mục Thiên Tôn không muốn nhận sự bảo hộ của Đông Thiên Cung ta, vậy ta cũng đành bó tay. Nói thật, Đông Thiên Cung tuy là thế lực của thầy ta, nhưng cũng có các thế lực khác trong Thiên Đình. Dưới trướng ta cũng có rất nhiều đệ tử các thế lực lớn tới rèn luyện."
+"Mục Thiên Tôn không muốn nhận sự bảo hộ của Đông Thiên Cung ta, vậy ta cũng đành bó tay. Nói thật, Đông Thiên Cung tuy là thế lực của sư phụ ta, nhưng cũng có các thế lực khác trong Thiên Đình. Dưới trướng ta cũng có rất nhiều đệ tử các thế lực lớn tới rèn luyện."
 
 Các thần nhân dưới trướng hắn rục rịch muốn thử.
 

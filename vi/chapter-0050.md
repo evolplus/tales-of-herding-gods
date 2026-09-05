@@ -108,7 +108,7 @@ Hồ Linh Nhi bừng tỉnh, vội nói:
 
 "Trong tay còn lại của Cố Li Noãn chống một cây hắc phiên, rất quỷ dị! Lão bị phong băng là cả một quá trình, chắc chắn đã dùng hắc phiên giết những môn sinh của lão."
 
-"Khi lão bị long châu phong ấn trong huyền băng, không thể thoát ra, trong lòng biết mình tất sẽ bị giam ở đây rất lâu. Chốn quan trường nghiêng ngả đấu đá, môn sinh của lão tuy có tiếng là môn sinh, nhưng đều là quan của Diên Khang quốc, không có tình nghĩa thầy trò gì. Những người này chưa chắc sẽ báo triều đình tới cứu lão. Dù sao trống ra một vị trí Thái tử Thiếu bảo thì với mọi người đều có lợi."
+"Khi lão bị long châu phong ấn trong huyền băng, không thể thoát ra, trong lòng biết mình tất sẽ bị giam ở đây rất lâu. Chốn quan trường nghiêng ngả đấu đá, môn sinh của lão tuy có tiếng là môn sinh, nhưng đều là quan của Diên Khang quốc, không có tình nghĩa sư đồ gì. Những người này chưa chắc sẽ báo triều đình tới cứu lão. Dù sao trống ra một vị trí Thái tử Thiếu bảo thì với mọi người đều có lợi."
 
 Tần Mục gật đầu:
 

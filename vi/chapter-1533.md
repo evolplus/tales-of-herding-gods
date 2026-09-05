@@ -38,7 +38,7 @@ Hắn không nhanh không chậm theo sau hai vị Thái Cực cổ thần, tron
 
 Trong lòng hắn khó quyết. Hai vị cổ thần chưa từng làm ác, thậm chí còn giúp mình rất nhiều. Ra tay với họ, lương tâm hắn bất an.
 
-Nhưng bây giờ là thời cơ tốt nhất để triệt để trừ bỏ Nguyên Mẫu và Đế hậu. Họ còn chưa hoàn toàn dung hợp, chưa lột xác. Nếu họ dung hợp thành công, lột xác thành công, trở thành bậc thành đạo, khi đó muốn trừ bỏ họ sẽ khó như lên trời!
+Nhưng bây giờ là thời cơ tốt nhất để triệt để trừ khử Nguyên Mẫu và Đế hậu. Họ còn chưa hoàn toàn dung hợp, chưa lột xác. Nếu họ dung hợp thành công, lột xác thành công, trở thành bậc thành đạo, khi đó muốn trừ khử họ sẽ khó như lên trời!
 
 Thậm chí Tần Mục chưa chắc có thể thoát khỏi tay họ.
 
@@ -56,7 +56,7 @@ Hai vị cổ thần kia cười nói: “Chúng ta không dám. Hiện giờ ch
 
 “Chúng ta cũng đang đánh cược. Cược xem lòng hiếu kỳ của Mục Thiên Tôn có thật sự mạnh như lời đồn không. Nếu Mục Thiên Tôn thật sự hiếu kỳ như lời đồn, vậy nhất định sẽ không trực tiếp ra tay, mà tự mình theo tới, tận mắt nhìn Nguyên Mẫu và Đế hậu dung hợp, thành đạo ra sao.”
 
-Sắc mặt Tần Mục tối sầm, tiếp tục cất bước đi về phía họ, tức tối nói: “Hai vị đạo huynh thật hiểu ta. Hai vị đạo huynh, hiện giờ ta không hiếu kỳ nữa, ta chỉ muốn trừ bỏ Thạch Kỳ La và Nghiên Thiên Phi.”
+Sắc mặt Tần Mục tối sầm, tiếp tục cất bước đi về phía họ, tức tối nói: “Hai vị đạo huynh thật hiểu ta. Hai vị đạo huynh, hiện giờ ta không hiếu kỳ nữa, ta chỉ muốn trừ khử Thạch Kỳ La và Nghiên Thiên Phi.”
 
 Hai vị cổ thần đồng loạt xoay người, đối mặt với Tần Mục. Ông lão nhỏ Thái Dương cổ thần hì hì cười nói: “Thạch Kỳ La và Nghiên Thiên Phi, hai vị Thiên Tôn ấy đã không còn nữa. Hiện tại chỉ có Quy Khư thần nữ.”
 

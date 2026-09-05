@@ -2,7 +2,7 @@
 
 ## Giới thiệu
 
-Mục Thần Ký là một truyện huyền huyễn kể về Tần Mục, đứa trẻ lớn lên ở Tàn Lão Thôn giữa vùng Đại Khư đầy bóng tối và thần bí. Từ những bài học đầu đời của các lão nhân khiếm khuyết nhưng phi phàm, Tần Mục bước vào con đường tu luyện khác hẳn khuôn mẫu chính thống. Câu chuyện mở rộng từ giang hồ, tông môn, triều đình đến Thiên Đình, U Đô, Huyền Đô, Tổ Đình và những kỷ nguyên xa xưa. Trọng tâm của truyện không chỉ là sức mạnh thần thông, mà còn là ý chí tự chủ trước những trật tự được các thế lực lớn áp đặt. Tần Mục cùng các bằng hữu và tiền bối liên tục chất vấn thần quyền, thiên mệnh, giáo điều và những hệ thống đã cũ. Tinh thần Diên Khang biến pháp đem lại cho tác phẩm màu sắc cải cách rõ nét, nơi tri thức, đạo pháp và con người cùng được đặt lại vị trí. Bên cạnh các trận chiến hùng tráng, truyện có nhiều khoảnh khắc hài hước, ngang tàng, cảm động và thấm đẫm tình thầy trò, tình bằng hữu. Các khái niệm như Thần Tàng, Thiên Cung, Đạo Cảnh, Hỗn Độn và đại kiếp được triển khai ngày càng rộng, tạo nên một vũ trụ tu hành đồ sộ. Tuyến nhân vật phụ phong phú giúp thế giới truyện có chiều sâu, từ các lão nhân Tàn Lão Thôn đến những Thiên Tôn, cổ thần, Tạo Vật Chủ và công tử Di La Cung. Bản dịch tiếng Việt trong thư mục này giữ phong vị huyền huyễn, giang hồ và tinh thần tự do phóng khoáng xuyên suốt 1834 chương.
+Mục Thần Ký là một truyện huyền huyễn kể về Tần Mục, đứa trẻ lớn lên ở Tàn Lão Thôn giữa vùng Đại Khư đầy bóng tối và thần bí. Từ những bài học đầu đời của các lão nhân khiếm khuyết nhưng phi phàm, Tần Mục bước vào con đường tu luyện khác hẳn khuôn mẫu chính thống. Câu chuyện mở rộng từ giang hồ, tông môn, triều đình đến Thiên Đình, U Đô, Huyền Đô, Tổ Đình và những kỷ nguyên xa xưa. Trọng tâm của truyện không chỉ là sức mạnh thần thông, mà còn là ý chí tự chủ trước những trật tự được các thế lực lớn áp đặt. Tần Mục cùng các bằng hữu và tiền bối liên tục chất vấn thần quyền, thiên mệnh, giáo điều và những hệ thống đã cũ. Tinh thần Diên Khang biến pháp đem lại cho tác phẩm màu sắc cải cách rõ nét, nơi tri thức, đạo pháp và con người cùng được đặt lại vị trí. Bên cạnh các trận chiến hùng tráng, truyện có nhiều khoảnh khắc hài hước, ngang tàng, cảm động và thấm đẫm tình sư đồ, tình bằng hữu. Các khái niệm như Thần Tàng, Thiên Cung, Đạo Cảnh, Hỗn Độn và đại kiếp được triển khai ngày càng rộng, tạo nên một vũ trụ tu hành đồ sộ. Tuyến nhân vật phụ phong phú giúp thế giới truyện có chiều sâu, từ các lão nhân Tàn Lão Thôn đến những Thiên Tôn, cổ thần, Tạo Vật Chủ và công tử Di La Cung. Bản dịch tiếng Việt trong thư mục này giữ phong vị huyền huyễn, giang hồ và tinh thần tự do phóng khoáng xuyên suốt 1834 chương.
 
 ## Chỉ mục chương
 
@@ -616,7 +616,7 @@ Mục Thần Ký là một truyện huyền huyễn kể về Tần Mục, đứ
 - [Chương 0608: Bào chế y như cũ](vi/chapter-0608.md)
 - [Chương 0609: Củ khoai nóng bỏng tay](vi/chapter-0609.md)
 - [Chương 0610: Mở chiếc hộp](vi/chapter-0610.md)
-- [Chương 0611: Thầy giỏi trò hay](vi/chapter-0611.md)
+- [Chương 0611: Lương sư và cao đồ](vi/chapter-0611.md)
 - [Chương 0612: Truyền thánh hai vạn năm](vi/chapter-0612.md)
 - [Chương 0613: Thù hận khó giải](vi/chapter-0613.md)
 - [Chương 0614: Cây sáng hoa bạc trong hoàng hôn](vi/chapter-0614.md)
@@ -1182,7 +1182,7 @@ Mục Thần Ký là một truyện huyền huyễn kể về Tần Mục, đứ
 - [Chương 1174: Hóa Sinh Huyền Công](vi/chapter-1174.md)
 - [Chương 1175: Điền Thục say rượu](vi/chapter-1175.md)
 - [Chương 1176: Gặp lại cố nhân](vi/chapter-1176.md)
-- [Chương 1177: Thầy trò gặp nhau](vi/chapter-1177.md)
+- [Chương 1177: Sư đồ gặp nhau](vi/chapter-1177.md)
 - [Chương 1178: Hai giấc mộng nối nhau](vi/chapter-1178.md)
 - [Chương 1179: Một giấc mộng Phạn Thiên](vi/chapter-1179.md)
 - [Chương 1180: Quần hùng mới cũ](vi/chapter-1180.md)

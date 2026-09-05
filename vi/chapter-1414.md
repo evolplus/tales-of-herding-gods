@@ -104,7 +104,7 @@ Hư Sinh Hoa vẫn nhìn vào mắt bà ta, dịu giọng: "Mỗi lần nương 
 
 ...
 
-Ngoài điện, Tú Hồng Tô nhìn mèo trắng Tiểu Thất giận dữ ngút trời rời đi, trong lòng khẽ động, vội gọi hắn lại, thầm nghĩ: "Nếu ta đi bẩm báo Thái Cực cổ thần, tất nhiên sẽ bị nương nương tra tới đầu ta. Ta với nương nương tuy là thầy trò, thực ra là chủ tớ. Ta leo tới địa vị hiện nay không dễ, loại chuyện mạo hiểm này tự nhiên nên để người khác làm thì hơn."
+Ngoài điện, Tú Hồng Tô nhìn mèo trắng Tiểu Thất giận dữ ngút trời rời đi, trong lòng khẽ động, vội gọi hắn lại, thầm nghĩ: "Nếu ta đi bẩm báo Thái Cực cổ thần, tất nhiên sẽ bị nương nương tra tới đầu ta. Ta với nương nương tuy là sư đồ, thực ra là chủ tớ. Ta leo tới địa vị hiện nay không dễ, loại chuyện mạo hiểm này tự nhiên nên để người khác làm thì hơn."
 
 Nàng nói như vậy như vậy với mèo trắng Tiểu Thất.
 

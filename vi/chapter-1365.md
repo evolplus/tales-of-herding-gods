@@ -102,7 +102,7 @@ Thần thức Hư Sinh Hoa dao động, truyền toàn bộ kết quả tính to
 
 Lam Ngự Điền mở to mắt, lập tức cất bước xông vào thần thức tù lung. Tốc độ của hắn trong khoảnh khắc này đạt đến cảnh giới không thể tưởng tượng!
 
-Lão què truyền hết bản lĩnh cả đời cho hắn, Đạo Thiên Cung cũng dốc túi truyền thụ. Còn hắn thì làm được trò giỏi hơn thầy.
+Lão què truyền hết bản lĩnh cả đời cho hắn, Đạo Thiên Cung cũng dốc túi truyền thụ. Còn hắn thì làm được đệ tử vượt sư phụ.
 
 Thân hình hắn lao vút, xem nhẹ biến hóa của vật chất, xem nhẹ biến hóa của thần thức tù lung, chỉ trong chớp mắt đã đuổi kịp Sơ Tổ Nhân Hoàng.
 

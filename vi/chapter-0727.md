@@ -12,7 +12,7 @@ Còn Quốc sư Diên Khang hiện giờ thì có thêm vài phần hơi ngườ
 
 Tiều Phu thong thả nói: "Vì vậy ta nói với cô gái kia: Vân Hề, ta không phải người để nàng gửi gắm cả đời. Việc Khai Hoàng giao phó can hệ trọng đại, trên đời còn có quá nhiều thứ chờ ta thay đổi, cho nên ta chỉ có thể phụ tấm thâm tình."
 
-Tần Mục nghe đến nhập thần, cười nói: "Thầy, giữa nhà và nước vẫn có thể vẹn cả đôi đường, cần gì phải từ chối người ta? Thầy từ chối nàng, vậy lại đắc tội Vũ Đấu Thiên Sư thế nào?"
+Tần Mục nghe đến nhập thần, cười nói: "Sư phụ, giữa nhà và nước vẫn có thể vẹn cả đôi đường, cần gì phải từ chối người ta? Sư phụ từ chối nàng, vậy lại đắc tội Vũ Đấu Thiên Sư thế nào?"
 
 "Nàng tên là Yên Vân Hề, là một nữ tử, một nữ tử rất mê người."
 
@@ -20,7 +20,7 @@ Hiển nhiên Tiều Phu đang hồi tưởng vị nữ tử xuất chúng thoá
 
 Sắc mặt Tiều Phu cổ quái: "Ta nói, tình yêu Trác Trà dành cho võ đạo vượt trên tình yêu dành cho nàng. Ông ấy đối với võ đạo là chân ái, đối với nàng chỉ là ham thích nhất thời. Trác Trà không phải người đáng gửi gắm. Ta nói bằng thân phận bạn bè, phân tích tính cách Trác Trà, nhìn vẫn rất chuẩn. Nghĩ lại thì câu này sau đó truyền tới tai Trác Trà, cho nên ông ấy luôn nhìn ta không vừa mắt."
 
-Tần Mục nói: "Thầy đúng là đáng bị đánh... Con không có ý này!"
+Tần Mục nói: "Sư phụ đúng là đáng bị đánh... Con không có ý này!"
 
 Hắn ôm đầu. Vừa rồi hắn bị Tiều Phu gõ mạnh một cái lên đầu, đau nóng rát.
 
@@ -38,7 +38,7 @@ Trong mắt Tần Mục đầy mờ mịt: "Vị tỷ tỷ Yên Vân Hề này..
 
 Tiều Phu quát: "Gọi sư thúc! Đừng gọi tỷ tỷ!"
 
-Tần Mục ngắc ngứ nói: "Thầy, vừa rồi thầy nói Vân Hề sư thúc đổi tên, nàng đổi thành tên gì? Người có bản lĩnh đánh Vũ Đấu Thiên Sư ngoan ngoãn phục tùng không nhiều. Con lại từng nghe Vũ Đấu Thiên Sư nói về một người, từng trị ông ấy ngoan ngoãn phục tùng. Nhưng người kia không gọi là Vân Hề, mà gọi là Tử Hề."
+Tần Mục ngắc ngứ nói: "Sư phụ, vừa rồi sư phụ nói Vân Hề sư thúc đổi tên, nàng đổi thành tên gì? Người có bản lĩnh đánh Vũ Đấu Thiên Sư ngoan ngoãn phục tùng không nhiều. Con lại từng nghe Vũ Đấu Thiên Sư nói về một người, từng trị ông ấy ngoan ngoãn phục tùng. Nhưng người kia không gọi là Vân Hề, mà gọi là Tử Hề."
 
 Tiều Phu không nói, nhìn ra ngoài cửa.
 
@@ -134,7 +134,7 @@ Hắn căn bản không có Thần Kiều Thần Tàng!
 
 Vô số phù văn xung quanh Hư Sinh Hoa tung bay, suy tính vị trí Thần Kiều Thần Tàng của Hồ Bất Quy. Qua một lát, hắn lắc đầu nói: "Quả nhiên không có Thần Kiều Thần Tàng! Tốt, tốt!"
 
-"Ta đi đánh chết thầy của ngươi." Lão nông nói với Tần Mục.
+"Ta đi đánh chết sư phụ của ngươi." Lão nông nói với Tần Mục.
 
 Hư Sinh Hoa đi tới đi lui quanh Hồ Bất Quy, trong mắt lóe lên ánh sáng hưng phấn, nói rất nhanh: "Hồ huynh, căn cơ của ngươi quá tốt, đúng lúc có thể thử pháp môn hợp nhất thần tàng do ta khai sáng! Ta thì không được, ta là Bá Thể, nhưng ta biết quá muộn, khiến căn cơ các cảnh giới trước kia hơi không vững. Tuy ta muốn hợp nhất thần tàng, nhưng tu vi còn thiếu một chút. Vốn ta định dùng Tần huynh để thử nghiệm, nhưng thân thể của ngươi rắn chắc, căn cơ lại tốt, vừa hay có thể dùng thân thể ngươi thử một chút! Đúng rồi, ngươi cũng là Bá Thể sao?"
 

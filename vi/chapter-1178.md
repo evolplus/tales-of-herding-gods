@@ -22,7 +22,7 @@ Khai Hoàng Thiên Đình khi đó được cổ thần nâng đỡ. Cổ thần
 
 Vì vậy quan hệ giữa Khai Hoàng Thiên Đình với Thiên Công, Thổ Bá và cổ thần Tứ Đế đều rất tốt.
 
-Khai Hoàng đưa Đế Dịch Nguyệt đến chỗ cổ thần Tứ Đế tu hành, để Đế Dịch Nguyệt bái Tứ Đế làm thầy. Điểm mạnh của Đế Dịch Nguyệt cũng bộc lộ trọn vẹn vào lúc ấy.
+Khai Hoàng đưa Đế Dịch Nguyệt đến chỗ cổ thần Tứ Đế tu hành, để Đế Dịch Nguyệt bái Tứ Đế làm sư phụ. Điểm mạnh của Đế Dịch Nguyệt cũng bộc lộ trọn vẹn vào lúc ấy.
 
 Khi đó, Đế Dịch Nguyệt dễ dàng học được đạo pháp thần thông của Tứ Đế, dung hội quán thông, một lần tu thành bốn đại Thiên Cung, chấn động thiên hạ.
 

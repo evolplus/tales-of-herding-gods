@@ -48,7 +48,7 @@ Tần Mục cúi đầu, nhấc chân đá bay một viên đá, ấm ức nói:
 
 Thôn trưởng tức đến bật cười, nhìn Dược sư: "Ông nói nó có ghét bỏ không? Làm Nhân Hoàng rất mất mặt sao? Càng ngày càng to gan lớn mật rồi!"
 
-Dược sư ho liên tục, nói: "Hai thầy trò cứ từ từ nói chuyện, ta đi xem côn trùng của ta, đừng để bị đông chết."
+Dược sư ho liên tục, nói: "Sư đồ hai người cứ từ từ nói chuyện, ta đi xem côn trùng của ta, đừng để bị đông chết."
 
 Thôn trưởng tức không đánh ra được. Đột nhiên ông tỉnh ngộ, bật cười nói: "Người khác cầu ta dạy, ta còn không dạy. Bây giờ con muốn ta nghĩ đủ cách cầu con học đúng không? Con càng ngày càng xấu rồi. Nói thật, con thật sự không phải vật liệu làm Nhân Hoàng. Ta thật sự lười ra ngoài, nếu không nhất định sẽ tìm được một thiếu niên xuất sắc hơn con."
 

@@ -120,7 +120,7 @@ Bọn họ tới trung tâm hoàng thành. Nơi này trong thành có thành, t�
 
 Vị thần tướng ba đầu dẫn bọn họ tới trước một trang viên cung điện, nói: "Sứ giả Diên Khang trước hết ở đây. Không lâu nữa Thần Tử sẽ triệu kiến."
 
-Tần Mục nghe thấy bên cạnh truyền đến tiếng đọc sách vang vang, bèn bước tới, ngẩng đầu nhìn vào trong. Trong điện cực kỳ xa hoa, hẳn là tư thục của quý tộc Thần Ma. Có vài đứa trẻ ba đầu sáu tay ngồi trong điện, đọc sách theo thầy.
+Tần Mục nghe thấy bên cạnh truyền đến tiếng đọc sách vang vang, bèn bước tới, ngẩng đầu nhìn vào trong. Trong điện cực kỳ xa hoa, hẳn là tư thục của quý tộc Thần Ma. Có vài đứa trẻ ba đầu sáu tay ngồi trong điện, đọc sách theo tiên sinh.
 
 Chúng có ba cái miệng, giọng trong trẻo, truyền rõ ràng vào tai Tần Mục: "Long Hán chia ba tầng trời, Xích Minh tách hai đoạn! Nam Bắc Thượng Hoàng lập, Khai Hoàng một đời truyền!"
 

@@ -54,7 +54,7 @@ Vị thần nhân một tay kia chính là Thần Đao Lạc Vô Song.
 
 Lạc Vô Song thi lễ với Đồ phu và Triết Hoa Lê. Đồ phu đáp lễ, Triết Hoa Lê lại hạ nửa phần lễ, nói: "Tham kiến Lạc đạo huynh."
 
-Hắn và Lạc Vô Song đã đoạn tuyệt quan hệ thầy trò. Lạc Vô Song trục xuất hắn khỏi sư môn, vì vậy hắn chỉ có thể gọi Lạc Vô Song là đạo huynh. Nhưng vì từng là đệ tử, nên lễ thấp hơn nửa phần.
+Hắn và Lạc Vô Song đã đoạn tuyệt quan hệ sư đồ. Lạc Vô Song trục xuất hắn khỏi sư môn, vì vậy hắn chỉ có thể gọi Lạc Vô Song là đạo huynh. Nhưng vì từng là đệ tử, nên lễ thấp hơn nửa phần.
 
 Lạc Vô Song thi lễ với Tần Mục, nói: "Tần Bá Thể."
 
@@ -132,7 +132,7 @@ Hắn tuy cuồng ngạo bất kham, nhưng lại cực kỳ kính trọng Đồ
 
 Trên đời hiện nay có hai người khiến hắn kính trọng. Một người là Thần Đao Lạc Vô Song. Lạc Vô Song tiếc tài yêu tài, tự biết đao pháp của mình là đao pháp một tay, còn Triết Hoa Lê đủ cả hai tay, học theo mình thì hoặc sẽ như các đệ tử khác chém đứt cánh tay, hoặc chỉ có thể đi ra con đường của mình.
 
-Vì vậy Lạc Vô Song đưa hắn cho Ma tộc Phược Nhật La, để hắn bái Phược Nhật La làm thầy. Khí độ khí phách của người này khiến người ta kính phục.
+Vì vậy Lạc Vô Song đưa hắn cho Ma tộc Phược Nhật La, để hắn bái Phược Nhật La làm sư phụ. Khí độ khí phách của người này khiến người ta kính phục.
 
 Người thứ hai khiến Triết Hoa Lê kính trọng chính là Thiên Đao.
 

@@ -64,7 +64,7 @@ Trong lòng Tần Mục nghiêm lại. Dùng biện pháp này thì cần Thập
 
 “Nếu Khai Hoàng có thể cản được, mới có thể bước vào thế giằng co, vùng đất Thái Hư mới có khả năng luyện binh. Nếu không cản được, chỉ có thể lui về cố thủ Cầu Hư Không.”
 
-Tần Mục nheo mắt, nhìn về Ngọc Kinh Thành phía xa. Thập Thiên Tôn muốn trừ bỏ Khai Hoàng và Lãng Uyển mà không tổn hại gì, ít nhất phải điều động sáu vị Thiên Tôn.
+Tần Mục nheo mắt, nhìn về Ngọc Kinh Thành phía xa. Thập Thiên Tôn muốn trừ khử Khai Hoàng và Lãng Uyển mà không tổn hại gì, ít nhất phải điều động sáu vị Thiên Tôn.
 
 Muốn toàn thắng, tổn thất nhỏ nhất, chỉ có thể làm như vậy.
 

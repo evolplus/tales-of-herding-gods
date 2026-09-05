@@ -28,7 +28,7 @@ Diêm Vương thúc giục công pháp, sau lưng hiện ra một cánh cửa, c
 
 Diên Khang Quốc sư nói:
 
-"Ta từng theo thầy học một thời gian, nhưng vẫn còn rất nhiều chỗ tối nghĩa khó hiểu, e rằng ta cũng không học nổi."
+"Ta từng theo sư phụ học một thời gian, nhưng vẫn còn rất nhiều chỗ tối nghĩa khó hiểu, e rằng ta cũng không học nổi."
 
 Tiều Phu Thánh Nhân nhíu mày:
 

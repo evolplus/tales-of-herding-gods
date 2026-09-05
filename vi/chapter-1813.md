@@ -88,7 +88,7 @@ Tần Phượng Thanh và Tần Mục thật ra vốn là một người, vốn 
 
 Trong Đạo quả trên Thế Giới Thụ của hắn có một viên là Luân Hồi Đạo Quả.
 
-Công tử Vô Cực nhìn Lục Đạo Thiên Luân sau đầu hắn, ánh mắt phức tạp, nói: "Lão Thất, thật ra ngươi và ta là hai người rất giống nhau. Ngươi và ta đều cho rằng lý niệm của thầy có sai lầm, cần sửa đổi. Ngươi chưa chắc có thể chứng minh con đường của mình là đúng, cũng chưa chắc có thể chứng minh con đường của ta là sai."
+Công tử Vô Cực nhìn Lục Đạo Thiên Luân sau đầu hắn, ánh mắt phức tạp, nói: "Lão Thất, thật ra ngươi và ta là hai người rất giống nhau. Ngươi và ta đều cho rằng lý niệm của sư phụ có sai lầm, cần sửa đổi. Ngươi chưa chắc có thể chứng minh con đường của mình là đúng, cũng chưa chắc có thể chứng minh con đường của ta là sai."
 
 Tần Mục gật đầu, nói: "Con đường của Nhị tỷ có khả năng là đúng, nhưng ta không thể mạo hiểm chuyện này."
 
@@ -148,11 +148,11 @@ Trong Ngọc Kinh Thành, công tử Lăng Tiêu, công tử Tử Tiêu và nh�
 
 Sau đầu Tần Mục, Lục Đạo Thiên Luân chậm rãi chìm xuống, một nửa sừng sững trên mặt biển, một nửa ẩn dưới mặt biển.
 
-Đối diện hắn, công tử Vô Cực trầm mặc rất lâu, nói: "Hiện tại ta không ở thời kỳ toàn thịnh. Nếu là thời kỳ toàn thịnh, một chiêu này của thầy chưa chắc làm ta bị thương."
+Đối diện hắn, công tử Vô Cực trầm mặc rất lâu, nói: "Hiện tại ta không ở thời kỳ toàn thịnh. Nếu là thời kỳ toàn thịnh, một chiêu này của sư phụ chưa chắc làm ta bị thương."
 
-Tần Mục nghĩ một chút, nói: "Tài hoa của Nhị tỷ tuyệt đại, nhưng e rằng vẫn không phải đối thủ của thầy. Người có thể một tay trấn áp tỷ, cũng có thể một tay giết tỷ, chỉ là người không nỡ."
+Tần Mục nghĩ một chút, nói: "Tài hoa của Nhị tỷ tuyệt đại, nhưng e rằng vẫn không phải đối thủ của sư phụ. Người có thể một tay trấn áp tỷ, cũng có thể một tay giết tỷ, chỉ là người không nỡ."
 
-Công tử Vô Cực ngẩng đầu. Thứ nàng nhìn thấy không phải bầu trời, mà là Tổ Đình. Nàng tiêu điều nói: "Thầy chết rồi?"
+Công tử Vô Cực ngẩng đầu. Thứ nàng nhìn thấy không phải bầu trời, mà là Tổ Đình. Nàng tiêu điều nói: "Sư phụ chết rồi?"
 
 Tần Mục nhẹ nhàng gật đầu.
 
@@ -162,7 +162,7 @@ Thân thể công tử Vô Cực tan rã, vỡ nát.
 
 Tần Mục trầm mặc, nhẹ nhàng gảy Lục Đạo Thiên Luân. Lục Đạo Thiên Luân xoay chuyển.
 
-"Nhị tỷ, ta giống thầy, không thể khẳng định con đường của mình là đúng. Thầy cho tỷ một cơ hội, vì vậy ta cũng cho tỷ một cơ hội trở lại..."
+"Nhị tỷ, ta giống sư phụ, không thể khẳng định con đường của mình là đúng. Sư phụ cho tỷ một cơ hội, vì vậy ta cũng cho tỷ một cơ hội trở lại..."
 
 Ánh mắt hắn rơi xuống Ngọc Kinh Thành phía dưới. Mà Lục Đạo Thiên Luân chuyển động, hồn phách đang tan rã của công tử Vô Cực lại tụ về, được đưa ra khỏi Tổ Đình, chuyển thế đi.
 

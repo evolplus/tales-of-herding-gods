@@ -4,7 +4,7 @@
 
 Hư Sinh Hoa ngồi trong ngôi chùa trên kim đỉnh cùng Tần Mục, Ma viên và những người khác. Hễ nói tới Nguyên Thần Dẫn do Tần Mục và Linh Dục Tú sáng tạo, ngay cả vị khách đến từ Thượng Thương như hắn cũng không khỏi mày bay sắc múa, thần thái phấn chấn, vỗ tay tán thưởng: "Nguyên Thần Dẫn kéo chuyện chỉ cảnh giới Thất Tinh mới làm được xuống cảnh giới Lục Hợp. Ở cảnh giới Lục Hợp, chuyện tu luyện nguyên thần thế nào, phát huy uy lực nguyên thần ra sao, đều vẫn còn là một khoảng trống. Bên trong có rất nhiều việc có thể làm, ví dụ khai phát đủ loại thần thông nguyên thần. Mỗi khi sáng tạo ra một loại thần thông đều là sự thúc đẩy lớn lao đối với đạo pháp thần thông, từ đó ảnh hưởng tới mỗi cảnh giới về sau như Thiên Nhân, Sinh Tử, Thần Kiều! Đây là điểm ta bội phục Tần giáo chủ nhất!"
 
-Nói tới đây, ngay cả hắn cũng không khỏi lộ vẻ kính ngưỡng, nói: "Nguyên Thần Dẫn của giáo chủ và Tú công chúa có thể làm thầy cho người trong thiên hạ! Danh Nhân Hoàng, xứng đáng không thẹn! Ta vừa kính ngưỡng ngươi, lại vừa hoảng sợ. Ngươi và ta đều là Bá Thể, ngươi đã làm được thành tựu như vậy, vậy ta phải làm sao mới không tụt lại sau ngươi?"
+Nói tới đây, ngay cả hắn cũng không khỏi lộ vẻ kính ngưỡng, nói: "Nguyên Thần Dẫn của giáo chủ và Tú công chúa có thể làm sư phụ cho người trong thiên hạ! Danh Nhân Hoàng, xứng đáng không thẹn! Ta vừa kính ngưỡng ngươi, lại vừa hoảng sợ. Ngươi và ta đều là Bá Thể, ngươi đã làm được thành tựu như vậy, vậy ta phải làm sao mới không tụt lại sau ngươi?"
 
 Hư Sinh Hoa lộ nụ cười, ung dung nói: "Nguyên Thần Dẫn của ngươi dẫn ra vô số khả năng của đạo pháp thần thông, vì vậy ta chọn khả năng lớn nhất, khó nhất, đó là dung hợp cảnh giới Thất Tinh với cảnh giới Lục Hợp."
 

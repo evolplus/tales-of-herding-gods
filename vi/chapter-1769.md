@@ -24,7 +24,7 @@ Nguyệt Thiên Tôn thu dọn tâm trạng, thúc động thần thông giấu 
 
 Thương thế của nàng và Giang Bạch Khuê đều cực kỳ nghiêm trọng. Trước khi Thương Quân tới, chính bọn họ chặn Hoan Hỉ điện chủ. Sự mạnh mẽ của điện chủ Di La Cung tất nhiên không cần nói, khiến bọn họ cũng bị trọng thương.
 
-Nhưng hiện giờ ánh rạng thắng lợi đã ở trước mắt. Chỉ cần trừ bỏ Hạo Thiên Đế, sẽ không còn ai có thể chủ trì bậc thành đạo Di La Cung giáng lâm!
+Nhưng hiện giờ ánh rạng thắng lợi đã ở trước mắt. Chỉ cần trừ khử Hạo Thiên Đế, sẽ không còn ai có thể chủ trì bậc thành đạo Di La Cung giáng lâm!
 
 Ngay khi bọn họ chạy tới chỗ Hạo Thiên Đế, đột nhiên một dao động tối nghĩa truyền tới. Khóe mắt Nguyệt Thiên Tôn và Giang Bạch Khuê giật loạn, nhìn theo dao động ấy.
 
@@ -112,7 +112,7 @@ Một vị điện chủ khác buồn bã nói: "Hoan Hỉ điện chủ cũng �
 
 "Không cần thương tâm."
 
-Vị điện chủ thứ ba chậm rãi nói: "Hy sinh vì Di La Cung, hiến tính mạng cho lý niệm của thầy là xứng đáng. Hoan Hỉ đạo hữu biết đại kế đã thành, nhất định cũng rất hoan hỉ. Có chúng ta ở đây, công tử có thể giáng lâm."
+Vị điện chủ thứ ba chậm rãi nói: "Hy sinh vì Di La Cung, hiến tính mạng cho lý niệm của sư phụ là xứng đáng. Hoan Hỉ đạo hữu biết đại kế đã thành, nhất định cũng rất hoan hỉ. Có chúng ta ở đây, công tử có thể giáng lâm."
 
 "Nhưng chúng ta cần thêm vật hiến tế."
 
@@ -120,7 +120,7 @@ Ba vị điện chủ đồng loạt ngẩng đầu, nhìn Nguyệt Thiên Tôn,
 
 Công tử giáng lâm không phải chuyện nhỏ, năng lượng cần cho hoán đổi vật chất và năng lượng cực kỳ đáng sợ. Trước kia có Vô Nhai lão nhân âm thầm đoạt lấy năng lượng huyết tế, đừng nói công tử giáng lâm, ngay cả bậc thành đạo bình thường giáng lâm cũng là chuyện khó.
 
-May mà có Thiên Đình xuất chinh Nguyên giới, đại chiến liên miên, lúc này mới khiến ba đại điện chủ Hoan Hỉ, Sở Ca, Trường Phong giáng lâm, nhưng bị Tần Mục và Thương Quân trừ bỏ hai người.
+May mà có Thiên Đình xuất chinh Nguyên giới, đại chiến liên miên, lúc này mới khiến ba đại điện chủ Hoan Hỉ, Sở Ca, Trường Phong giáng lâm, nhưng bị Tần Mục và Thương Quân trừ khử hai người.
 
 Hiện giờ Vô Nhai lão nhân bị trọng thương, không còn ai cướp đoạt năng lượng huyết tế nữa. Thái Dịch cũng thân chịu trọng thương, không còn ai có thể ngăn cản công tử Di La Cung giáng lâm!
 

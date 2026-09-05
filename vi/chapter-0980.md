@@ -70,9 +70,9 @@ Một tư duy hùng vĩ khác nói: "Nhưng Thánh Anh là người gánh vác t
 
 Tần Mục vâng lời.
 
-Một tư duy dày nặng nói: "Một nam tử tên Tần Nghiệp tới thế giới Bỉ Ngạn. Hắn có giao tình cũ với ân nhân của tộc ta là Vân Thiên Tôn, tới cầu một vùng đất bằng một kiếm. Kết quả hắn một kiếm cắt mất gần nửa lãnh địa thế giới Bỉ Ngạn, lập nên Vô Ưu Hương. Ân oán thù hận giữa Tạo Vật Chủ và Vô Ưu Hương kéo dài gần hai vạn năm. Ngươi làm thế nào trừ bỏ Tần Nghiệp và Vô Ưu Hương, để thế giới Bỉ Ngạn khôi phục thái bình?"
+Một tư duy dày nặng nói: "Một nam tử tên Tần Nghiệp tới thế giới Bỉ Ngạn. Hắn có giao tình cũ với ân nhân của tộc ta là Vân Thiên Tôn, tới cầu một vùng đất bằng một kiếm. Kết quả hắn một kiếm cắt mất gần nửa lãnh địa thế giới Bỉ Ngạn, lập nên Vô Ưu Hương. Ân oán thù hận giữa Tạo Vật Chủ và Vô Ưu Hương kéo dài gần hai vạn năm. Ngươi làm thế nào trừ khử Tần Nghiệp và Vô Ưu Hương, để thế giới Bỉ Ngạn khôi phục thái bình?"
 
-Tần Mục nói: "Ta có thể để thế giới Bỉ Ngạn khôi phục thái bình, nhưng sẽ không trừ bỏ Vô Ưu Hương."
+Tần Mục nói: "Ta có thể để thế giới Bỉ Ngạn khôi phục thái bình, nhưng sẽ không trừ khử Vô Ưu Hương."
 
 "Xin được nghe rõ."
 

@@ -30,7 +30,7 @@ Hỏa Thiên Tôn hỏi: “Mục Thiên Tôn tới chỗ ngươi, có động t
 
 Chúc Thiếu Bình mỉm cười nói: “Mục Thiên Tôn tới dò xét hư thực của ta, xem trận thế đại quân của ta. Nhưng đạo Thiên Sư cầu là thế cục thiên hạ. Trận thế biến hóa mà hắn nhìn thấy chỉ là tiểu đạo mà thôi.”
 
-Hỏa Thiên Tôn thầm khen một tiếng, hỏi: “Làm sao trừ bỏ Mục Thiên Tôn?”
+Hỏa Thiên Tôn thầm khen một tiếng, hỏi: “Làm sao trừ khử Mục Thiên Tôn?”
 
 Chúc Thiếu Bình rất không quen với việc hắn nói thẳng như vậy, chần chừ một chút, nói: “Bất luận ai giết Mục Thiên Tôn, đều phải gánh tiếng xấu. Đã vậy, sao không đưa tiếng xấu cho người khác? Ngày sau khi tấn công Thái Hư, cứ để Mục Thiên Tôn xông trận ở tuyến đầu.”
 

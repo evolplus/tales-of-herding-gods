@@ -66,7 +66,7 @@ Mạnh Vân Quy dụi đôi mắt đỏ ngầu, vươn vai, sắc mặt nghiêm 
 
 Lão Đạo Chủ kinh ngạc, cười nói: "Hiện tại Thái Hư đã bình định, Vô Ưu Hương và Tạo Vật Chủ bị áp chế trong Hư Không Bỉ Ngạn ở cuối Cầu Hư Không, không còn khả năng quay lại. Tình thế sáng sủa một mảnh, vì sao Mạnh Thiên Sư lại nói lời bi quan như vậy?"
 
-Mạnh Vân Quy liếc ông ta một cái, nghiêm mặt nói: "Lão sư, ông là thầy vỡ lòng của ta, thuật số thông thiên. Ngay cả ta còn nhìn ra, chẳng lẽ ông không nhìn ra?"
+Mạnh Vân Quy liếc ông ta một cái, nghiêm mặt nói: "Lão sư, ông là sư phụ vỡ lòng của ta, thuật số thông thiên. Ngay cả ta còn nhìn ra, chẳng lẽ ông không nhìn ra?"
 
 Hắn phất tay áo, vô số hồ sơ bay lên không trung, ào ào mở ra.
 

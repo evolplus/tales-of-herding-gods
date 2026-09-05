@@ -34,7 +34,7 @@ Tần Mục phấn khởi siết chặt nắm tay, cười nói: "Vậy cứ quy
 
 Vân Thiên Tôn vội túm lấy hắn: "Ngươi đừng đi vội! Ngươi hủy Thần Tàng của ta rồi, bảo ta tu luyện thế nào? Ngươi phải đền cho ta!"
 
-Tần Mục giằng khỏi tay hắn, cười nói: "Ta đã tìm sẵn thầy cho huynh rồi. Hiện tại huynh có nhục thân, có thể rời Đại La Thiên. Ta đưa huynh tới Diên Khang, sẽ có người đưa huynh tới dưới Thế Giới Thụ ở Tổ Đình. Thầy của huynh đang chờ huynh ở đó."
+Tần Mục giằng khỏi tay hắn, cười nói: "Ta đã tìm sẵn sư phụ cho huynh rồi. Hiện tại huynh có nhục thân, có thể rời Đại La Thiên. Ta đưa huynh tới Diên Khang, sẽ có người đưa huynh tới dưới Thế Giới Thụ ở Tổ Đình. Sư phụ của huynh đang chờ huynh ở đó."
 
 Vân Thiên Tôn chỉ cảm thấy một chút sức mạnh trong nhục thân cũng không phát huy được, trong lòng u uất không vui.
 
@@ -56,23 +56,23 @@ Hiện tại hắn không thể vận dụng sức mạnh, được Tần Mục 
 
 Thời gian hắn ở chung với Lăng Thiên Tôn dài hơn Tần Mục nhiều. Suốt thời đại Long Hán, Lăng Thiên Tôn vẫn luôn có tính tình cổ quái như vậy. Nói chuyện với nàng, nàng cũng lúc để ý lúc không.
 
-Tần Mục nói: "Đến Tổ Đình, sau khi gặp thầy của huynh, chắc không bao lâu là huynh có thể mở lại Thần Tàng. Khi đó Thiên Cung của huynh sẽ tự động mở ra. Đúng rồi, ta chỉ phong ấn nhục thân của huynh. Nếu gặp kẻ địch, huynh có thể vận dụng sức mạnh nguyên thần, tránh để đường đường Vân Thiên Tôn, Tiêu Hán Thiên Đế, bậc thành đạo hôm nay, lại bị tên tiểu lâu la không có mắt nào đó giết mất."
+Tần Mục nói: "Đến Tổ Đình, sau khi gặp sư phụ của huynh, chắc không bao lâu là huynh có thể mở lại Thần Tàng. Khi đó Thiên Cung của huynh sẽ tự động mở ra. Đúng rồi, ta chỉ phong ấn nhục thân của huynh. Nếu gặp kẻ địch, huynh có thể vận dụng sức mạnh nguyên thần, tránh để đường đường Vân Thiên Tôn, Tiêu Hán Thiên Đế, bậc thành đạo hôm nay, lại bị tên tiểu lâu la không có mắt nào đó giết mất."
 
 Vân Thiên Tôn kinh ngạc nói: "Ngươi không đi Tổ Đình cùng ta?"
 
 Tần Mục lắc đầu: "Ta phải đi gặp U Thiên Tôn."
 
-Vân Thiên Tôn gật đầu, đột nhiên nói: "Vì sao ngươi không tự dạy ta? Bản lĩnh vị thầy kia so với ngươi thế nào? Nếu không bằng ngươi, ta còn không bằng theo ngươi."
+Vân Thiên Tôn gật đầu, đột nhiên nói: "Vì sao ngươi không tự dạy ta? Bản lĩnh vị sư phụ kia so với ngươi thế nào? Nếu không bằng ngươi, ta còn không bằng theo ngươi."
 
 Tần Mục cười nói: "Bản lĩnh của ông ấy đương nhiên không bằng ta, nhưng ông ấy tu luyện chính thống. Con đường ta đi là bàng môn tà đạo, không thích hợp với huynh. Tới nơi rồi huynh sẽ biết, không cần hỏi nhiều."
 
-Hắn càng nói như vậy, Vân Thiên Tôn càng muốn biết vị thầy kia là ai, chỉ là Tần Mục sống chết không nói, hắn cũng đành bó tay.
+Hắn càng nói như vậy, Vân Thiên Tôn càng muốn biết vị sư phụ kia là ai, chỉ là Tần Mục sống chết không nói, hắn cũng đành bó tay.
 
-Độ Thế Kim Thuyền rời Chung Cực Hư Không, tới Diên Khang. Tần Mục đi vào Văn Đạo Viện gặp Thôn trưởng, cố nén xúc động phát huy truyền thống Nhân Hoàng Điện đánh thầy, nói: "Thôn trưởng gia gia, vị này là Vân Thiên Tôn. Ông hộ tống ông ấy tới Tổ Đình, đi tìm Lam béo."
+Độ Thế Kim Thuyền rời Chung Cực Hư Không, tới Diên Khang. Tần Mục đi vào Văn Đạo Viện gặp Thôn trưởng, cố nén xúc động phát huy truyền thống Nhân Hoàng Điện đánh sư phụ, nói: "Thôn trưởng gia gia, vị này là Vân Thiên Tôn. Ông hộ tống ông ấy tới Tổ Đình, đi tìm Lam béo."
 
 Thôn trưởng nhìn Vân Thiên Tôn, nghiêm nghị kính phục, khom người nói: "Hậu học mạt tiến Tô Mạc Già, bái kiến Vân Thiên Tôn! Mời Vân Thiên Tôn đi theo ta!"
 
-Vân Thiên Tôn đi theo ông rời xa. Tần Mục chỉ nghe giọng Thôn trưởng từ xa truyền tới: "Vân Thiên Tôn và Mục nhi là bạn thân nhỉ? Nói ra thì ta cũng là thầy của Mục nhi, kiếm thuật của nó là do ta dạy. Năm xưa khi nó còn nhỏ, còn bị bà bà trong thôn chúng ta bán cho hiệu vải, ha ha ha ha, chuyện này ta sẽ kể kỹ cho ngài trên đường..."
+Vân Thiên Tôn đi theo ông rời xa. Tần Mục chỉ nghe giọng Thôn trưởng từ xa truyền tới: "Vân Thiên Tôn và Mục nhi là bạn thân nhỉ? Nói ra thì ta cũng là sư phụ của Mục nhi, kiếm thuật của nó là do ta dạy. Năm xưa khi nó còn nhỏ, còn bị bà bà trong thôn chúng ta bán cho hiệu vải, ha ha ha ha, chuyện này ta sẽ kể kỹ cho ngài trên đường..."
 
 Tần Mục đen mặt, đưa mắt nhìn hai người đi xa, lúc này mới thúc giục kim thuyền chạy tới U Đô.
 

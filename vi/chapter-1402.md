@@ -120,7 +120,7 @@ Lang Hiên Thần Hoàng chỉ xem đó là Tần Mục mượn Dao Trì của h
 
 Khóe mắt Lang Hiên Thần Hoàng giật một cái, cố nặn ra một nụ cười, nói: "Mục Thiên Tôn ngộ đạo trên Dao Đài của ta, nếu có chuyện chẳng lành thì tội nghiệt của ta lớn lắm."
 
-Tần Mục cười ha ha, đột nhiên thu nụ cười, nghiêm mặt nói: "Vừa rồi khi ta nhập đạo, tám long mạch của Dao Trì đã đứt một lần, sau này chắc chắn sẽ còn đứt nữa! Vật lớn dưới lòng đất nhất định sẽ diệt sạch long mạch Dao Trì, trừ bỏ nơi này! Thần Hoàng, sản lượng Dao Trì chia cho ta hai thành, ta giúp ngươi tìm ra vật lớn ấy. Điều kiện này, Thần Hoàng suy xét thế nào rồi?"
+Tần Mục cười ha ha, đột nhiên thu nụ cười, nghiêm mặt nói: "Vừa rồi khi ta nhập đạo, tám long mạch của Dao Trì đã đứt một lần, sau này chắc chắn sẽ còn đứt nữa! Vật lớn dưới lòng đất nhất định sẽ diệt sạch long mạch Dao Trì, san bằng nơi này! Thần Hoàng, sản lượng Dao Trì chia cho ta hai thành, ta giúp ngươi tìm ra vật lớn ấy. Điều kiện này, Thần Hoàng suy xét thế nào rồi?"
 
 Lang Hiên Thần Hoàng giận dữ, quát: "Lúc trước rõ ràng ngươi nói một thành Hồng Mông nguyên dịch, vì sao bây giờ lại thành hai thành?"
 

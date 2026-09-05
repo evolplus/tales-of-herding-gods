@@ -108,7 +108,7 @@ Tần Mục gật đầu.
 
 Ngọc Thiên Vương khó hiểu: "Lần này Thánh giáo ta vào hoàng thành, giết ngụy đế, lại trừ nhiều cường giả của Đạo môn và Đại Lôi Âm Tự như vậy, chỉ e hoàng đế sẽ đề phòng chúng ta. Giáo chủ cứ trở về như thế, không lo sao?"
 
-Tần Mục nhìn bia mộ hai vị Thiên Vương, sắc mặt bình tĩnh, nói: "Đạo môn và Đại Lôi Âm Tự vẫn còn. Việc hàng đầu của hoàng đế là trừ bỏ hai đại thánh địa này. Trước khi trừ bỏ hai đại thánh địa ấy, ông ta sẽ không động tới Thiên Thánh giáo ta. Nếu hai đại thánh địa bị diệt, khi đó chúng ta mới nên cẩn thận. Còn hiện tại, chưa cần phải lo."
+Tần Mục nhìn bia mộ hai vị Thiên Vương, sắc mặt bình tĩnh, nói: "Đạo môn và Đại Lôi Âm Tự vẫn còn. Việc hàng đầu của hoàng đế là diệt trừ hai đại thánh địa này. Trước khi diệt trừ hai đại thánh địa ấy, ông ta sẽ không động tới Thiên Thánh giáo ta. Nếu hai đại thánh địa bị diệt, khi đó chúng ta mới nên cẩn thận. Còn hiện tại, chưa cần phải lo."
 
 Ngọc Thiên Vương ngẫm kỹ, quả thật là đạo lý này.
 

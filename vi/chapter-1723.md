@@ -32,9 +32,9 @@ Những cường giả sử tiền này giết chóc càng nhiều, huyết tế
 
 Kẻ vượt lén vì tranh đoạt quyền lực chắc chắn sẽ ra tay với chư thiên vạn giới, tất nhiên dẫn phát huyết tế của Tam công tử. Mà nếu trong số họ có người thành đạo, in dấu lên Chung Cực Hư Không, cũng tất nhiên khiến vũ trụ này tăng tốc phá diệt!
 
-Vì vậy, vẫn nhất định phải trừ bỏ những cường giả sử tiền ấy.
+Vì vậy, vẫn nhất định phải trừ khử những cường giả sử tiền ấy.
 
-Nhưng trừ bỏ họ cũng không dễ. Vừa rồi Hư Sinh Hoa nói đã có bậc thành đạo sử tiền vượt lén từ rễ Thế Giới Thụ tới, định công phá Thiên Đình.
+Nhưng trừ khử họ cũng không dễ. Vừa rồi Hư Sinh Hoa nói đã có bậc thành đạo sử tiền vượt lén từ rễ Thế Giới Thụ tới, định công phá Thiên Đình.
 
 Diên Khang hiện giờ ứng phó với đợt tấn công của Thiên Đình còn vô cùng gian nan, căn bản không còn dư sức đối phó những kẻ vượt lén ấy.
 

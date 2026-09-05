@@ -68,7 +68,7 @@ Nhưng Thập Thiên Tôn của Thiên Đình có thần khí Ngự Thiên Tôn,
 
 Vì vậy người có thể xuất chiến e vẫn là Khai Hoàng, Lãng Uyển và Nguyệt Thiên Tôn.
 
-"Hoặc cũng có thể mở một chiến trường khác, kỳ tập Thiên Đình! Mượn cơ hội này diệt trừ các Thiên Tôn khác ở lại Thiên Đình, tối thiểu cũng phải trừ bỏ Hạo Thiên Tôn! Nhưng như vậy thì nhất định phải từ bỏ Thiên Công, hơn nữa nếu trừ bỏ Hư Thiên Tôn, sẽ chọc giận Thổ Bá..."
+"Hoặc cũng có thể mở một chiến trường khác, kỳ tập Thiên Đình! Mượn cơ hội này diệt trừ các Thiên Tôn khác ở lại Thiên Đình, tối thiểu cũng phải trừ khử Hạo Thiên Tôn! Nhưng như vậy thì nhất định phải từ bỏ Thiên Công, hơn nữa nếu trừ khử Hư Thiên Tôn, sẽ chọc giận Thổ Bá..."
 
 Lòng Tần Mục trầm xuống. Từ bỏ Thiên Công để đổi lấy cái chết của Hạo Thiên Tôn và Hư Thiên Tôn, mất đi Thổ Bá người minh hữu này, là điều hắn không thể chấp nhận.
 

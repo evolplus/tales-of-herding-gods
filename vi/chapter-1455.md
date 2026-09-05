@@ -38,13 +38,13 @@ Hạo Thiên Tôn cất bước đi. Bàn chân vừa động, trên mặt biể
 
 Hơn nữa theo bước chân hắn di chuyển, ba đào đang dần trở nên nhẹ hơn.
 
-"Trận chiến này không chỉ là trừ bỏ Thiên Công, mà cũng là trừ bỏ những cường địch trong Thập Thiên Tôn có khả năng uy hiếp địa vị của ngươi."
+"Trận chiến này không chỉ là trừ khử Thiên Công, mà cũng là trừ khử những cường địch trong Thập Thiên Tôn có khả năng uy hiếp địa vị của ngươi."
 
 Thái Tố thần nữ sau lưng hắn dần mờ đi, nhưng giọng nói vẫn truyền rõ vào tai hắn, như đang thì thầm bên tai: "Hồng Thiên Tôn sẽ không còn trở thành uy hiếp của ngươi nữa... Cháu trai, những gợn sóng ngươi giẫm ra trên Thiên Hải vô cùng nhẹ, xem ra đạo tâm của ngươi không yếu hơn Khai Hoàng."
 
 Hạo Thiên Tôn đi về phía Thiên Hà, nói: "Chỉ là đạo tâm vững chắc, kém ông ta một bậc mà thôi. Nhưng về Đạo Cảnh, ông ta còn vượt ta rất nhiều. Khai Hoàng chú trọng Đạo Cảnh, còn ta chú trọng sức mạnh. Sau này ta sẽ học Đạo Cảnh từ ông ta. Ưu điểm lớn nhất của ta chính là điểm này."
 
-Hắn mỉm cười, ung dung nói: "Năm xưa, ta học pháp thành thần của Ngự Thiên Tôn, rồi trừ bỏ Ngự Thiên Tôn. Hôm nay, ta cũng có thể học Đạo Cảnh của Khai Hoàng, rồi trừ bỏ Khai Hoàng. Đạo tâm ta đủ mạnh, học Đạo Cảnh không khó như tưởng tượng."
+Hắn mỉm cười, ung dung nói: "Năm xưa, ta học pháp thành thần của Ngự Thiên Tôn, rồi trừ khử Ngự Thiên Tôn. Hôm nay, ta cũng có thể học Đạo Cảnh của Khai Hoàng, rồi trừ khử Khai Hoàng. Đạo tâm ta đủ mạnh, học Đạo Cảnh không khó như tưởng tượng."
 
 Thân hình Thái Tố hoàn toàn ẩn đi, nhẹ giọng hỏi: "Vậy đạo tâm của ngươi được bồi dưỡng đến mức này bằng cách nào?"
 
@@ -54,9 +54,9 @@ Hạo Thiên Tôn dừng bước, nghiêng đầu hồi tưởng chuyện xưa, 
 
 Trong mắt hắn lộ ra tự tin và tín niệm mạnh mẽ vô song, cao giọng nói: "Sở dĩ ta nằm trên giường bệnh lâu như vậy không phải vì thương thế trên thân xác, mà là thương thế trên đạo tâm! Chờ đến khi ta đứng dậy khỏi giường bệnh, thiên hạ này không còn ai có thể đánh gục đạo tâm của ta! Từ lúc ấy trở đi, ta nhìn thấu nóng lạnh nhân tình, nhìn thấu cái gọi là thân tình, hữu tình, ái tình. Từ lúc ấy trở đi, ta chỉ sống vì chính mình!"
 
-"Ta trừ bỏ từng chướng ngại trong huynh đệ tỷ muội, thậm chí cả đại thái tử cũng bị ta tính kế, biến thành Tà Vô Kỳ!"
+"Ta trừ khử từng chướng ngại trong huynh đệ tỷ muội, thậm chí cả đại thái tử cũng bị ta tính kế, biến thành Tà Vô Kỳ!"
 
-"Ta một bước trở thành thủ lĩnh chủng tộc bán thần, lập nên Long Tiêu Thiên Đình, thống lĩnh thiên hạ bán thần một lần nữa. Ta liên thủ với Vân Thiên Tôn trừ bỏ phụ hoàng cao cao tại thượng, nhìn như không thể đánh bại. Ta còn tu hú chiếm tổ, từng bước gặm nhấm, từng bước lập thế, nhờ vậy đánh cắp quyền lực của Thiên Minh!"
+"Ta một bước trở thành thủ lĩnh chủng tộc bán thần, lập nên Long Tiêu Thiên Đình, thống lĩnh thiên hạ bán thần một lần nữa. Ta liên thủ với Vân Thiên Tôn trừ khử phụ hoàng cao cao tại thượng, nhìn như không thể đánh bại. Ta còn tu hú chiếm tổ, từng bước gặm nhấm, từng bước lập thế, nhờ vậy đánh cắp quyền lực của Thiên Minh!"
 
 "Trăm vạn năm qua, phụ hoàng bại rồi, Vân Thiên Tôn bại rồi, Hỏa Thiên Tôn thần phục rồi, Nguyệt Thiên Tôn bại rồi, Lăng Thiên Tôn bại rồi. Đối thủ của ta càng ngày càng ít."
 

@@ -10,11 +10,11 @@ Thái Đế dù sao vẫn là một trong những nhân vật mạnh nhất từ
 
 Phải biết rằng, ngay cả Khai Hoàng, người đứng đầu Đạo Cảnh, cho tới nay cũng chưa kết ra Đạo quả.
 
-Muốn trừ bỏ hoàn toàn Thái Đế, giải cứu Lăng Thiên Tôn và Vân Thiên Tôn, bắt buộc phải đối mặt với Thái Đế do thần thức chi đạo hóa thành trong Đại La Thiên!
+Muốn trừ khử hoàn toàn Thái Đế, giải cứu Lăng Thiên Tôn và Vân Thiên Tôn, bắt buộc phải đối mặt với Thái Đế do thần thức chi đạo hóa thành trong Đại La Thiên!
 
 Đó mới là bản nguyên của Thái Đế.
 
-Chỉ khi trừ bỏ hắn, mới có thể nhổ sạch Thái Đế tận gốc, không để lại bất kỳ hậu họa nào!
+Chỉ khi trừ khử hắn, mới có thể nhổ sạch Thái Đế tận gốc, không để lại bất kỳ hậu họa nào!
 
 "Từ khi vũ trụ khai mở tới nay, chưa từng có người thành đạo nào chết. Ngay cả người thành đạo cũng chỉ có vẻn vẹn ba bốn vị. Nhưng lần này, nói không chừng sẽ có người thành đạo chết!"
 

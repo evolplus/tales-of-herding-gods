@@ -22,7 +22,7 @@ Tần Mục mỉm cười, xem câu này như lời khen.
 
 Yên Khấp Linh tiếp tục:
 
-"Ta phát giác sư tôn thật sự vô tình. Cái gọi là tình thầy trò chỉ e trong lòng ông ấy cũng không có chút phân lượng nào. Vì vậy ở Thiên Âm giới ta mới giúp ngươi nói chuyện. Giúp ngươi cũng là giúp ta."
+"Ta phát giác sư tôn thật sự vô tình. Cái gọi là tình sư đồ chỉ e trong lòng ông ấy cũng không có chút phân lượng nào. Vì vậy ở Thiên Âm giới ta mới giúp ngươi nói chuyện. Giúp ngươi cũng là giúp ta."
 
 Tần Mục im lặng chốc lát, nói:
 

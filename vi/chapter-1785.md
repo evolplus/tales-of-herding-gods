@@ -30,29 +30,29 @@ Trong Di La Cung, một gốc Đạo Thụ cao thẳng sừng sững, tán cây 
 
 Dưới gốc Đạo Thụ ấy, một bóng dáng quen thuộc đứng đó, từ xa nhìn về phía hắn.
 
-Trong mắt Tam công tử Lăng Tiêu không kìm được có nước mắt trào ra. Hắn khom người bái: "Thầy."
+Trong mắt Tam công tử Lăng Tiêu không kìm được có nước mắt trào ra. Hắn khom người bái: "Sư phụ."
 
 Bóng dáng dưới Đạo Thụ kia là Chủ nhân Di La Cung. Ở cuối kỷ thứ mười bốn, khi đại kiếp Phá Diệt bùng nổ, ông thử độ người.
 
 Lăng Tiêu còn nhớ cảnh tượng ấy.
 
-Thầy thử cứu vớt tất cả mọi người, nhưng vẫn thất bại, rất sa sút. Ông và những bậc thành đạo Di La Cung khác nghĩ hết mọi cách, thử cứu chúng sinh, nhưng lại gặp thất bại, đả kích đối với ông cực lớn.
+Sư phụ thử cứu vớt tất cả mọi người, nhưng vẫn thất bại, rất sa sút. Ông và những bậc thành đạo Di La Cung khác nghĩ hết mọi cách, thử cứu chúng sinh, nhưng lại gặp thất bại, đả kích đối với ông cực lớn.
 
 Ngoài bậc thành đạo ra, Di La Cung không cứu được bất kỳ ai.
 
-Khi ấy hắn và các công tử khác đến an ủi thầy. Dù đạo tâm Chủ nhân Di La Cung suy sụp, lúc thấy hắn vẫn lộ ra một nụ cười an ủi, nói với hắn một câu ý vị sâu xa.
+Khi ấy hắn và các công tử khác đến an ủi sư phụ. Dù đạo tâm Chủ nhân Di La Cung suy sụp, lúc thấy hắn vẫn lộ ra một nụ cười an ủi, nói với hắn một câu ý vị sâu xa.
 
 Chủ nhân Di La Cung nói ông không thể cứu chúng sinh, nhưng đã cứu được Lăng Tiêu.
 
 Tam công tử Lăng Tiêu khi ấy không hiểu ý nghĩa câu này, nhưng hiện giờ đã nghĩ thông.
 
-Chính sự xuất hiện của thầy đã làm Lăng Thiên Tôn, kẻ báng đạo kia, kinh sợ lui đi, lúc này mới khiến hắn được cứu.
+Chính sự xuất hiện của sư phụ đã làm Lăng Thiên Tôn, kẻ báng đạo kia, kinh sợ lui đi, lúc này mới khiến hắn được cứu.
 
 Chỉ là lúc hắn nghĩ thông điểm này, đã cách thời điểm Chủ nhân Di La Cung cứu hắn ba vũ trụ kỷ.
 
-"Thầy yên tâm, lý niệm của thầy do con kế thừa!"
+"Sư phụ yên tâm, lý niệm của sư phụ do con kế thừa!"
 
-Tam công tử xoay người, tiếp tục đuổi theo Tần Mục: "Con tuyệt đối sẽ không để đạo thống của thầy biến mất, con sẽ đi tiếp theo con đường của thầy! Con tuyệt đối sẽ không để bất kỳ ai bại hoại đạo thống của thầy!"
+Tam công tử xoay người, tiếp tục đuổi theo Tần Mục: "Con tuyệt đối sẽ không để đạo thống của sư phụ biến mất, con sẽ đi tiếp theo con đường của sư phụ! Con tuyệt đối sẽ không để bất kỳ ai bại hoại đạo thống của sư phụ!"
 
 Kiếp Phá Diệt kỷ thứ mười ba, trong Hỗn Độn Trường Hà, Thế Giới Thụ sừng sững, bao phủ dòng sông vô lượng. Không biết Vô Nhai lão nhân xuất hiện từ đâu, ngồi trong một ao Hỗn Độn, múc nước sông trong Hỗn Độn Trường Hà để tắm.
 
@@ -76,7 +76,7 @@ Vô Nhai lão nhân cười ha hả, tiếng cười của ông chưa dứt, Tam
 
 Hai người chém giết trong Hỗn Độn Trường Hà. Không biết qua bao lâu, Vô Nhai lão nhân đột nhiên bỏ chạy, biến mất không tung tích. Giọng ông truyền đến từ đâu đó: "Lão Tam Di La Cung, thương thế của ta chưa khỏi, không so đo với ngươi!"
 
-Tam công tử Lăng Tiêu kiệt sức, phấn chấn tinh thần tiếp tục chạy về phía trước: "Tuyệt đối không thể để lão Thất đưa con tới gặp thầy!"
+Tam công tử Lăng Tiêu kiệt sức, phấn chấn tinh thần tiếp tục chạy về phía trước: "Tuyệt đối không thể để lão Thất đưa con tới gặp sư phụ!"
 
 Hắn tới vũ trụ kỷ thứ mười hai. Vết thương toàn thân lập tức biến mất, tu vi thực lực cũng tự khôi phục về trạng thái đỉnh cao của hắn ở kỷ thứ mười hai, quét sạch dáng vẻ sa sút vừa rồi. Hắn thầm nghĩ: "Bây giờ sẽ không còn ai đến ngăn ta nữa chứ?"
 

@@ -4,7 +4,7 @@ Các Thiên Tôn khác đều nhíu mày, không ai nắm chắc có thể luy�
 
 Tần Mục xưa nay trơn như chạch. Thời niên thiếu còn dễ nói, lúc đó không ai chú ý tới Tần Mục. Nhưng sau kiếp nạn Diên Khang, Tần Mục chủ động tiến vào Thiên Đình, một đường gây sóng gió, đi tới đâu làm nơi đó chướng khí mù mịt, nhưng cứ cố tình khiến người ta không bắt được nhược điểm.
 
-Khi ấy Thập Thiên Tôn đều có thực lực dễ dàng trừ bỏ hắn, nhưng Thập Thiên Tôn lại nội đấu dữ dội, ai cũng muốn trở thành cộng chủ Thiên Đình, vì vậy chẳng ai muốn ra tay để đối phương có cơ hội thừa nước đục thả câu.
+Khi ấy Thập Thiên Tôn đều có thực lực dễ dàng trừ khử hắn, nhưng Thập Thiên Tôn lại nội đấu dữ dội, ai cũng muốn trở thành cộng chủ Thiên Đình, vì vậy chẳng ai muốn ra tay để đối phương có cơ hội thừa nước đục thả câu.
 
 Bây giờ thế cục đã rõ. Trong mười một vị Thiên Tôn, Hồng Thiên Tôn và Tường Thiên Phi đã chết, Thạch Kỳ La và Nghiên Thiên Phi đã điên, các Thiên Tôn còn lại chia thành hai phe lớn. Phe Hạo Thiên Tôn chiếm ưu thế cả thế lực lẫn thực lực, còn Hiểu Thiên Tôn chỉ còn trơ trọi một mình, khó đối kháng xu thế cuồn cuộn của Hạo Thiên Tôn.
 
@@ -116,7 +116,7 @@ Tổ Thần Vương vỗ tay cười nói: "Âm Thiên Tử có tuyệt kỹ lu�
 
 Hỏa Thiên Tôn dứt khoát phản đối, hừ lạnh nói: "Âm Thiên Tử có đức có tài gì? Sao có thể cùng ngồi một đường với chúng ta?"
 
-"Nếu hắn có thể trừ bỏ Mục tặc, cùng ngồi một đường với chúng ta thì có gì không được?" Hạo Thiên Tôn chẳng để tâm, sai người đến Nguyên giới mời Âm Thiên Tử tới.
+"Nếu hắn có thể trừ khử Mục tặc, cùng ngồi một đường với chúng ta thì có gì không được?" Hạo Thiên Tôn chẳng để tâm, sai người đến Nguyên giới mời Âm Thiên Tử tới.
 
 Hơn mười ngày sau, Âm Thiên Tử từ tiền tuyến truy kích Vô Ưu Hương chạy tới, hành lễ với mọi người.
 

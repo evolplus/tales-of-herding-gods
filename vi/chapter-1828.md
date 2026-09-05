@@ -52,7 +52,7 @@ Hắn không chờ được Khai Hoàng, cũng không chờ được Hư Sinh Ho
 
 Trong lòng Tần Mục khá không cam lòng. Thái Thượng chuyển thế, hắn có thể tiến vào bãi ô uế của Chung Cực Hư Không, ép cung Thái Dịch, buộc Thái Dịch chém giết Khai Thiên chúng.
 
-Trong lòng hắn, tai họa ngầm Khai Thiên chúng lớn hơn chúng nhân Di La Cung rất nhiều. Chúng nhân Di La Cung làm việc vẫn có nguyên tắc, còn hành động của Khai Thiên chúng thì không kiêng dè gì cả. Hắn luôn cảm thấy trừ bỏ Khai Thiên chúng sẽ là lựa chọn tốt hơn.
+Trong lòng hắn, tai họa ngầm Khai Thiên chúng lớn hơn chúng nhân Di La Cung rất nhiều. Chúng nhân Di La Cung làm việc vẫn có nguyên tắc, còn hành động của Khai Thiên chúng thì không kiêng dè gì cả. Hắn luôn cảm thấy diệt trừ Khai Thiên chúng sẽ là lựa chọn tốt hơn.
 
 Chỉ là Thái Thượng trước sau không chuyển thế. Hiển nhiên ông đã liệu được điểm này, chờ hắn trở về trước để trở thành Thất công tử, sau đó Thái Thượng mới tán hết tu vi đại đạo, chuyển thế làm lại.
 

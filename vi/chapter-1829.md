@@ -128,7 +128,7 @@ Chủ nhân Di La Cung đáp lễ, nói:
 
 "Ta nhìn thấy trên người các ngươi có thứ không thuộc về vũ trụ này. Các ngươi dường như đã đi rất xa trong thời gian, các ngươi đến từ tương lai?"
 
-"Thưa thầy, con là đệ tử thứ bảy của người, Hỗn Độn."
+"Thưa sư phụ, con là đệ tử thứ bảy của người, Hỗn Độn."
 
 Tần Mục nói:
 
@@ -212,7 +212,7 @@ Vô Nhai lão nhân cười ha hả:
 
 Đến Đệ Nhị Kỷ, Chủ nhân Di La Cung nhập thế độ người, truyền thụ thần thông đạo pháp. Sinh mệnh trên đời dần nhiều lên, có rất nhiều cổ thần và sinh linh các chủng tộc theo hắn cầu học hỏi đạo.
 
-Đại đệ tử của Chủ nhân Di La Cung khi ấy vẫn là một thằng nhóc tóc còn xanh, nhưng đã được chân truyền của Chủ nhân Di La Cung, thỉnh thoảng thay thầy truyền đạo.
+Đại đệ tử của Chủ nhân Di La Cung khi ấy vẫn là một thằng nhóc tóc còn xanh, nhưng đã được chân truyền của Chủ nhân Di La Cung, thỉnh thoảng thay sư phụ truyền đạo.
 
 Một ngày nọ, hắn gặp một cặp cha con kỳ lạ, hiếu kỳ quan sát họ, nhưng không nhìn ra lai lịch của họ.
 
@@ -232,7 +232,7 @@ Tần Mục hỏi:
 
 Thái Thượng đáp:
 
-"Ta sinh ra từ khoáng mạch Thái Dịch, vốn là một quả trứng. Thầy điểm hóa ta, để ta theo người tu hành."
+"Ta sinh ra từ khoáng mạch Thái Dịch, vốn là một quả trứng. Sư phụ điểm hóa ta, để ta theo người tu hành."
 
 Tần Mục bừng tỉnh, cười lớn.
 
@@ -240,7 +240,7 @@ Tần Mục bừng tỉnh, cười lớn.
 
 Cuối cùng hắn đã nghĩ thông mấu chốt của vấn đề. Thái Dịch là nguyên thần của chủ nhân Thiên Đô, đoạt xá Thái Dịch của Đệ Thập Thất Kỷ. Vì là đoạt xá, nên trên lĩnh ngộ và vận dụng đạo Thái Dịch vẫn luôn thiếu chút hỏa hầu, nhiều lần bị Thái Thượng khắc chế, cuối cùng bị bắt, nhét vào Táng Đạo Thần Quan!
 
-"Sư huynh, thầy có từng dẫn huynh đến Quy Khư xem thử chưa?" Tần Mục cười tủm tỉm hỏi.
+"Sư huynh, sư phụ có từng dẫn huynh đến Quy Khư xem thử chưa?" Tần Mục cười tủm tỉm hỏi.
 
 Thái Thượng cảm thấy nụ cười của hắn không có ý tốt, nhưng đã là sư đệ, nghĩ chắc sẽ không hại mình, bèn lắc đầu:
 

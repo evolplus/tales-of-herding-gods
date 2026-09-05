@@ -38,7 +38,7 @@ Nhục thân Hạo Thiên Đế lập tức ngừng biến hóa!
 
 Còn Lăng Tiêu Điện thì dừng trong Thiên Đình của Hạo Thiên Đế, trấn giữ nguyên thần hắn, bảo vệ nguyên thần hắn khỏi bị Nhị công tử xâm nhập!
 
-“Lão Tam, Lão Tứ, thầy ẩn cư lánh đời, các ngươi lại giỏi giang rồi đấy!”
+“Lão Tam, Lão Tứ, sư phụ ẩn cư lánh đời, các ngươi lại giỏi giang rồi đấy!”
 
 Trong miệng Hạo Thiên Đế truyền ra tiếng cười của Nhị công tử: “Các ngươi nhất định phải đối nghịch với ta?”
 
@@ -80,7 +80,7 @@ Hạo Thiên Đế đang định nói, trong hai tòa Bảo Điện đã không 
 
 “Có lẽ ta có thể luyện hóa bà ta...”
 
-Hắn vừa nghĩ tới đây, đột nhiên giọng Nhị công tử Vô Cực truyền tới, cười nói: “Ý nghĩ này không tệ, khó trách có thể leo tới vị trí hiện tại. Nhưng người muốn giết ta quá nhiều, các công tử khác của Di La Cung, những kẻ báng đạo của Thiên Đô, còn có vài hạng tạp nham khác, đều muốn trừ bỏ ta. Thậm chí ngay cả thầy cũng muốn trừ bỏ ta!”
+Hắn vừa nghĩ tới đây, đột nhiên giọng Nhị công tử Vô Cực truyền tới, cười nói: “Ý nghĩ này không tệ, khó trách có thể leo tới vị trí hiện tại. Nhưng người muốn giết ta quá nhiều, các công tử khác của Di La Cung, những kẻ báng đạo của Thiên Đô, còn có vài hạng tạp nham khác, đều muốn trừ khử ta. Thậm chí ngay cả sư phụ cũng muốn trừ khử ta!”
 
 Bà rất vui vẻ: “Nhưng dù vũ trụ liên tục sinh diệt mười ba lần cũng không thể diệt được ta, ngược lại còn khiến ta càng lúc càng mạnh. Ta muốn dùng thân thể của ngươi, ngươi nhường một chút trước đi.”
 
@@ -178,7 +178,7 @@ Nhị công tử ngẩng đầu, xa xa đối mắt với Tần Mục đang đ�
 
 Hai người cách không nhìn nhau. Tần Mục giơ tay, hờ hững quẹt ngang cổ mình.
 
-Nhị công tử cười khanh khách, cái đầu thu nhỏ lại, biến mất: “Lão Thất, ngoài thầy ra, có ai chưa từng ăn thiệt trong tay ngươi? Nhưng ta là ngoại lệ...”
+Nhị công tử cười khanh khách, cái đầu thu nhỏ lại, biến mất: “Lão Thất, ngoài sư phụ ra, có ai chưa từng ăn thiệt trong tay ngươi? Nhưng ta là ngoại lệ...”
 
 Thân thể Hạo Thiên Đế lại khôi phục nam nhi, không khỏi như trút được gánh nặng.
 

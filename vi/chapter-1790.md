@@ -48,11 +48,11 @@ Khí Hỗn Độn như thác nước, từ trên cao đổ xuống, bay lả t�
 
 Nhị công tử Vô Cực ở tận đáy Quy Khư, nằm ngửa trên biển Hỗn Độn, lặng lẽ nhìn cảnh này, trên mặt hiện ra vẻ vui mừng.
 
-"Nhiều cao thủ như vậy tới tặng năng lượng cho ta, bồi bổ ta. Thầy ơi là thầy, thầy trấn áp ta trong biển Hỗn Độn, muốn mượn biển Hỗn Độn mài mòn tu vi thực lực của ta, mài chết ta. Thầy không ngờ chứ? Vậy mà còn có kẻ ngu đến mức định mượn đường Quy Khư lén vượt sang kỷ tiếp theo!"
+"Nhiều cao thủ như vậy tới tặng năng lượng cho ta, bồi bổ ta. Sư phụ ơi là sư phụ, người trấn áp ta trong biển Hỗn Độn, muốn mượn biển Hỗn Độn mài mòn tu vi thực lực của ta, mài chết ta. Sư phụ không ngờ chứ? Vậy mà còn có kẻ ngu đến mức định mượn đường Quy Khư lén vượt sang kỷ tiếp theo!"
 
-Nàng cười khanh khách thành tiếng: "Nuốt bọn họ, ta có thể khôi phục đến trạng thái đỉnh cao, thậm chí còn vượt qua thời kỳ đỉnh cao! Thầy, hôm nay chính là ngày ta thoát khốn! Ta sẽ hoàn thành lý niệm của thầy, nhưng cách làm của ta khác thầy!"
+Nàng cười khanh khách thành tiếng: "Nuốt bọn họ, ta có thể khôi phục đến trạng thái đỉnh cao, thậm chí còn vượt qua thời kỳ đỉnh cao! Sư phụ, hôm nay chính là ngày ta thoát khốn! Ta sẽ hoàn thành lý niệm của sư phụ, nhưng cách làm của ta khác sư phụ!"
 
-"Ta sẽ nuốt chửng tất cả, nuốt sạch mọi thứ hủ bại trong toàn bộ vũ trụ, mở ra lại một thế giới hoàn mỹ trong mộng tưởng của thầy!"
+"Ta sẽ nuốt chửng tất cả, nuốt sạch mọi thứ hủ bại trong toàn bộ vũ trụ, mở ra lại một thế giới hoàn mỹ trong mộng tưởng của sư phụ!"
 
 Nàng đột nhiên trở nên hưng phấn. Nhưng ba mươi lăm Khai Thiên chúng kia trong lúc rơi xuống đột nhiên lại sinh dị biến. Xung quanh những Khai Thiên chúng có Đại La Thiên vỡ nát kia, khí Hỗn Độn đột nhiên xảy ra dị biến!
 

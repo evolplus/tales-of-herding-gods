@@ -64,7 +64,7 @@ Mã gia lắc đầu: "Ta chủ trì, liền giết sạch đám trọc tặc tr
 
 Từng vị Hộ pháp, La Hán sắc mặt đại biến, nhao nhao quát giận, làm tướng phẫn nộ.
 
-Lão Như Lai nói: "Ngươi vẫn còn chấp mê bất ngộ. Lần trước khi ngươi lên núi, ta đã vội trở về, nhưng vẫn đến muộn một bước. Ngươi hẳn phải biết ta vẫn còn tình thầy trò. Ngươi chém tay mình đưa tới, ta cảm niệm rằng ngươi sẽ chấm dứt chuyện hồng trần, cuối cùng trở về Đại Lôi Âm Tự, nên lệnh tăng nhân đặt cánh tay của ngươi trong Thiên Phật Tháp, chính là mong có ngày ngươi biết lạc đường quay lại. Ngươi hẳn phải biết tâm ý của ta."
+Lão Như Lai nói: "Ngươi vẫn còn chấp mê bất ngộ. Lần trước khi ngươi lên núi, ta đã vội trở về, nhưng vẫn đến muộn một bước. Ngươi hẳn phải biết ta vẫn còn tình sư đồ. Ngươi chém tay mình đưa tới, ta cảm niệm rằng ngươi sẽ chấm dứt chuyện hồng trần, cuối cùng trở về Đại Lôi Âm Tự, nên lệnh tăng nhân đặt cánh tay của ngươi trong Thiên Phật Tháp, chính là mong có ngày ngươi biết lạc đường quay lại. Ngươi hẳn phải biết tâm ý của ta."
 
 Mã gia nghiêm nghị nói: "Ta biết. Nhưng vợ con ta cũng chết trong tay Đại Lôi Âm Tự, huyết hải thâm cừu không thể không báo."
 
@@ -82,7 +82,7 @@ Trên Kim Đỉnh, mây đen chợt kéo tới. Vừa rồi còn gió hòa muôn
 
 Tần Mục ho một tiếng, ha ha cười nói: "Khách át chủ rồi, khách át chủ rồi. Như Lai sư huynh, còn chưa giới thiệu. Vị này là Mã gia gia của tiểu đệ, thường ngày người ta gọi là Mã gia, cao hơn tiểu đệ hai bối phận. Vị này là Tư bà bà, cao hơn tiểu đệ hai bối phận. Vị này là Mù gia gia, cao hơn tiểu đệ hai bối phận. Các vị sư huynh, không cần đa lễ."
 
-Lão Như Lai ha ha cười lớn, mây đen đầy trời tản đi. Ông cười nói: "Tần giáo chủ, ngươi và ta rất có duyên phận. Ngươi có được Khích Khí La, cây Khích Khí La ấy vốn là pháp trượng ta dùng khi hành tẩu giang hồ, bị ngươi lấy được. Ngươi và ta vốn có duyên thầy trò. Lão tăng từng định tới Đại Khư, xin mấy vị lão đạo hữu ở Tàn Lão Thôn một phần duyên pháp, thu ngươi vào môn hạ Đại Lôi Âm Tự của ta. Không ngờ duyên phận đứt đoạn, lần nữa gặp giáo chủ, ngươi đã là Ma giáo chủ của Thiên Ma giáo. Thật là thời vậy mệnh vậy, tạo hóa trêu người."
+Lão Như Lai ha ha cười lớn, mây đen đầy trời tản đi. Ông cười nói: "Tần giáo chủ, ngươi và ta rất có duyên phận. Ngươi có được Khích Khí La, cây Khích Khí La ấy vốn là pháp trượng ta dùng khi hành tẩu giang hồ, bị ngươi lấy được. Ngươi và ta vốn có duyên sư đồ. Lão tăng từng định tới Đại Khư, xin mấy vị lão đạo hữu ở Tàn Lão Thôn một phần duyên pháp, thu ngươi vào môn hạ Đại Lôi Âm Tự của ta. Không ngờ duyên phận đứt đoạn, lần nữa gặp giáo chủ, ngươi đã là Ma giáo chủ của Thiên Ma giáo. Thật là thời vậy mệnh vậy, tạo hóa trêu người."
 
 Tần Mục khẽ cười, nói: "Như Lai nói đùa rồi. Tiểu đệ lần này tới là mời Như Lai hàng yêu trừ ma. Trong cơ thể Tư bà bà có một đại cao thủ, là tiền giáo chủ Lệ Thiên Hành của Thánh giáo ta. Lệ Thiên Hành hóa thành ma chủng gieo trong đạo tâm bà bà. Vì vậy tiểu đệ cả gan mời Như Lai hàng phục ma đầu này, vì thiên hạ trừ một công hại."
 

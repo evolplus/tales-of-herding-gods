@@ -16,7 +16,7 @@ Nghe ý Vô Nhai lão nhân, việc Chủ nhân Di La Cung tập sát Chủ nhâ
 
 Từ đó về sau, tranh đấu giữa Thiên Đô thành và Di La Cung kéo dài không dứt, mãi đến hiện tại vẫn chưa ngừng.
 
-Tần Mục cúi đầu, nhìn bảo quang trong tay, cười như không cười: "Chủ nhân Di La Cung là thầy của tất cả người tu luyện. Từ Kỷ thứ nhất tới Kỷ thứ mười bảy, nguồn gốc của mọi đạo pháp thần thông có thể nói đều có liên quan rất lớn tới ông ấy. Ông ấy sao lại nghe lời ngươi, đi tập sát Thiên Đô?"
+Tần Mục cúi đầu, nhìn bảo quang trong tay, cười như không cười: "Chủ nhân Di La Cung là sư phụ của tất cả người tu luyện. Từ Kỷ thứ nhất tới Kỷ thứ mười bảy, nguồn gốc của mọi đạo pháp thần thông có thể nói đều có liên quan rất lớn tới ông ấy. Ông ấy sao lại nghe lời ngươi, đi tập sát Thiên Đô?"
 
 Vô Nhai lão nhân đi về phía hắn. Lông tơ Tần Mục dựng ngược.
 
@@ -56,11 +56,11 @@ Nhưng hành động này khiến hậu tâm hắn hoàn toàn phơi ra trước
 
 Thế nhưng Tần Mục buộc phải làm vậy.
 
-"Thầy của ngươi vì sao lại nghe lời ta, không thể không tập sát Thiên Đô?"
+"Sư phụ của ngươi vì sao lại nghe lời ta, không thể không tập sát Thiên Đô?"
 
 Bước chân Vô Nhai lão nhân rất chậm. Ông ta ung dung nói: "Ông ấy lòng mang chúng sinh thiên hạ, là một người nhiệt tình khó tưởng tượng, cũng đơn thuần đến khó tưởng tượng. Chỉ có tấm lòng nhiệt thành như vậy, đạo tâm thuần túy như vậy mới có thể đạt thành tựu cao đến thế. Ta không mê hoặc ông ấy, cũng không chiều theo sở thích của ông ấy, ta chỉ giúp ông ấy xác nhận một phán đoán."
 
-Áp lực của Tần Mục càng lúc càng nặng, giọng cũng trở nên hơi khàn: "Thầy có phán đoán gì?"
+Áp lực của Tần Mục càng lúc càng nặng, giọng cũng trở nên hơi khàn: "Sư phụ có phán đoán gì?"
 
 Chủ nhân Di La Cung trong miệng Vô Nhai lão nhân khiến hắn nhớ tới Lam Ngự Điền, cũng là đạo tâm thuần túy như vậy, nhiệt thành, thiện lương.
 

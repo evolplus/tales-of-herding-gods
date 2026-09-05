@@ -138,7 +138,7 @@ Thần thức Thái Đế dốc sức muốn giãy giụa, muốn phản kháng,
 
 Đầu hắn chỉ còn lại cái miệng, rất nhanh ngay cả miệng cũng biến mất.
 
-"Ngoài ra, ta còn một mục đích nữa, chính là nhân cơ hội trừ bỏ Hiểu Thiên Tôn, Hạo Thiên Tôn."
+"Ngoài ra, ta còn một mục đích nữa, chính là nhân cơ hội trừ khử Hiểu Thiên Tôn, Hạo Thiên Tôn."
 
 Tần Mục nói: "Ta để lại nhiều thần thông như vậy, chỉ cần Hiểu Thiên Tôn, Hạo Thiên Tôn xuyên qua những Bất Dịch thần thông ấy, vậy họ cũng sẽ rơi vào kết cục giống ngươi. Thái Đế, ta với tư cách Mục Thiên Tôn lấy thần thức lập đạo, đã có tư cách làm đối thủ của ngươi chưa?"
 

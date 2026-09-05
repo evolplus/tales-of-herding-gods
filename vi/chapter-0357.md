@@ -56,7 +56,7 @@ Hư Sinh Hoa lắc đầu nói: "Nhân Hoàng có thể. Là truyền nhân củ
 
 Mặt Ngọc Liễu đỏ lên.
 
-Hư Sinh Hoa nói: "Lần này ta xuống núi chính là để trừ bỏ Nhân Hoàng mới. Khi gặp Tần huynh, ta còn tưởng Tần huynh là đạo tử Đạo Môn, không ngờ lại chính là vị Nhân Hoàng mà ta tìm. Sau đó mới biết mình đã bỏ lỡ. Ta đến hạ giới, gặp rất nhiều nhân vật xuất chúng trong thế hệ trẻ, từng thỉnh giáo họ, đều không vừa ý ta. Cuối cùng nghĩ lại, vẫn là Tần huynh khiến ta kinh diễm nhất."
+Hư Sinh Hoa nói: "Lần này ta xuống núi chính là để trừ khử Nhân Hoàng mới. Khi gặp Tần huynh, ta còn tưởng Tần huynh là đạo tử Đạo Môn, không ngờ lại chính là vị Nhân Hoàng mà ta tìm. Sau đó mới biết mình đã bỏ lỡ. Ta đến hạ giới, gặp rất nhiều nhân vật xuất chúng trong thế hệ trẻ, từng thỉnh giáo họ, đều không vừa ý ta. Cuối cùng nghĩ lại, vẫn là Tần huynh khiến ta kinh diễm nhất."
 
 Tần Mục rót rượu cho hắn, cười nói: "Ta từng hứa với huynh sẽ mời huynh uống rượu. Sau bữa rượu này, ta đánh chết huynh, hoặc bị huynh đánh chết, đều là một chuyện sảng khoái, may mắn, không để lại tiếc nuối."
 

@@ -32,7 +32,7 @@ Tu luyện tới bước này của hắn, thần thông của kẻ địch căn
 
 Mà chín tầng đạo hỏa kia, mỗi tầng lại mãnh liệt hơn tầng trước, tương đương xuyên qua chín tầng đạo vực!
 
-Lang Hiên Thần Hoàng, Tổ Thần Vương và những người khác thấy Hỏa Thiên Tôn ra tay, đạo hỏa tràn lan, vặn xoắn không gian, không khỏi rùng mình trong lòng: "Trừ bỏ Nam Đế, lợi ích Hỏa Thiên Tôn nhận được quả thật quá lớn! Đạo Hỏa Tổ Địa của Nam Cực cấm khu chứa sức mạnh chí cương chí mãnh, khiến tu vi pháp lực của Hỏa Thiên Tôn đạt tới mức không ai sánh kịp!"
+Lang Hiên Thần Hoàng, Tổ Thần Vương và những người khác thấy Hỏa Thiên Tôn ra tay, đạo hỏa tràn lan, vặn xoắn không gian, không khỏi rùng mình trong lòng: "Trừ khử Nam Đế, lợi ích Hỏa Thiên Tôn nhận được quả thật quá lớn! Đạo Hỏa Tổ Địa của Nam Cực cấm khu chứa sức mạnh chí cương chí mãnh, khiến tu vi pháp lực của Hỏa Thiên Tôn đạt tới mức không ai sánh kịp!"
 
 Lần này Hỏa Thiên Tôn ra tay, tu vi toàn thân tạo thành Đạo Hỏa Tổ Địa, giống như chín tầng lĩnh vực chồng lên nhau. Sức mạnh chí cương chí mãnh, không gì không hóa, dường như ngay cả đại đạo chư thiên cũng có thể bị thiêu hủy, tan chảy!
 

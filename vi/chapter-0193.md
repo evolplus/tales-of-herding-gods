@@ -148,7 +148,7 @@ Quốc sư Diên Khang nói:
 
 Quốc sư Diên Khang nói:
 
-"Làm thầy của nhau thôi."
+"Làm sư phụ của nhau thôi."
 
 "Ừm!" Hồ Linh Nhi gật đầu thật mạnh.
 

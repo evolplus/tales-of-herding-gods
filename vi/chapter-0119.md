@@ -76,7 +76,7 @@ Tần Mục ngẩn người. Cậu vẫn luôn cho rằng Quốc sư Diên Khang
 
 "Ông ấy tương kế tựu kế, muốn dẫn những người này ra."
 
-Thiếu niên Tổ sư chậm rãi nói: "Nếu những môn phái này cho rằng như vậy có thể trừ bỏ Quốc sư Diên Khang, hủy diệt Diên Khang quốc, e rằng phải chịu thiệt rồi. Thiếu giáo chủ, ngươi nhìn Quốc sư Diên Khang thế nào?"
+Thiếu niên Tổ sư chậm rãi nói: "Nếu những môn phái này cho rằng như vậy có thể trừ khử Quốc sư Diên Khang, hủy diệt Diên Khang quốc, e rằng phải chịu thiệt rồi. Thiếu giáo chủ, ngươi nhìn Quốc sư Diên Khang thế nào?"
 
 Tần Mục nghiêm mặt nói: "Hùng kiệt trong loài người, lòng dạ rộng lớn, tài năng khoáng thế."
 

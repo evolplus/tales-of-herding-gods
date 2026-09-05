@@ -110,7 +110,7 @@ Tần Mục ngẩng đầu nhìn ông, gật đầu nói: "Ta họ Tần."
 
 Lăng Vân Đạo Nhân mỉm cười nói: "Đáng tiếc không phải Tần của Tần gia."
 
-Lông mày Tần Mục khẽ nhướng lên. Cậu không đeo kiếm hạp, cười ngây ngô nói: "Thưa thầy, ta tương đối ngốc, thích nhiều một chút, có thể cho ta dùng cả hai kiếm hạp không?"
+Lông mày Tần Mục khẽ nhướng lên. Cậu không đeo kiếm hạp, cười ngây ngô nói: "Thưa tiên sinh, ta tương đối ngốc, thích nhiều một chút, có thể cho ta dùng cả hai kiếm hạp không?"
 
 Lăng Vân Đạo Nhân không để ý, cười nói: "Ngươi cứ lấy dùng, ta dùng một thanh kiếm gỗ là đủ."
 
@@ -118,7 +118,7 @@ Tần Mục chuyển kiếm hạp còn lại tới, đặt bên chân mình. Ngu
 
 Lăng Vân Đạo Nhân bật cười: "Ngươi luyện kiểu gì vậy? Tiên sinh không dạy ngươi tinh luyện nguyên khí, luyện khí thành tơ sao?"
 
-Tần Mục khom người hành lễ, cười thật thà nói: "Chưa học ạ. Mời thầy."
+Tần Mục khom người hành lễ, cười thật thà nói: "Chưa học ạ. Mời tiên sinh."
 
 Lăng Vân Đạo Nhân chắp tay sau lưng. Sợi nguyên khí nhỏ đến khó nhận ra mang theo kiếm gỗ lượn trước sau thân ông, cười nói: "Ngươi có thể ra tay rồi."
 

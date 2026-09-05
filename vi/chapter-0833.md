@@ -40,7 +40,7 @@ Ngự Thiên Tôn vội lắc đầu: "Con muốn đi tìm ca ca..."
 
 Lão què lắc đầu, có phần không vui: "Thằng nhóc này hồi nhỏ thú vị lắm, lớn lên thì chẳng còn thú vị như vậy nữa. Ta dạy nó Thâu Thiên Hoán Nhật Huyền Công, vốn tưởng nó sẽ cùng ta đi trộm khắp thiên hạ, làm đôi đạo tặc ông cháu. Nó thì hay rồi, ngày ngày ra ngoài chơi cũng không dẫn ta theo, lại còn không trộm đồ, học với Đồ phu tới mức trong đầu toàn là cơ bắp. Đi, ta dẫn con đi tham quan bảo khố của ta! Ta nói con nghe, mấy năm nay ta phát đạt rồi, Diên Phong Đế gặp ta cũng phải gọi một tiếng Thâu gia. Con biết bay không? Ta dạy con cách giẫm gió..."
 
-Ánh sáng nhảy động. Tần Mục ở trong luồng sáng, trong lòng hơi ngẩn ra: "Đây là... truyền tống thần thông? Còn tinh diệu hơn truyền tống thần thông của Tiều phu lão sư một chút, hơi giống đại na di không gian... Chẳng lẽ Đạo môn và Khai Hoàng có quan hệ không rõ ràng?"
+Ánh sáng nhảy động. Tần Mục ở trong luồng sáng, trong lòng hơi ngẩn ra: "Đây là... truyền tống thần thông? Còn tinh diệu hơn truyền tống thần thông của Tiều Phu lão sư một chút, hơi giống đại na di không gian... Chẳng lẽ Đạo môn và Khai Hoàng có quan hệ không rõ ràng?"
 
 Truyền tống thần thông là do Tiều phu truyền xuống, truyền cho Thiên Thánh giáo. Mà ánh sáng nơi Tần Mục và mọi người đang ở chính là đại na di không gian, tinh diệu hơn truyền tống thần thông, thuật số được vận dụng cũng cao thâm hơn.
 

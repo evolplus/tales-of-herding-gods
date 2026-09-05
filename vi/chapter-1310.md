@@ -2,7 +2,7 @@
 
 Lam Ngự Điền không có ấn tượng gì với những đạo đức thế tục này, không cảm thấy có gì không ổn. Hư Sinh Hoa thì quanh năm chỉ một vẻ mặt, cũng không lộ sắc khác thường, còn những người đi theo khác thì xôn xao cả lên.
 
-“Sở dĩ Thái Đế nhất định phải trừ bỏ Lang Hiên Thần Hoàng là vì Cung Vân đã quăng chết đứa con của bà ấy với Thái Đế, nhưng lại để lại đứa con của bà ấy với Thái Sơ là Lang Hiên.”
+“Sở dĩ Thái Đế nhất định phải trừ khử Lang Hiên Thần Hoàng là vì Cung Vân đã quăng chết đứa con của bà ấy với Thái Đế, nhưng lại để lại đứa con của bà ấy với Thái Sơ là Lang Hiên.”
 
 Thái Dịch nói: “Chính vì nguyên do này, Thái Đế vẫn luôn nhìn Lang Hiên không thuận mắt, cảm thấy con của mình và Cung Vân đã chết, vậy con của Thái Sơ và Cung Vân cũng nhất định phải chết.”
 

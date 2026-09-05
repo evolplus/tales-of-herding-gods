@@ -32,7 +32,7 @@ Lão nông nói: "Ta dâng hết tinh lực cả đời cho võ đạo. Trong l�
 
 Khóe mắt ông giật giật, nhìn Tần Mục, tiếp tục nói: "Kẻ đốn củi tới tìm ta, nói những người biến pháp Diên Khang có cách giải quyết nan đề Đẩu Ngưu Cung. Vốn ta không tin, nhưng bây giờ ta tin rồi. Kẻ đốn củi cũng không phải hoàn toàn vô dụng, dù sao ông ta vẫn thu được một đệ tử tốt... Hồ Bất Quy, ngươi có thể rời Đẩu Ngưu giới rồi."
 
-Trong lòng Tần Mục sinh ra một tia hy vọng, vội nói: "Vậy Thiên Sư, con có thể vớt thầy con khỏi rãnh nước rồi chứ?"
+Trong lòng Tần Mục sinh ra một tia hy vọng, vội nói: "Vậy Thiên Sư, con có thể vớt sư phụ con khỏi rãnh nước rồi chứ?"
 
 Sắc mặt lão nông trầm xuống. Gương mặt ông giống như mảnh ruộng bị lão ngưu cày một trăm lần, không thấy bất kỳ nụ cười nào, chỉ thấy từng rãnh nhăn: "Ta nói chuyện không như kẻ đốn củi đầy miệng nói bậy, đánh rắm cũng hời hợt như gió thoảng mây trôi. Ta nói là làm. Ta từng nói ai dám vớt ông ta ra thì phải chịu ba quyền của ta. Ngươi muốn vớt ông ta ra thì phải chịu ba quyền của ta!"
 
@@ -128,7 +128,7 @@ Lão nông đứng dậy, cười lạnh nói: "Nhưng ta sẽ không vì vậy 
 
 Ông đi ra khỏi phòng.
 
-Nụ cười trên mặt Tiều Phu cứng lại. Tần Mục từ ngoài phòng đi vào, thay thuốc cho ông, hạ giọng nói: "Thầy và Vũ Đấu Thiên Sư có thù sao?"
+Nụ cười trên mặt Tiều Phu cứng lại. Tần Mục từ ngoài phòng đi vào, thay thuốc cho ông, hạ giọng nói: "Sư phụ và Vũ Đấu Thiên Sư có thù sao?"
 
 Tiều Phu uể oải, thở dài một hơi: "Xem như có. Đó là một đoạn chuyện cũ."
 

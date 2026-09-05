@@ -12,7 +12,7 @@ Vừa rồi nữ tử trong Đạo quả kia không ngăn được roi dạy h�
 
 Tần Mục trầm ngâm một chút, thúc giục thuyền nhỏ do gậy chống hóa thành tránh Tường Thiên Phi, không tiếp tục dây dưa sống chết.
 
-Với thực lực hiện tại của hắn, muốn giết Tường Thiên Phi không dễ, hơn nữa giết Tường Thiên Phi cũng không phải giết Thái Đế. Muốn thật sự trừ bỏ Thái Đế, phải đánh lên Đại La Thiên, diệt trừ Đạo Thụ Đạo quả của hắn.
+Với thực lực hiện tại của hắn, muốn giết Tường Thiên Phi không dễ, hơn nữa giết Tường Thiên Phi cũng không phải giết Thái Đế. Muốn thật sự trừ khử Thái Đế, phải đánh lên Đại La Thiên, diệt trừ Đạo Thụ Đạo quả của hắn.
 
 Trước đó, Tường Thiên Phi có điểm yếu là Đạo Thụ, khi tấn công bó tay bó chân, cần tránh Đạo Thụ.
 

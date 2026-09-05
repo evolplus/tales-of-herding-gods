@@ -126,7 +126,7 @@ Khóe mắt Tần Mục giật giật.
 
 Trên thần đài, Vân Thiên Tôn mang vẻ tiêu điều, nói: “Mục Thiên Tôn, dù sao huynh không phải ta, cũng không phải một đời Thiên Đế. Vân Thiên Đế của Tiêu Hán Thiên Đình có thể hy sinh tất cả, hy sinh mọi người bên cạnh, bao gồm cả chính ta, cũng phải đạt được mục đích! Còn huynh không phải người như ta.”
 
-Hắn lộ ý cười, nói: “Vì vậy huynh là Mục Thiên Tôn, không phải Mục Thiên Đế. Làm sao trừ bỏ Nhị công tử, ta sẽ nghĩ cách, huynh không cần bận tâm.”
+Hắn lộ ý cười, nói: “Vì vậy huynh là Mục Thiên Tôn, không phải Mục Thiên Đế. Làm sao trừ khử Nhị công tử, ta sẽ nghĩ cách, huynh không cần bận tâm.”
 
 Tần Mục đứng dậy, nói: “Sau khi huynh nghĩ ra cách, nhất định phải nói cho ta biết, không được tự ý hành động!”
 

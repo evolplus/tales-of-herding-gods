@@ -22,7 +22,7 @@ Tần Mục vội nói: “Con sẽ cố gắng để bọn họ chết không �
 
 Tinh thần Tần Mục phấn chấn, có cảm giác vén mây thấy mặt trời, cũng thở dài nhẹ nhõm, cười nói: “Đại sư huynh và Thúc Quân làm việc quả nhiên gọn gàng. Con còn lo hai người bọn họ ném Phi Hương Điện ở Ngọc Kinh Thành, dẫn động phong ấn rồi tự rời đi. Nếu chín vị Thiên Tôn không vào Phi Hương Điện, cứng rắn đối đầu Nguyên Thánh Di La Cung, con cũng sẽ gặp họa.”
 
-Hắn vui vẻ nói: “Không ngờ bọn họ làm tốt như vậy, chín Thiên Tôn cũng thuận lợi vào Phi Hương Điện, trừ bỏ Nguyên Thánh! Đại sư huynh và Thúc Quân đã về chưa?”
+Hắn vui vẻ nói: “Không ngờ bọn họ làm tốt như vậy, chín Thiên Tôn cũng thuận lợi vào Phi Hương Điện, trừ khử Nguyên Thánh! Đại sư huynh và Thúc Quân đã về chưa?”
 
 Tư bà bà lắc đầu nói: “Vẫn chưa về. Tổ Đình Ngọc Kinh cách nơi này khá xa, chắc bọn họ đang trên đường trở về. Hai người bọn họ tới Tổ Đình Ngọc Kinh Thành gây động tĩnh không nhỏ, nổ tung Thiên Đô thành một cái lỗ khổng lồ, thật dọa người!”
 

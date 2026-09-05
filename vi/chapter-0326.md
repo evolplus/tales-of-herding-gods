@@ -34,7 +34,7 @@ Mộc Ánh Tuyết càng bị đả kích. Không tinh thông mà còn đánh b�
 
 Mộc Ánh Tuyết lạnh lùng nói: "Ngươi thắng rồi, chuẩn bị xử trí ta thế nào?"
 
-Tần Mục ngạc nhiên, lắc đầu nói: "Xử trí cô làm gì? Cô và ta đấu độc, hơn nữa trừ bỏ cường địch căn yêu, ta cũng rất vui. Mọi người đều là đồng đạo, giao lưu kỹ nghệ vốn là chuyện trong phận sự."
+Tần Mục ngạc nhiên, lắc đầu nói: "Xử trí cô làm gì? Cô và ta đấu độc, hơn nữa trừ khử cường địch căn yêu, ta cũng rất vui. Mọi người đều là đồng đạo, giao lưu kỹ nghệ vốn là chuyện trong phận sự."
 
 Mộc Ánh Tuyết trừng đôi mắt đen láy nhìn cậu, đột nhiên kiễng chân in lên môi cậu một cái. Sau đó nàng nhét một túi vải nhỏ vào tay cậu, lắc mình rời đi, cười khanh khách: "Ta hạ độc ngươi rồi, Tương Tư độc! Nếu ngươi tới Tây Thổ, đừng quên tìm ta. Đừng vào cổng chính nhà ta, trèo cửa sổ mà vào!"
 

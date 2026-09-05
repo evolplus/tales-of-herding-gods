@@ -138,7 +138,7 @@ Hắn ngồi dậy, nhìn quanh, chỉ thấy đồ đệ của mình đang lơ 
 
 Thôn trưởng quay đầu, nói:
 
-"Thầy, nếu thầy tới muộn thêm một lát, chúng con đã rời khỏi Thiên Thánh học cung rồi. Mấy tòa thành gần học cung đã được chúng con dời sạch."
+"Sư phụ, nếu sư phụ tới muộn thêm một lát, chúng con đã rời khỏi Thiên Thánh học cung rồi. Mấy tòa thành gần học cung đã được chúng con dời sạch."
 
 Tề Khang Nhân Hoàng nhìn khắp nơi, thắc mắc:
 
@@ -152,7 +152,7 @@ Tề Khang Nhân Hoàng nhìn vào trong tranh, chỉ thấy những người ki
 
 Tề Khang hoảng sợ, lại thấy trong rương của Lão câm đặt mấy trăm cuộn tranh.
 
-"Thầy tỉnh lại là tốt rồi."
+"Sư phụ tỉnh lại là tốt rồi."
 
 Thôn trưởng nói:
 
@@ -206,7 +206,7 @@ Mọi người kinh hãi.
 
 Thôn trưởng nói:
 
-"Thầy nói ông ấy bị Đông Thiên Thanh Đế của Thiên Đình dìm sông, hòa làm một với Quỷ thuyền?"
+"Sư phụ nói ông ấy bị Đông Thiên Thanh Đế của Thiên Đình dìm sông, hòa làm một với Quỷ thuyền?"
 
 Tề Khang Nhân Hoàng gật đầu.
 

@@ -138,7 +138,7 @@ Tim Lang Hiên Thần Hoàng đập loạn. Lần này Tần Mục tiến vào t
 
 "Giết hắn! Thần Nguyên Nhất Chỉ của ta là thần thông mạnh nhất trong các Thiên Tôn, chỉ cần một chỉ là có thể giết hắn!"
 
-Hắn rất muốn trực tiếp điểm một chỉ làm nổ tung Tần Mục. Nhưng giết Tần Mục ở nơi này sẽ khiến những Thiên Tôn khác nắm được nhược điểm của hắn. Tương lai khi thiên hạ thái bình, trừ bỏ cổ thần, đây sẽ là cái cớ tốt nhất để diệt trừ hắn!
+Hắn rất muốn trực tiếp điểm một chỉ làm nổ tung Tần Mục. Nhưng giết Tần Mục ở nơi này sẽ khiến những Thiên Tôn khác nắm được nhược điểm của hắn. Tương lai khi thiên hạ thái bình, trừ khử cổ thần, đây sẽ là cái cớ tốt nhất để diệt trừ hắn!
 
 Nhưng không giết Tần Mục, hắn lại không cam lòng!
 

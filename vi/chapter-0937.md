@@ -96,7 +96,7 @@ Thần thức của hắn tinh diệu, nghĩ gì liền có nấy. Thần thức
 
 Chỉ là hắn không có đại não, thần thức hiện giờ kém xa Tần Mục, rất nhanh đã bị từng hư ảnh Tinh Đẩu Chính Thần đánh lên tế đàn.
 
-Trong lòng Thúc Quân cả kinh: "Đúng là dạy trò rồi trò đánh chết thầy! Tiểu tử này học quá nhanh!"
+Trong lòng Thúc Quân cả kinh: "Đúng là dạy đệ tử rồi bị đệ tử đánh chết sư phụ! Tiểu tử này học quá nhanh!"
 
 Hắn lâm vào hiểm cảnh, vội dùng thần thức dao động, lớn tiếng nói: "Dừng tay! Tộc Tạo Vật Chủ của ta chỉ còn mình ta, ngươi giết ta chẳng khác nào diệt tộc chúng ta! Thần thức bất diệt của Tạo Vật Chủ chúng ta từ xưa đến nay lưu lại trong hư không vũ trụ sẽ vì cái chết của ta mà nguyền rủa ngươi. Ngươi giết ta sẽ bị nguyền rủa, vận rủi không chỉ theo ngươi, cũng sẽ theo con cháu đời sau của ngươi!"
 

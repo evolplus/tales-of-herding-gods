@@ -8,7 +8,7 @@ Tần Mục tiến lên, thi lễ với Lão điếc, giữ lễ đệ tử.
 
 Sắc mặt Lão điếc hơi đổi, vội tránh đi, nói:
 
-"Con và ta tỷ thí, không luận bối phận thầy trò. Con và ta bây giờ đều là người học đạo, giữ lễ ngang hàng. So xong, ta mới là thầy truyền nghề của con."
+"Con và ta tỷ thí, không luận bối phận sư đồ. Con và ta bây giờ đều là người học đạo, giữ lễ ngang hàng. So xong, ta mới là sư phụ truyền nghề của con."
 
 Tần Mục biết ông xử sự hơi cổ quái, lập tức giữ lễ ngang hàng. Lão điếc cũng đáp lễ ngang hàng.
 
@@ -78,11 +78,11 @@ Tần Mục lập tức tỉnh ngộ:
 
 Lão điếc lắc đầu:
 
-"Ta không nhường con. Khi ta lớn bằng con, không có tạo nghệ sâu như con. Cửa ải của ta không luận thắng thua. Làm thầy, truyền đạo, thụ nghiệp, giải hoặc. Bây giờ ta truyền đạo cho con, cần gì để ý thắng thua?"
+"Ta không nhường con. Khi ta lớn bằng con, không có tạo nghệ sâu như con. Cửa ải của ta không luận thắng thua. Làm sư phụ, truyền đạo, thụ nghiệp, giải hoặc. Bây giờ ta truyền đạo cho con, cần gì để ý thắng thua?"
 
 Dược sư khen:
 
-"Điếc, đây là tấm lòng của người làm thầy, khiến ta khâm phục. Mục nhi, ải của ta cũng không phải tỷ thí với con, mà là để con luyện thuốc. Con ra dược phố ngoài thôn, hái ba mươi loại vật đại độc, luyện một vị thuốc đại bổ. Sau khi thành thuốc thì tự mình uống. Nếu bổ, xem như con qua ải. Nếu trúng độc chết, con tiếp tục ở lại trong thôn."
+"Điếc, đây là tấm lòng của người làm sư phụ, khiến ta khâm phục. Mục nhi, ải của ta cũng không phải tỷ thí với con, mà là để con luyện thuốc. Con ra dược phố ngoài thôn, hái ba mươi loại vật đại độc, luyện một vị thuốc đại bổ. Sau khi thành thuốc thì tự mình uống. Nếu bổ, xem như con qua ải. Nếu trúng độc chết, con tiếp tục ở lại trong thôn."
 
 Tần Mục dở khóc dở cười. Trúng độc chết rồi thì ở lại trong thôn thế nào?
 

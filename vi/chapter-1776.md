@@ -186,7 +186,7 @@ Tần Mục búng ngón tay liên tiếp. Đột nhiên uy năng của năm sợ
 
 "Nói lời hung ác, Nhị tỷ còn chưa đủ tư cách."
 
-Tần Mục quay người lại, thản nhiên nói: "Trừ khi thầy giải kết ấn dây đỏ của tỷ, nếu không trước mặt tiểu đệ, tỷ vẫn nên ngoan ngoãn một chút thì hơn. Chư vị!"
+Tần Mục quay người lại, thản nhiên nói: "Trừ khi sư phụ giải kết ấn dây đỏ của tỷ, nếu không trước mặt tiểu đệ, tỷ vẫn nên ngoan ngoãn một chút thì hơn. Chư vị!"
 
 Giọng hắn đột ngột nổ vang trên Hỗn Độn Hải, chấn động khiến sóng biển cuồn cuộn.
 

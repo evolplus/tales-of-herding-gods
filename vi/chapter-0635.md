@@ -38,7 +38,7 @@ Sơ Tổ Nhân Hoàng nói: "Ta từng gặp vị Dương Tinh Quân ấy. Khi t
 
 Tần Mục hơi sững ra, cười nói: "Vì sao nói xin lỗi với ta? Ta đánh ông, người nên bồi lễ phải là ta mới đúng."
 
-Sơ Tổ Nhân Hoàng lắc đầu, nói: "Ta vốn muốn làm thầy của ngươi, truyền thụ bản lĩnh và lĩnh ngộ cả đời cho ngươi. Nhưng sau khi ngươi đi, ta đã nghĩ thông. Ta đã hại nhiều Nhân Hoàng cô khổ cả đời như vậy, không thể hại ngươi nữa. Đường của ngươi, ngươi tự chọn, tự đi. Ta muốn để ngươi đi đường của ta, là ta sai."
+Sơ Tổ Nhân Hoàng lắc đầu, nói: "Ta vốn muốn làm sư phụ của ngươi, truyền thụ bản lĩnh và lĩnh ngộ cả đời cho ngươi. Nhưng sau khi ngươi đi, ta đã nghĩ thông. Ta đã hại nhiều Nhân Hoàng cô khổ cả đời như vậy, không thể hại ngươi nữa. Đường của ngươi, ngươi tự chọn, tự đi. Ta muốn để ngươi đi đường của ta, là ta sai."
 
 Tần Mục mím môi, môi trở nên rất mỏng. Một lát sau, hắn đứng dậy dang hai tay, vươn vai: "Ta vốn rất hận ông, muốn đánh chết ông, nhưng ta chỉ có thể đánh bại ông ở cùng cảnh giới, không thể đánh chết ông. Hơn nữa sau khi đánh ông lần này, trong lòng ta đột nhiên không còn hận ý mãnh liệt như vậy nữa."
 

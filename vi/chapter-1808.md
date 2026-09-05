@@ -22,9 +22,9 @@ Các cường giả dưới trướng Vô Nhai lão nhân vốn còn hơi có l�
 
 Công tử Lăng Tiêu tự biết không thể giữ bọn họ lại, lập tức hạ lệnh ngừng truy kích, đứng từ xa đối diện Tần Mục, lạnh lùng nói: "Nhị tỷ Vô Cực vẫn đã được thả ra. Cho dù ngươi hủy Quy Khư Đại Uyên, sớm muộn cũng có một ngày nàng khôi phục tới trạng thái đỉnh phong. Khi ấy chính là tai họa của tất cả sinh linh! Ác quả này phải tính lên đầu ngươi!"
 
-Tần Mục gọi Hồng Chung Vũ Trụ về, treo trước Hỗn Độn Điện, từ xa đối diện hắn: "Lão Tam, Di La Cung giáng lâm sẽ phá hủy chư thiên vạn giới, khiến vũ trụ Kỷ thứ mười bảy trực tiếp rơi vào sụp đổ hủy diệt, vô số sinh linh tử vong. Ác quả này lại nên tính lên đầu ai? Mệnh lệnh của thầy là để các ngươi từng người trở về vũ trụ sinh ra mình, vậy mà các ngươi lại trái lệnh thầy, chuyện ấy tính thế nào?"
+Tần Mục gọi Hồng Chung Vũ Trụ về, treo trước Hỗn Độn Điện, từ xa đối diện hắn: "Lão Tam, Di La Cung giáng lâm sẽ phá hủy chư thiên vạn giới, khiến vũ trụ Kỷ thứ mười bảy trực tiếp rơi vào sụp đổ hủy diệt, vô số sinh linh tử vong. Ác quả này lại nên tính lên đầu ai? Mệnh lệnh của sư phụ là để các ngươi từng người trở về vũ trụ sinh ra mình, vậy mà các ngươi lại trái lệnh sư phụ, chuyện ấy tính thế nào?"
 
-Công tử Lăng Tiêu chống thương, hừ lạnh một tiếng: "Thầy đã quay lưng với lý niệm của mình. Là đệ tử, đương nhiên phải nhặt lý niệm của thầy lên để tiếp tục bước tới, như vậy mới là truyền nhân thật sự của lão nhân gia! Bảy công tử Di La Cung, chỉ có ta và Tử Tiêu mới là người kế thừa lý niệm của lão nhân gia. Những kẻ khác như ngươi, như Vô Cực, như Thái Thượng, đều là kẻ phản bội!"
+Công tử Lăng Tiêu chống thương, hừ lạnh một tiếng: "Sư phụ đã quay lưng với lý niệm của mình. Là đệ tử, đương nhiên phải nhặt lý niệm của sư phụ lên để tiếp tục bước tới, như vậy mới là truyền nhân thật sự của lão nhân gia! Bảy công tử Di La Cung, chỉ có ta và Tử Tiêu mới là người kế thừa lý niệm của lão nhân gia. Những kẻ khác như ngươi, như Vô Cực, như Thái Thượng, đều là kẻ phản bội!"
 
 Tần Mục cười lớn, dẫn mọi người lui đi.
 
@@ -62,11 +62,11 @@ Mọi người tạm gác chuyện này, dẫn hắn vào bảo khố Đạo Tà
 
 Hạo Thiên Tôn vừa kinh ngạc vừa mừng rỡ, liên tục cảm tạ, hỏi: "Điển tịch của Chủ nhân Di La Cung cũng có thể học sao?"
 
-Hoa Đô điện chủ cười nói: "Cũng có thể học. Không chỉ bậc thành đạo của Di La Cung có thể học đạo pháp thần thông của thầy, ngay cả tất cả những người khác cũng đều có thể học. Điển tịch của Di La Cung xưa nay không phải bí mật."
+Hoa Đô điện chủ cười nói: "Cũng có thể học. Không chỉ bậc thành đạo của Di La Cung có thể học đạo pháp thần thông của sư phụ, ngay cả tất cả những người khác cũng đều có thể học. Điển tịch của Di La Cung xưa nay không phải bí mật."
 
-Hắn nhìn sâu Hạo Thiên Tôn một cái, thâm ý nói: "Có điều học được bao nhiêu, có thể lĩnh ngộ ra huyền diệu hay không, đều tùy tư chất ngộ tính của từng người. Ngộ tính của Hạo đạo hữu phi phàm, nhưng nền tảng chưa vững. Ta đề nghị ngươi vẫn nên bắt đầu học từ tuyệt học của các vị điện chủ và bậc thành đạo, trước tiên củng cố nền tảng. Sau khi nền tảng vững vàng, lại học tuyệt học của các công tử, cuối cùng mới tiếp xúc với tuyệt học của thầy. Như vậy sẽ dễ nhập môn hơn. Trực tiếp học tuyệt học của thầy, trừ phi sở hữu tài trí ngộ tính như công tử."
+Hắn nhìn sâu Hạo Thiên Tôn một cái, thâm ý nói: "Có điều học được bao nhiêu, có thể lĩnh ngộ ra huyền diệu hay không, đều tùy tư chất ngộ tính của từng người. Ngộ tính của Hạo đạo hữu phi phàm, nhưng nền tảng chưa vững. Ta đề nghị ngươi vẫn nên bắt đầu học từ tuyệt học của các vị điện chủ và bậc thành đạo, trước tiên củng cố nền tảng. Sau khi nền tảng vững vàng, lại học tuyệt học của các công tử, cuối cùng mới tiếp xúc với tuyệt học của sư phụ. Như vậy sẽ dễ nhập môn hơn. Trực tiếp học tuyệt học của sư phụ, trừ phi sở hữu tài trí ngộ tính như công tử."
 
-Hạo Thiên Tôn nghiêm nghị nói: "Chim vụng bay trước, ta nguyện hao tâm hơn một chút, học tuyệt học của thầy trước."
+Hạo Thiên Tôn nghiêm nghị nói: "Chim vụng bay trước, ta nguyện hao tâm hơn một chút, học tuyệt học của sư phụ trước."
 
 Các điện chủ khác đều bật cười khẽ, dẫn hắn tới trước kho điển tịch do Chủ nhân Di La Cung để lại, rồi bỏ hắn ở đó, từng người rời đi.
 
@@ -146,7 +146,7 @@ Công tử Lăng Tiêu không tiếp tục xem, cũng bỏ ý định khuyên gi
 
 Có những vết thương, hắn không thể chữa lành.
 
-"Tử Tiêu, chỉ khi chiến thắng lão Thất, giáng lâm Kỷ thứ mười bảy, kéo dài lý niệm của thầy, ngươi mới có khả năng cứu được vợ mình!"
+"Tử Tiêu, chỉ khi chiến thắng lão Thất, giáng lâm Kỷ thứ mười bảy, kéo dài lý niệm của sư phụ, ngươi mới có khả năng cứu được vợ mình!"
 
 Công tử Lăng Tiêu thầm nói trong lòng: "Hiện tại không còn ai quấy nhiễu đạo tâm của ngươi nữa. Ta mong ngươi có thể phấn chấn trở lại, vì tương lai mà chiến!"
 

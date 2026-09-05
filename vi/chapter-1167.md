@@ -90,7 +90,7 @@ Tổ Thần Vương, Lang Hiên Thần Hoàng cùng những người khác ho kh
 
 Mọi người lần lượt nhìn về phía Hạo Thiên Tôn, nói: “Hạo Thiên Tôn, ngươi là đứng đầu Thập Thiên Tôn, ngươi nói vài câu đi. Chúng ta đều nghe ngươi.”
 
-Hạo Thiên Tôn nhìn quanh một vòng, thản nhiên nói: “Thái Đế vẫn luôn ẩn nấp, đã rất lâu chưa hiện thân. Không dụ Thái Đế ra, thì từ đầu đến cuối vẫn khó trừ bỏ hắn. Lần này ngược lại là cơ hội tốt để dẫn Thái Đế ra.”
+Hạo Thiên Tôn nhìn quanh một vòng, thản nhiên nói: “Thái Đế vẫn luôn ẩn nấp, đã rất lâu chưa hiện thân. Không dụ Thái Đế ra, thì từ đầu đến cuối vẫn khó trừ khử hắn. Lần này ngược lại là cơ hội tốt để dẫn Thái Đế ra.”
 
 Trong lòng mọi người khẽ động, lần lượt gật đầu.
 

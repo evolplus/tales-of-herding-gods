@@ -94,7 +94,7 @@ Triết Hoa Lê nói nhanh như gió, cười lạnh: "Ngươi đã nịnh bợ 
 
 Tần Mục nhổ một tiếng. Lạc Vô Song lạnh lùng nói: "Gặp người nói tiếng người, gặp quỷ nói tiếng quỷ, Mục Thiên Tôn quả là cao thủ."
 
-Hai thầy trò họ cùng chung kẻ địch, châm chọc Tần Mục một phen, trong lòng đều thoải mái hơn chút.
+Sư đồ bọn họ cùng chung kẻ địch, châm chọc Tần Mục một phen, trong lòng đều thoải mái hơn chút.
 
 Mọi người nói cười, nhưng không ai nhắc tới chuyện Âm Thiên Tử đang chờ họ phía trước.
 

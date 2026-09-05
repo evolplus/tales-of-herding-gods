@@ -206,7 +206,7 @@ Trong miệng Tần Mục đang cắn một quả đào, nước quả đầy mi
 
 Tề Hạ Du nổi giận, bước tới, nghiến răng nói:
 
-"Thứ đa tình bên cạnh kẻ phụ lòng, lại chạy tới chỗ thầy ta trêu hoa ghẹo nguyệt, hôm nay tiễn ngươi lên đường!"
+"Thứ đa tình bên cạnh kẻ phụ lòng, lại chạy tới chỗ sư phụ ta trêu hoa ghẹo nguyệt, hôm nay tiễn ngươi lên đường!"
 
 Lúc này, nữ tử sau bình phong ở tiền điện ho một tiếng, giọng truyền tới:
 

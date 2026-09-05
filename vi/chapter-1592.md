@@ -114,9 +114,9 @@ Vân Thiên Tôn nhíu mày. Tiếng cười của Hỏa Thiên Tôn càng lúc 
 
 "Vân, không thể phủ nhận, huynh có sức mê hoặc hơn Mục Thiên Tôn."
 
-Hỏa Thiên Tôn xoay người lại, nhìn thẳng vào gương mặt hắn, giọng nói lại như không có chút nhiệt độ nào, càng lúc càng lạnh: "Nhưng các người căn bản không đấu lại Hạo Thiên Tôn, không đấu lại Thiên Đình! Nếu ta đi ám sát Hạo Thiên Tôn, dù có thể giết hắn, ta cũng sẽ bị đòn phản kích trước khi chết của hắn giết ngược! Kế sách của huynh rất hay, một mũi tên trúng hai đích, một lần trừ bỏ hai người bọn ta!"
+Hỏa Thiên Tôn xoay người lại, nhìn thẳng vào gương mặt hắn, giọng nói lại như không có chút nhiệt độ nào, càng lúc càng lạnh: "Nhưng các người căn bản không đấu lại Hạo Thiên Tôn, không đấu lại Thiên Đình! Nếu ta đi ám sát Hạo Thiên Tôn, dù có thể giết hắn, ta cũng sẽ bị đòn phản kích trước khi chết của hắn giết ngược! Kế sách của huynh rất hay, một mũi tên trúng hai đích, một lần trừ khử hai người bọn ta!"
 
-Hắn châm chọc nói: "Sau đó huynh có thể một lần san bằng Thiên Đình, rồi huynh có thể đối phó Khai Hoàng, đối phó Mục Thiên Tôn, trừ bỏ bọn họ, một mình nắm quyền lớn! Đám thanh niên lỗ mãng ấy sao có thể là đối thủ của huynh? Huynh nghĩ rất hay, thật sự rất hay, trừ bỏ ta, trừ bỏ Hạo Thiên Tôn, rồi trừ bỏ Mục Thiên Tôn và Khai Hoàng."
+Hắn châm chọc nói: "Sau đó huynh có thể một lần san bằng Thiên Đình, rồi huynh có thể đối phó Khai Hoàng, đối phó Mục Thiên Tôn, trừ khử bọn họ, một mình nắm quyền lớn! Đám thanh niên lỗ mãng ấy sao có thể là đối thủ của huynh? Huynh nghĩ rất hay, thật sự rất hay, trừ khử ta, trừ khử Hạo Thiên Tôn, rồi trừ khử Mục Thiên Tôn và Khai Hoàng."
 
 Vân Thiên Tôn thở dài một tiếng, tiêu điều nói: "Huynh thật sự thay đổi rồi. Huynh đã phản bội sơ tâm của mình..."
 

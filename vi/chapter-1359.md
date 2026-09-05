@@ -40,9 +40,9 @@ Tư duy xưa nay phẳng lặng như giếng cổ của Thiên Công và Thổ B
 
 Thái Dịch gật đầu.
 
-Thiên Công và Thổ Bá nhìn nhau. Thiên Công nói: “Trời cao có đức hiếu sinh, vì sao đạo huynh muốn trừ bỏ Tạo Vật Chủ?”
+Thiên Công và Thổ Bá nhìn nhau. Thiên Công nói: “Trời cao có đức hiếu sinh, vì sao đạo huynh muốn trừ khử Tạo Vật Chủ?”
 
-“Ta không phải muốn trừ bỏ Tạo Vật Chủ, mà là mời các ông loại bỏ Tạo Vật Chủ ra ngoài.”
+“Ta không phải muốn trừ khử Tạo Vật Chủ, mà là mời các ông loại bỏ Tạo Vật Chủ ra ngoài.”
 
 Thái Dịch nói: “Nguyện vọng của ta là tốt, nhưng trên đường loại bỏ Tạo Vật Chủ, các ông lại sinh ra dã tâm, dục vọng của riêng mình, cuối cùng muốn đuổi tận giết tuyệt Tạo Vật Chủ. Mà điều này không phải thứ ta muốn thấy.”
 
@@ -62,7 +62,7 @@ Cũng có những vị thừa nhận ý chí trời đất mà sinh ra, giáng t
 
 Thế nhưng, trên đường loại bỏ Tạo Vật Chủ, mọi nguyện vọng ban đầu đều dần thay đổi theo sự gia tăng quyền lực của họ.
 
-Sau khi họ trừ bỏ Tạo Vật Chủ, họ lại trở thành một nhóm Tạo Vật Chủ khác, những Tạo Vật Chủ càng tàn bạo hơn.
+Sau khi họ trừ khử Tạo Vật Chủ, họ lại trở thành một nhóm Tạo Vật Chủ khác, những Tạo Vật Chủ càng tàn bạo hơn.
 
 Thiên Công và Thổ Bá trầm mặc chốc lát. Thiên Công khom người nói: “Đạo huynh, ta sẽ thành công sao?”
 

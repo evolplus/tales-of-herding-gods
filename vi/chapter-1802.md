@@ -16,7 +16,7 @@ Có Diên Khang làm hậu thuẫn, cục diện Tổ Đình kéo dài càng lâ
 
 "Quan trọng hơn là Di La Cung sẽ không giữ Vô Nhai lão nhân lại."
 
-Thương thế của Tần Mục được Dược sư áp chế. Hắn đứng dậy, nói: "Công tử muốn giáng lâm, cách đơn giản nhất chính là trừ bỏ Vô Nhai lão nhân, quét sạch toàn bộ thực lực của Vô Nhai. Chỉ có như vậy, bọn họ mới có năng lượng cần thiết để giáng lâm. Trừ bỏ ta là chuyện không thể, trừ bỏ các ngươi thì năng lượng quá ít, cho nên chỉ có thể xuống tay từ Vô Nhai."
+Thương thế của Tần Mục được Dược sư áp chế. Hắn đứng dậy, nói: "Công tử muốn giáng lâm, cách đơn giản nhất chính là trừ khử Vô Nhai lão nhân, quét sạch toàn bộ thực lực của Vô Nhai. Chỉ có như vậy, bọn họ mới có năng lượng cần thiết để giáng lâm. Trừ khử ta là chuyện không thể, trừ khử các ngươi thì năng lượng quá ít, cho nên chỉ có thể xuống tay từ Vô Nhai."
 
 Hắn đứng ở đầu thuyền nhìn về phía Thế Giới Thụ, nói: "Vô Nhai lão nhân không thể chết. Lão còn sống thì công tử của Di La Cung không thể giáng lâm. Khi cần thiết, chúng ta cũng có thể liên thủ với Vô Nhai, chống lại Di La Cung."
 

@@ -78,7 +78,7 @@ Tần Mục thong thả nói: “Nếu ta tới muộn thêm vài năm, cô bé 
 
 Ngụy Tùy Phong, Vân Tiệm Ly, Ngọc Thần Tử trong lòng đều rất khó chịu, nhưng cũng không thể không thừa nhận họ quả thật suýt nữa bóp chết sức sáng tạo của Hoa Huyên Tú.
 
-Ngược lại Dư Sơ Độ rất vui. Hắn là thầy của Hoa Huyên Tú, ngày thường dạy dỗ cô bé, rất để tâm tới sự trưởng thành của nàng.
+Ngược lại Dư Sơ Độ rất vui. Hắn là sư phụ của Hoa Huyên Tú, ngày thường dạy dỗ cô bé, rất để tâm tới sự trưởng thành của nàng.
 
 “Ngoài Hoa Huyên Tú ra, trong Văn Đạo Viện còn có nửa vị Thiên Tôn. Người khai mở ba Thiên Môn còn lại là vị thần nào?”
 

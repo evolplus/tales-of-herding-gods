@@ -30,7 +30,7 @@ Tần Mục tiếp tục nói: “Huống chi bản thân Hạo Thiên Tôn bọ
 
 Ánh mắt hắn vượt qua Tường Thiên Phi, rơi lên người Cung Thiên Tôn, Tổ Thần Vương và Hư Thiên Tôn, nhàn nhạt nói: “Các ngươi phụ thuộc Hạo Thiên Tôn, chẳng qua vì hắn được Thái Tố nương nương ủng hộ. Các ngươi chỉ lợi dụng lẫn nhau mà thôi. Nhưng hiện giờ, ngay cả Thái Tố nương nương cũng già rồi. Đừng nói Thái Tố bảo vệ các ngươi, ngay cả bản thân cũng khó giữ! Nếu ta là các ngươi...”
 
-Hắn khẽ cười, ung dung nói: “Mấy vị, chỉ cần các ngươi lập tức ra tay, trừ bỏ Hạo Thiên Tôn, Hỏa Thiên Tôn và Thái Tố, ta có thể để các ngươi khôi phục tuổi trẻ, khôi phục sinh cơ.”
+Hắn khẽ cười, ung dung nói: “Mấy vị, chỉ cần các ngươi lập tức ra tay, trừ khử Hạo Thiên Tôn, Hỏa Thiên Tôn và Thái Tố, ta có thể để các ngươi khôi phục tuổi trẻ, khôi phục sinh cơ.”
 
 Trên Đạo Thụ, lòng Hạo Thiên Tôn nghiêm lại. Hỏa Thiên Tôn lặng lẽ lùi hai bước, kéo giãn khoảng cách với Tổ Thần Vương, Cung Thiên Tôn và những người khác.
 
@@ -112,13 +112,13 @@ Mụ không có chủ ý. Đứng về phía Hạo Thiên Tôn thì Cung Thiên 
 
 Mụ cũng không thể nương nhờ Hiểu Thiên Tôn, Hiểu Thiên Tôn là người đầu tiên không dung mụ!
 
-Mụ cực kỳ hiểu Tần Mục. Hiện giờ tác dụng của mụ đối với Tần Mục càng ngày càng nhỏ, nếu Tần Mục lên bờ, chưa chắc sẽ không trừ bỏ mụ trước!
+Mụ cực kỳ hiểu Tần Mục. Hiện giờ tác dụng của mụ đối với Tần Mục càng ngày càng nhỏ, nếu Tần Mục lên bờ, chưa chắc sẽ không trừ khử mụ trước!
 
 Tần Mục muốn cứu Lăng Thiên Tôn và Vân Thiên Tôn, tất phải trừ mụ!
 
 Ngay lúc mụ do dự không quyết, chiếc thuyền nhỏ bỗng khựng nhẹ, đã đến bờ bên kia. Chiếc thuyền nhỏ lao lên mặt đất, lập tức hất Tường Thiên Phi lên, hóa thành một cây gậy chống được Tần Mục đeo sau lưng.
 
-Sắc mặt Tường Thiên Phi lúc âm lúc sáng. Mụ nhìn hai gốc Đạo Thụ đang lao về bờ cùng các Thiên Tôn và thần thánh trên cây, đột nhiên hai thanh Trảm Thần Huyền Đao rít lên bay lên, chém về phía Hiểu Thiên Tôn trên gốc Đạo Thụ gần nhất, quát lớn: “Mục Thiên Tôn, ta cản Hiểu Thiên Tôn, ngươi trừ bỏ bọn họ!”
+Sắc mặt Tường Thiên Phi lúc âm lúc sáng. Mụ nhìn hai gốc Đạo Thụ đang lao về bờ cùng các Thiên Tôn và thần thánh trên cây, đột nhiên hai thanh Trảm Thần Huyền Đao rít lên bay lên, chém về phía Hiểu Thiên Tôn trên gốc Đạo Thụ gần nhất, quát lớn: “Mục Thiên Tôn, ta cản Hiểu Thiên Tôn, ngươi trừ khử bọn họ!”
 
 Mụ vừa dứt lời, hai tay phát lực. Hai luồng sát khí đang lao về phía Hiểu Thiên Tôn cuộn ngược trở lại, một trái một phải, chém về phía đầu Tần Mục!
 

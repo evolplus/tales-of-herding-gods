@@ -60,7 +60,7 @@ Hắn lại tới tiểu học trong trấn, nghe vài tiết học, mày càng 
 
 Dân chúng trong tòa thành trấn này ăn mặc kém xa dân trong Thần thành về vẻ đẹp đẽ sáng sủa. Ăn ở sinh hoạt cũng kém Thần thành rất nhiều, thức ăn cũng vậy.
 
-Điều đáng sợ hơn là tiểu học, đại học. Những người thầy dạy bọn trẻ đều là thần thông giả rất bình thường, không có mấy người tài hoa xuất chúng. Việc dạy dỗ trẻ con cũng qua loa cho xong, thậm chí ngay cả thầy giáo cũng chỉ hiểu biết lơ mơ.
+Điều đáng sợ hơn là tiểu học, đại học. Những tiên sinh dạy bọn trẻ đều là thần thông giả rất bình thường, không có mấy người tài hoa xuất chúng. Việc dạy dỗ trẻ con cũng qua loa cho xong, thậm chí ngay cả tiên sinh cũng chỉ hiểu biết lơ mơ.
 
 Hắn đi hỏi người già trong trấn. Người già nói: “Người trẻ đều tới Thần thành, hoặc tới núi mỏ, xưởng đốc tạo, cũng có người vượt núi băng đèo tới Hạ Kinh. Quanh năm chưa chắc gặp được một hai lần.”
 

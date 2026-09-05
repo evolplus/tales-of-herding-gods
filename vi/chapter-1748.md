@@ -108,7 +108,7 @@ Tần Mục trực tiếp phớt lờ Hạo Thiên Đế, ánh mắt rơi lên n
 
 Hoan Hỉ điện chủ không dám chậm trễ, khom người trên Đạo Thụ, cung kính nói: "Bái kiến Thất công tử! Thất công tử lệnh Thương Quân giết ta, lại dùng thần thông hại ta giữa đường, nhưng vẫn bị ta thoát được đường sống. Truyền ra ngoài, ta cũng rất nở mặt."
 
-Tần Mục cười ha hả, không để bụng, nói: "Mục tiêu của ta không phải ngươi, mà là Sở Ca, Trường Phong. Sở Ca và Trường Phong đã chết, đều bị ta trừ bỏ. Không bao lâu nữa, ngươi sẽ đi gặp bọn họ."
+Tần Mục cười ha hả, không để bụng, nói: "Mục tiêu của ta không phải ngươi, mà là Sở Ca, Trường Phong. Sở Ca và Trường Phong đã chết, đều bị ta trừ khử. Không bao lâu nữa, ngươi sẽ đi gặp bọn họ."
 
 Trong lòng Hoan Hỉ điện chủ phát lạnh, cười lạnh nói: "Thất công tử, mọi người cùng xuất thân một môn, cùng là đệ tử của lão sư. Ngươi tàn hại đồng môn như vậy, chẳng lẽ không sợ lão sư sao?"
 

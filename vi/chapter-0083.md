@@ -162,7 +162,7 @@ Thế giới mà hiện giờ cậu nhìn thấy hoàn toàn khác với ngày t
 
 Thân hình Thôn trưởng bay lên, lơ lửng trong không trung, cách mặt đất ba thước, cười nói:
 
-"Bây giờ hẳn là đủ rồi. Mục nhi, đi theo ông, hai thầy trò mình đi một chuyến vào Ám giới."
+"Bây giờ hẳn là đủ rồi. Mục nhi, đi theo ông, sư đồ chúng ta đi một chuyến vào Ám giới."
 
 Tư bà bà há miệng muốn nói, nhưng cuối cùng không ngăn cản, chỉ nói:
 

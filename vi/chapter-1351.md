@@ -62,7 +62,7 @@ Hắn không khỏi lắc đầu. Không gian hỗn loạn cực kỳ nguy hiể
 
 “Chư hầu Nguyên giới cát cứ, hiện giờ là lúc an toàn nhất, nhưng cũng không thể sơ suất.”
 
-Tần Mục mượn Nguyệt Thiên Tôn một chiếc đèn lồng, cáo biệt nàng, nói: “Trong Thập Thiên Tôn, Hồng Thiên Tôn có thể tin cậy, các Thiên Tôn khác đều không đáng tin, chẳng biết lúc nào sẽ tập kích Nguyên giới. Nguyệt, cô tinh thông không gian chi đạo, Thập Thiên Tôn muốn thôn tính Nguyên giới, tất sẽ trừ bỏ cô trước. Cô phải cẩn thận!”
+Tần Mục mượn Nguyệt Thiên Tôn một chiếc đèn lồng, cáo biệt nàng, nói: “Trong Thập Thiên Tôn, Hồng Thiên Tôn có thể tin cậy, các Thiên Tôn khác đều không đáng tin, chẳng biết lúc nào sẽ tập kích Nguyên giới. Nguyệt, cô tinh thông không gian chi đạo, Thập Thiên Tôn muốn thôn tính Nguyên giới, tất sẽ trừ khử cô trước. Cô phải cẩn thận!”
 
 Nguyệt Thiên Tôn tiễn hắn ra khỏi rừng đào, có chút lưu luyến. Đợi khi hắn sắp đi khỏi rừng đào, nàng bỗng cười nói: “Mục, năm xưa ngươi từng vẽ cho ta một bức tranh. Hôm nay có thể lại vẽ cho ta một bức không?”
 

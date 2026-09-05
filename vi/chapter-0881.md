@@ -244,7 +244,7 @@ Hai tay ông tách ra, trên bầu trời đại lục chữ Tần lập tức h
 
 Đó là một vị Ngự Thiên Tôn. Sau lưng hắn, các Thiên Cung lững lờ thành từng mảng, từng cụm, hợp thành một mảnh Thiên Đình. Ngự Thiên Tôn như chủ nhân của Thiên Đình.
 
-"Vũ khí mạnh nhất trong sử sách do Thiên Đình chế tạo xuất hiện ở Huyền Đô của ta, là muốn tới trừ bỏ ta sao?" phân thân Thiên Công thở dài.
+"Vũ khí mạnh nhất trong sử sách do Thiên Đình chế tạo xuất hiện ở Huyền Đô của ta, là muốn tới trừ khử ta sao?" phân thân Thiên Công thở dài.
 
 Dung nham Thổ Bá nói:
 

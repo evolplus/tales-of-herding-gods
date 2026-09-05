@@ -52,7 +52,7 @@ Trong Tổ Đình Ngọc Kinh Thành, vị điện chủ thứ năm của Di La 
 
 Các điện chủ và bậc thành đạo khác trong lòng rùng mình, đồng loạt vâng lệnh.
 
-Vân Long điện chủ ngửa nhìn Quy Khư, ánh mắt kỳ lạ, lẩm bẩm: "Khai Thiên chúng lần này mượn đường Quy Khư, đại chiến với Nhị công tử, chắc chắn sẽ hao tổn mấy người. Đám báng đạo này chết chưa hết tội, công tử Vô Cực cũng làm đủ điều ác, tàn hại đồng đạo, phản bội thầy, phản bội Di La Cung. Tốt nhất là bọn họ cùng chết hết..."
+Vân Long điện chủ ngửa nhìn Quy Khư, ánh mắt kỳ lạ, lẩm bẩm: "Khai Thiên chúng lần này mượn đường Quy Khư, đại chiến với Nhị công tử, chắc chắn sẽ hao tổn mấy người. Đám báng đạo này chết chưa hết tội, công tử Vô Cực cũng làm đủ điều ác, tàn hại đồng đạo, phản bội sư phụ, phản bội Di La Cung. Tốt nhất là bọn họ cùng chết hết..."
 
 Bát Cảnh điện chủ bên cạnh nói: "Cho dù Khai Thiên chúng thoát ra từ Quy Khư, bọn họ cũng chỉ rơi vào cạm bẫy Tổ Đình do công tử Hỗn Độn bày ra, bị vây ở đây. Vào đấu trường nhốt thú này, bọn họ không còn đường nào để đi, chỉ có thể tự chém giết lẫn nhau. Công tử Lăng Tiêu và công tử Tử Tiêu nhờ vậy có thể thuận lợi giáng lâm."
 

@@ -64,7 +64,7 @@ Tề Cửu Nghi ở cách đó không xa, thấy Tần Mục bị thương, đan
 
 Hắn không nhân cơ hội công kích Tần Mục. Với thực lực của hắn, đủ để giữ Tần Mục bị thương lại, nhưng hắn không ra tay.
 
-Lâu Thiên Trọng và hắn là sư huynh đệ. Ban đầu hắn theo Nam Thiên Xích Đế Tề Hạ Du tu hành, sau đó lại tới Minh Đô bái Hắc Đế làm thầy. Chỉ là thời gian ở Minh Đô khá ngắn, tình cảm với các sư huynh đệ Minh Đô không sâu.
+Lâu Thiên Trọng và hắn là sư huynh đệ. Ban đầu hắn theo Nam Thiên Xích Đế Tề Hạ Du tu hành, sau đó lại tới Minh Đô bái Hắc Đế làm sư phụ. Chỉ là thời gian ở Minh Đô khá ngắn, tình cảm với các sư huynh đệ Minh Đô không sâu.
 
 Tần Mục áp chế thương thế, tản đi ba đầu sáu tay, lại dán lá liễu lên mi tâm, lao thẳng về phía cầu Linh Năng Đối Thiên.
 
@@ -166,7 +166,7 @@ Không lâu sau, hàng ngàn vạn thi cốt hợp thành một đội quân nh�
 
 Thần nhân Đại Khư trên tế đàn kia kinh hãi biến sắc, nắm chặt thần binh trong tay.
 
-Lâu Vân Khúc giơ tay. Sinh Tử Bộ gào thét bay tới. Hắn mỉm cười nói: "Hai vị sư đệ, các ngươi đoán xem, đánh hạ những tế đàn này, trừ bỏ dư nghiệt Khai Hoàng trên tế đàn, cần bao nhiêu thời gian?"
+Lâu Vân Khúc giơ tay. Sinh Tử Bộ gào thét bay tới. Hắn mỉm cười nói: "Hai vị sư đệ, các ngươi đoán xem, đánh hạ những tế đàn này, thanh trừ dư nghiệt Khai Hoàng trên tế đàn, cần bao nhiêu thời gian?"
 
 Ầm!
 

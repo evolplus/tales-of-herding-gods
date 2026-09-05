@@ -132,7 +132,7 @@ Ngô Nữ cười khúc khích:
 
 Đột nhiên, chỉ nghe một tiếng quát giận truyền tới, giọng nghiêm khắc:
 
-"Thân là người, vậy mà lại cấu kết với yêu tinh ăn người. Hôm nay xem ra thầy trò chúng ta phải hàng ma vệ đạo rồi!"
+"Thân là người, vậy mà lại cấu kết với yêu tinh ăn người. Hôm nay xem ra sư đồ chúng ta phải hàng ma vệ đạo rồi!"
 
 Tần Mục nhìn qua, chỉ thấy mấy đạo nhân đi tới. Có nam có nữ, một lão giả, mấy nam nữ trẻ tuổi. Lão đạo sĩ kia chính khí lẫm liệt, còn mấy nam nữ trẻ tuổi thì lộ vẻ hưng phấn, hiển nhiên là cường giả từ bên ngoài vào Đại Khư lịch luyện.
 

@@ -46,7 +46,7 @@ Hắn giống như một vật phụ thuộc, một công cụ. Tam công tử, 
 
 “Lão Thất.”
 
-Trong miệng Hạo Thiên Đế truyền ra giọng Tam công tử Di La Cung, ngữ khí lạnh nhạt: “Ngươi đấu không lại chúng ta, cần gì khổ sở giãy giụa? Hiện giờ ngươi có một cơ hội, trở về vũ trụ quá khứ, bái nhập môn hạ của thầy, yên phận làm Thất công tử của ngươi, mơ giấc mộng xuân thu của ngươi, chẳng phải rất tốt sao? Hậu quả duy nhất của việc ngươi ngăn cản chúng ta giáng lâm chính là chúng ta phá hủy tất cả những gì ngươi để tâm, rồi ném ngươi trở về quá khứ.”
+Trong miệng Hạo Thiên Đế truyền ra giọng Tam công tử Di La Cung, ngữ khí lạnh nhạt: “Ngươi đấu không lại chúng ta, cần gì khổ sở giãy giụa? Hiện giờ ngươi có một cơ hội, trở về vũ trụ quá khứ, bái nhập môn hạ của sư phụ, yên phận làm Thất công tử của ngươi, mơ giấc mộng xuân thu của ngươi, chẳng phải rất tốt sao? Hậu quả duy nhất của việc ngươi ngăn cản chúng ta giáng lâm chính là chúng ta phá hủy tất cả những gì ngươi để tâm, rồi ném ngươi trở về quá khứ.”
 
 Trong Tử Tiêu Điện truyền tới giọng Tứ công tử: “Lão Thất, chủ động trở về vũ trụ quá khứ còn có thể giữ thể diện. Bị chúng ta ném về thì cũng mất mặt Thất công tử Di La Cung của ngươi.”
 
@@ -64,7 +64,7 @@ Hạo Thiên Đế và Thái Sơ đồng loạt quay đầu nhìn ả.
 
 Ánh mắt Tần Mục cũng rơi lên người ả. Hắn khẽ mỉm cười, thầm nghĩ: “Đế hậu và Nguyên Mẫu đã rất khó tách ra. Các nàng đã phá thần thông luân hồi của ta, hoàn toàn dung hợp thành một thể rồi. Có điều, hình như Lam Ngự Điền để lại thứ gì rất ghê gớm trong cơ thể nàng, có lẽ có thể lợi dụng...”
 
-Hắn thu ánh mắt lại, thản nhiên nói: “Lão Tam, Lão Tứ, đến hôm nay các ngươi vẫn chưa nhìn ra Di La Cung đã già mục rồi sao? Di La Cung mục nát đến mức ngay cả thầy cũng tuyệt vọng, vậy mà các ngươi vẫn tưởng có thể dựa vào Di La Cung để chinh phục tương lai. Ta với tư cách Thất công tử, không phải bị các ngươi ép tới cùng đường mới trở về quá khứ, mà là ta đánh bại các ngươi ở đây, rồi mới ung dung trở về quá khứ. Các ngươi...”
+Hắn thu ánh mắt lại, thản nhiên nói: “Lão Tam, Lão Tứ, đến hôm nay các ngươi vẫn chưa nhìn ra Di La Cung đã già mục rồi sao? Di La Cung mục nát đến mức ngay cả sư phụ cũng tuyệt vọng, vậy mà các ngươi vẫn tưởng có thể dựa vào Di La Cung để chinh phục tương lai. Ta với tư cách Thất công tử, không phải bị các ngươi ép tới cùng đường mới trở về quá khứ, mà là ta đánh bại các ngươi ở đây, rồi mới ung dung trở về quá khứ. Các ngươi...”
 
 Hắn gõ gõ mặt đất: “Đều bại tại nơi này!”
 
@@ -86,7 +86,7 @@ Tần Mục thản nhiên nói: “Đánh một trận ở đây, ngươi không
 
 “Đạo pháp thần thông của Di La Cung sẽ không tràn ra ngoài.”
 
-Tam công tử khống chế nhục thân Hạo Thiên Đế đi tới, chắp hai tay sau lưng: “Cho dù một đòn của ta có sức mạnh hủy diệt toàn bộ Nguyên giới, nó cũng sẽ không tiết ra ngoài nửa điểm. Lão Thất, đạo pháp thần thông của Di La Cung, ngươi chỉ mới học được chút da lông, còn chưa thật sự nắm giữ. Bản lĩnh của thầy không phải thứ các ngươi có thể với tới. Ngươi tự chui đầu vào lưới, không bằng hôm nay cứ đánh bại ngươi ở đây, đưa ngươi trở về quá khứ.”
+Tam công tử khống chế nhục thân Hạo Thiên Đế đi tới, chắp hai tay sau lưng: “Cho dù một đòn của ta có sức mạnh hủy diệt toàn bộ Nguyên giới, nó cũng sẽ không tiết ra ngoài nửa điểm. Lão Thất, đạo pháp thần thông của Di La Cung, ngươi chỉ mới học được chút da lông, còn chưa thật sự nắm giữ. Bản lĩnh của sư phụ không phải thứ các ngươi có thể với tới. Ngươi tự chui đầu vào lưới, không bằng hôm nay cứ đánh bại ngươi ở đây, đưa ngươi trở về quá khứ.”
 
 Tần Mục cười ha hả, liếc hai người, nói: “Hai ngươi, ai trước?”
 

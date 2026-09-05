@@ -46,7 +46,7 @@ Vũ Đế cười thành tiếng, lắc đầu nói: "Mục đệ đúng là ng�
 
 Tần Mục cười nói: "Anh rể cũng là người thật thà, chỉ là vụng miệng, khó biểu đạt tình cảm mà thôi."
 
-Long Kỳ Lân thầm khen một tiếng: "Vẫn là giáo chủ biết ăn nói. Trước mặt Huyền Đế thì gọi Vũ Đế là tẩu phu nhân, trước mặt Vũ Đế lại gọi Huyền Đế là anh rể, đều là giọng điệu của em trai ruột. Sau khi xem Hoạn Nhân Kinh của ta, bản lĩnh của ngài ấy càng ngày càng lợi hại, rất có xu thế trò giỏi hơn thầy rồi!"
+Long Kỳ Lân thầm khen một tiếng: "Vẫn là giáo chủ biết ăn nói. Trước mặt Huyền Đế thì gọi Vũ Đế là tẩu phu nhân, trước mặt Vũ Đế lại gọi Huyền Đế là anh rể, đều là giọng điệu của em trai ruột. Sau khi xem Hoạn Nhân Kinh của ta, bản lĩnh của ngài ấy càng ngày càng lợi hại, rất có xu thế đệ tử vượt sư phụ rồi!"
 
 "Không nhắc hắn nữa."
 
@@ -114,7 +114,7 @@ Vũ Đế ngẩn ra.
 
 "Vẫn sẽ có Thiên Minh, hoặc không gọi là Thiên Minh, có lẽ gọi là Địa Minh, U Minh gì đó. Sở dĩ Thiên Minh hình thành, nguyên nhân chủ yếu không nằm ở ta, mà ở cổ thần."
 
-Tần Mục sóng vai đi cùng nàng, khẽ nói: "Nếu cổ thần đối xử với sinh linh hậu thiên và bán thần tốt hơn một chút, vậy cũng sẽ không có Thiên Minh. Chính vì áp bức quá nặng, khiến sinh linh hậu thiên và bán thần không còn bao nhiêu đường sống, mới có Thiên Minh. Cho dù tương lai ta và chư vị cổ thần trừ bỏ Thập Thiên Tôn, nếu các vị vẫn hành xử như trước kia, tương lai vẫn sẽ có một Thiên Minh khác."
+Tần Mục sóng vai đi cùng nàng, khẽ nói: "Nếu cổ thần đối xử với sinh linh hậu thiên và bán thần tốt hơn một chút, vậy cũng sẽ không có Thiên Minh. Chính vì áp bức quá nặng, khiến sinh linh hậu thiên và bán thần không còn bao nhiêu đường sống, mới có Thiên Minh. Cho dù tương lai ta và chư vị cổ thần trừ khử Thập Thiên Tôn, nếu các vị vẫn hành xử như trước kia, tương lai vẫn sẽ có một Thiên Minh khác."
 
 Vũ Đế im lặng một lát, nói: "Cổ thần bây giờ đã tốt hơn trước rất nhiều, còn những bán thần trong Thiên Đình hiện nay chẳng khác gì cổ thần ngày trước, cũng bắt chúng sinh huyết tế. Thiên Minh chẳng qua là diệt trừ cổ thần rồi tự mình trở thành cổ thần mà thôi. Mục đệ, đệ nên nghĩ cho tương lai, phải làm sao mới không trở thành cổ thần vắt kiệt chúng sinh, ăn lông ở lỗ, hút máu người đời."
 

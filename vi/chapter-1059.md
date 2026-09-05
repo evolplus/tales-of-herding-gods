@@ -46,11 +46,11 @@ Cổ Hiểu và Đại Hồng lần lượt nhìn kim quan, ánh mắt sâu th�
 
 Tần Mục và La Tiêu đi tới, Long Kỳ Lân theo phía sau, còn Yên Nhi vẫn đứng trên xe xách đèn lồng.
 
-Đại Hồng mỉm cười nói: "Thiên Đế cổ thần tự xưng quang huy chính nghĩa, lợi dụng thê tử của Thái Đế là Cung Vân. Hắn hẳn đã hứa hẹn với Cung Vân rất nhiều chuyện, ví dụ hứa với nàng rằng tộc nhân của nàng có thể sống sót. Nhưng để duy trì hình tượng của mình, hắn chỉ có thể giết Cung Vân. Không chỉ phải giết Cung Vân, còn phải trừ bỏ tám vị cổ thần hộ tống thi thân Cung Vân vào nơi này."
+Đại Hồng mỉm cười nói: "Thiên Đế cổ thần tự xưng quang huy chính nghĩa, lợi dụng thê tử của Thái Đế là Cung Vân. Hắn hẳn đã hứa hẹn với Cung Vân rất nhiều chuyện, ví dụ hứa với nàng rằng tộc nhân của nàng có thể sống sót. Nhưng để duy trì hình tượng của mình, hắn chỉ có thể giết Cung Vân. Không chỉ phải giết Cung Vân, còn phải trừ khử tám vị cổ thần hộ tống thi thân Cung Vân vào nơi này."
 
-Hắn ngẩng đầu, ánh mắt rơi trên mặt Cổ Hiểu, lộ vẻ châm chọc: "Mà cách tốt nhất để trừ bỏ tám vị cổ thần này không nghi ngờ gì chính là khoáng mạch Thái Sơ. Thiên Đế vốn là một quả trứng trong khoáng mạch này, hắn hiểu rõ sự đáng sợ của khoáng mạch này. Sai tám vị cổ thần mang thi thân Cung Vân an táng ở đây, chính là mượn uy lực khoáng mạch để trừ bỏ tám kẻ biết chuyện này!"
+Hắn ngẩng đầu, ánh mắt rơi trên mặt Cổ Hiểu, lộ vẻ châm chọc: "Mà cách tốt nhất để trừ khử tám vị cổ thần này không nghi ngờ gì chính là khoáng mạch Thái Sơ. Thiên Đế vốn là một quả trứng trong khoáng mạch này, hắn hiểu rõ sự đáng sợ của khoáng mạch này. Sai tám vị cổ thần mang thi thân Cung Vân an táng ở đây, chính là mượn uy lực khoáng mạch để trừ khử tám kẻ biết chuyện này!"
 
-Cổ Hiểu ồ một tiếng, nhàn nhạt nói: "Điều ta nghe được lại là Thái Đế tàn bạo, lo tộc Tạo Vật Chủ sẽ bồi dưỡng ra một Thái Đế khác, thế là một lần trừ bỏ tất cả tộc nhân Cư Dư thị, lại giết hại tộc nhân của Cung Vân Thần Vương, thậm chí định diệt sạch tất cả Tạo Vật Chủ. Thê tử của ông ta là Cung Vân vì vậy đau lòng tuyệt vọng, thông gian với Thiên Đế, hơn nữa còn sinh được một đứa con."
+Cổ Hiểu ồ một tiếng, nhàn nhạt nói: "Điều ta nghe được lại là Thái Đế tàn bạo, lo tộc Tạo Vật Chủ sẽ bồi dưỡng ra một Thái Đế khác, thế là một lần trừ khử tất cả tộc nhân Cư Dư thị, lại giết hại tộc nhân của Cung Vân Thần Vương, thậm chí định diệt sạch tất cả Tạo Vật Chủ. Thê tử của ông ta là Cung Vân vì vậy đau lòng tuyệt vọng, thông gian với Thiên Đế, hơn nữa còn sinh được một đứa con."
 
 Đồng tử Đại Hồng co rút, nói: "Nhưng dù Thái Đế bị Cung Vân phản bội, dù bị nàng đánh vỡ Thái Sơ Nguyên Thạch giữa mi tâm, ông ta cũng chưa từng động đến nàng một sợi tóc. Vậy mà Thiên Đế lại phản bội Cung Vân, giết hại nàng!"
 
@@ -170,7 +170,7 @@ Kiếm của Cổ Hiểu không thể gọi là kiếm, mà là một loại vũ
 
 "Mấy năm nay ta vẫn luôn tìm kiếm tung tích của ngươi. Thái Đế không chết, lòng ta khó yên."
 
-Cổ Hiểu phong khinh vân đạm, song kiếm quang thật sự khủng bố, ép Đại Hồng phải xòe đôi cánh sau lưng, vỗ cánh bay lên. Hắn nhàn nhạt nói: "Để dẫn ngươi ra, ta có thể để lộ phương vị Tổ Đình, cũng có thể trò chuyện vui vẻ với Mục Thiên Tôn, còn có thể nhịn không tìm kiếm tung tích các Tạo Vật Chủ khác! Mục đích của ta là ở đây, ngay trước mặt Cung Vân sỉ nhục ngươi, trừ bỏ ngươi!"
+Cổ Hiểu phong khinh vân đạm, song kiếm quang thật sự khủng bố, ép Đại Hồng phải xòe đôi cánh sau lưng, vỗ cánh bay lên. Hắn nhàn nhạt nói: "Để dẫn ngươi ra, ta có thể để lộ phương vị Tổ Đình, cũng có thể trò chuyện vui vẻ với Mục Thiên Tôn, còn có thể nhịn không tìm kiếm tung tích các Tạo Vật Chủ khác! Mục đích của ta là ở đây, ngay trước mặt Cung Vân sỉ nhục ngươi, trừ khử ngươi!"
 
 "Ngươi thật sự cho rằng ngươi có thể thắng ta?"
 

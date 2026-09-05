@@ -124,7 +124,7 @@ Tần Mục tấm tắc lấy làm lạ. Đối với Bắc Đế Huyền Vũ, h
 
 Năm đó trước khi Diên Khang kiếp bùng nổ, từng có thần khí Ngũ Lôi Hồ từ trời giáng xuống Diên Khang. Ngũ Lôi Hồ ấy chính là bảo vật của Bắc Đế Huyền Vũ. Ngoài Ngũ Lôi Hồ còn có vũ khí của các cổ thần Tứ Đế khác.
 
-Tần Mục cứu sống Đế Dịch Nguyệt, Đế Dịch Nguyệt hóa giải trận thiên tượng đại kiếp ấy. Khi đó Tần Mục mới biết Đế Dịch Nguyệt từng bái cổ thần Tứ Đế làm thầy, có duyên sâu với cổ thần Tứ Đế.
+Tần Mục cứu sống Đế Dịch Nguyệt, Đế Dịch Nguyệt hóa giải trận thiên tượng đại kiếp ấy. Khi đó Tần Mục mới biết Đế Dịch Nguyệt từng bái cổ thần Tứ Đế làm sư phụ, có duyên sâu với cổ thần Tứ Đế.
 
 Trên Quỷ Thuyền, Tần Mục cũng từng trộm sức Bắc Đế Huyền Vũ, phá Quỷ Thuyền. Khi ấy hắn bị bắt, từ xa nhìn thấy Bắc Đế một lần.
 

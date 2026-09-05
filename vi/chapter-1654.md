@@ -72,7 +72,7 @@ Nguyên Mẫu phu nhân như có điều suy nghĩ. Lúc này, một chiếc lá
 
 Hỗn Độn Hải cuộn trào, sóng lớn cuồn cuộn. Gương mặt khổng lồ của Nhị công tử chậm rãi hiện lên từ trong biển, giọng nói truyền vào tai hai người:
 
-“Xem ra thầy nói không sai. Ông từng cảm khái rằng những bậc thành đạo như chúng ta chính là sâu mọt của vũ trụ. Chúng ta lén vượt sang vũ trụ sau, chiếm đoạt linh khí linh lực nơi đó, khiến vũ trụ nguyên sinh càng lúc càng nhỏ, sinh linh trí tuệ sinh ra cũng càng lúc càng ít, đến mức muốn xuất hiện một bậc có thể giải quyết đại kiếp Phá Diệt cũng càng khó. Kỷ thứ mười bảy không bị bậc thành đạo tiền sử xâm nhập, vậy mà sinh ra một nữ tử linh tuệ như ngươi.”
+“Xem ra sư phụ nói không sai. Ông từng cảm khái rằng những bậc thành đạo như chúng ta chính là sâu mọt của vũ trụ. Chúng ta lén vượt sang vũ trụ sau, chiếm đoạt linh khí linh lực nơi đó, khiến vũ trụ nguyên sinh càng lúc càng nhỏ, sinh linh trí tuệ sinh ra cũng càng lúc càng ít, đến mức muốn xuất hiện một bậc có thể giải quyết đại kiếp Phá Diệt cũng càng khó. Kỷ thứ mười bảy không bị bậc thành đạo tiền sử xâm nhập, vậy mà sinh ra một nữ tử linh tuệ như ngươi.”
 
 Gương mặt nàng dần dần hiện lên từ Hỗn Độn Hải, xuất hiện trên mặt biển cách đó không xa.
 
@@ -84,7 +84,7 @@ Lăng Thiên Tôn tò mò nói:
 
 “Ngươi tên gì? Vì sao lại bị trấn áp ở đây?”
 
-“Ta là Nhị công tử Di La Cung, tên đã không còn quan trọng. Ta tu hành thành tựu, đắc đạo Vô Cực Điện, vì vậy thầy gọi ta là Vô Cực. Năm xưa vì ta muốn hủy diệt cả vũ trụ, xóa sạch mọi nền văn minh, sau khi ta giết rất nhiều bậc thành đạo, bị thầy phát hiện... Là ngươi!”
+“Ta là Nhị công tử Di La Cung, tên đã không còn quan trọng. Ta tu hành thành tựu, đắc đạo Vô Cực Điện, vì vậy sư phụ gọi ta là Vô Cực. Năm xưa vì ta muốn hủy diệt cả vũ trụ, xóa sạch mọi nền văn minh, sau khi ta giết rất nhiều bậc thành đạo, bị sư phụ phát hiện... Là ngươi!”
 
 Nhị công tử Di La Cung đột nhiên chú ý đến dung mạo Lăng Thiên Tôn, thất thanh:
 

@@ -2,7 +2,7 @@
 
 Sắc mặt Linh Ngọc Thư âm tình bất định. Tần Mục đã nói trúng nỗi lo của hắn.
 
-Cố Li Noãn là thầy thuở nhỏ của Hoàng thái tử. Hoàng thái tử lớn hơn hắn, lại chiếm vị trí Thái tử. Nếu nói đãi ngộ giữa hoàng tử và thứ dân là cách biệt trời vực, một người trên trời một kẻ dưới đất, vậy đãi ngộ giữa Thái tử và hoàng tử cũng là một người trên trời một kẻ dưới đất.
+Cố Li Noãn là sư trưởng thuở nhỏ của Hoàng thái tử. Hoàng thái tử lớn hơn hắn, lại chiếm vị trí Thái tử. Nếu nói đãi ngộ giữa hoàng tử và thứ dân là cách biệt trời vực, một người trên trời một kẻ dưới đất, vậy đãi ngộ giữa Thái tử và hoàng tử cũng là một người trên trời một kẻ dưới đất.
 
 Cố Li Noãn sẽ không nể mặt hắn. Không những không nể mặt, ông ta còn sẽ gây khó dễ cho hắn.
 

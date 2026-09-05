@@ -24,7 +24,7 @@ Thúc Quân cười lạnh nói: "Thánh Anh, ngươi thế này mà cũng gọi
 
 Trên không Nguyên Mộc, Thần khí Ngự Thiên Tôn thu hồi ánh mắt, chậm rãi nhắm mắt. Còn người đất trong Thiên Cung Nguyên Mộc thì trầm ngâm một lát, đi tới đi lui, lẩm bẩm: "Tần Thiên Tôn mạnh hơn năm xưa, nhưng còn cách cảnh giới Thiên Đình rất xa. Thời đại Khai Hoàng của hắn không chống đỡ nổi cảnh giới Thiên Đình này. Nhưng kiếm pháp của hắn quả thật khủng bố. Còn Mục Thiên Tôn nữa, đúng là biết gây chuyện, đi tới đâu gây tới đó!"
 
-"Nhưng ta cũng không ngờ Địa Mẫu thế mà còn có thể nổi sóng gió! Ghê gớm, thật sự ghê gớm. Muốn trừ bỏ Địa Mẫu, nhất định phải trừ bỏ Thiên Công và Thổ Bá trước, phế bỏ pháp thuật phục sinh của Mục Thiên Tôn..."
+"Nhưng ta cũng không ngờ Địa Mẫu thế mà còn có thể nổi sóng gió! Ghê gớm, thật sự ghê gớm. Muốn trừ khử Địa Mẫu, nhất định phải trừ khử Thiên Công và Thổ Bá trước, phế bỏ pháp thuật phục sinh của Mục Thiên Tôn..."
 
 Trong Thiên Long bảo liễn, Tần Mục lập tức thi pháp, niệm pháp chú, thôi thúc thần thông, chiêu hồn cho Vân Thiên Tôn. Một lát sau, hắn dừng lại, hơi nhíu mày.
 

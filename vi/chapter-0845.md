@@ -20,7 +20,7 @@ Nội tình trong đó rất đáng để nghiền ngẫm.
 
 Tần Mục gặm quả đào bên miệng chỉ còn hạt, ánh mắt lóe lên, lộ nụ cười đầy hứng thú, thầm nghĩ:
 
-"Mà trong Thủ Tàng Các của Thiên Đình có ngọc giản phù văn của Nam Đế Chu Tước, hiển nhiên đã sớm có ý thay thế Nam Đế Chu Tước. Nam Đế Chu Tước đã bồi dưỡng ra một người thay thế mình từ thời đại Thượng Hoàng, trừ bỏ Xích Đế tiền nhiệm, bồi dưỡng nàng thành Xích Đế đời mới. Khi Thiên Đình muốn giết nàng, nàng có thể giả chết thoát thân, sau đó để Xích Đế Tề Hạ Du kế thừa thế lực của nàng. Nàng chẳng tổn thất gì, lại từ sáng chuyển vào tối."
+"Mà trong Thủ Tàng Các của Thiên Đình có ngọc giản phù văn của Nam Đế Chu Tước, hiển nhiên đã sớm có ý thay thế Nam Đế Chu Tước. Nam Đế Chu Tước đã bồi dưỡng ra một người thay thế mình từ thời đại Thượng Hoàng, trừ khử Xích Đế tiền nhiệm, bồi dưỡng nàng thành Xích Đế đời mới. Khi Thiên Đình muốn giết nàng, nàng có thể giả chết thoát thân, sau đó để Xích Đế Tề Hạ Du kế thừa thế lực của nàng. Nàng chẳng tổn thất gì, lại từ sáng chuyển vào tối."
 
 Tần Mục chớp mắt. Chu Tước tỷ tỷ mặc áo đỏ thẫm đứng ở mũi lâu thuyền trên Thiên Hà kia, vậy mà cũng giảo hoạt như vậy, hơi ngoài dự liệu của hắn.
 

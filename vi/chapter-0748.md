@@ -28,7 +28,7 @@ Mắt Chu Tước Nhi sáng lên:
 
 Tần Mục chớp mắt, thầm nghĩ:
 
-"Lối suy nghĩ của vị tỷ tỷ này dường như hơi khác ta. Ta thì cảm thấy sở dĩ Hạo Thiên Tôn muốn trừ bỏ Ngự Thiên Tôn là vì danh vọng của Ngự Thiên Tôn quá cao. Trừ bỏ Ngự Thiên Tôn, hắn có thể trở thành lãnh tụ của bán thần và hậu thiên bộ tộc. Đợi đến khi bán thần và hậu thiên bộ tộc phát triển, hắn sẽ có hy vọng hỏi đỉnh vị trí cao hơn."
+"Lối suy nghĩ của vị tỷ tỷ này dường như hơi khác ta. Ta thì cảm thấy sở dĩ Hạo Thiên Tôn muốn trừ khử Ngự Thiên Tôn là vì danh vọng của Ngự Thiên Tôn quá cao. Trừ khử Ngự Thiên Tôn, hắn có thể trở thành lãnh tụ của bán thần và hậu thiên bộ tộc. Đợi đến khi bán thần và hậu thiên bộ tộc phát triển, hắn sẽ có hy vọng hỏi đỉnh vị trí cao hơn."
 
 Chu Tước Nhi hiển nhiên không nghĩ theo hướng này, vẫn hưng phấn vì chuyện tranh đấu hậu cung của Thiên Đế, hoàn toàn không giống những gì Tần Mục và mọi người đang nghĩ.
 

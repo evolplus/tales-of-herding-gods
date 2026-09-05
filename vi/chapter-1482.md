@@ -94,7 +94,7 @@ Mà trong Đạo quả có một nữ tử, thân thể trần trụi, đã ch�
 
 “Đáng tiếc, đáng tiếc.”
 
-Lang Hiên Thần Hoàng lắc đầu thở dài: “Tên Mục Thiên Tôn này không biết thương hương tiếc ngọc, chỉ một mực tàn nhẫn vùi hoa dập liễu. Lần này không thể dung túng hắn nữa, nhất định phải trừ bỏ hắn mới được.”
+Lang Hiên Thần Hoàng lắc đầu thở dài: “Tên Mục Thiên Tôn này không biết thương hương tiếc ngọc, chỉ một mực tàn nhẫn vùi hoa dập liễu. Lần này không thể dung túng hắn nữa, nhất định phải trừ khử hắn mới được.”
 
 Các Thiên Tôn khác nhao nhao gật đầu tán thành.
 

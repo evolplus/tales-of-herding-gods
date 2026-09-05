@@ -70,7 +70,7 @@ Có Quốc sư Diên Khang ở bên, nàng liền nguy hiểm. Chỉ cần hơi 
 
 Ở khoảng cách gần như vậy, nếu Quốc sư Diên Khang ra tay, nàng tuyệt đối không đỡ nổi!
 
-"Quốc sư Diên Khang đi theo cũng tốt, để ta có thêm cơ hội trừ bỏ hắn! Ta còn cần tứ linh châu. Lấy được tứ linh châu, độ khó trừ bỏ Quốc sư sẽ giảm rất nhiều..."
+"Quốc sư Diên Khang đi theo cũng tốt, để ta có thêm cơ hội trừ khử hắn! Ta còn cần tứ linh châu. Lấy được tứ linh châu, độ khó trừ khử Quốc sư sẽ giảm rất nhiều..."
 
 Cuối cùng, các đại thế gia Tây Thổ bình định Chân Thiên Cung, cao thủ Ngọc gia kẻ bị giết, kẻ bị bắt. Các tộc đề cử Hùng Tích Vũ một lần nữa trở thành cung chủ Chân Thiên Cung và Nãi Quỳ. Hùng Tích Vũ dắt tay Hùng Kỳ Nhi, nhận sự bái lạy của các đại thế gia.
 

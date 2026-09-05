@@ -4,7 +4,7 @@
 
 Tứ công tử Di La Cung dừng gảy đàn, ngẩng đầu nhìn thân ảnh dưới cây Thế Giới Thụ kia, lạnh nhạt nói:
 
-“Thầy không có đây, nhưng Di La Cung cũng chưa đến lượt ngươi càn rỡ. Trong Di La Cung này, ngươi xếp thứ bảy, không phải thứ nhất.”
+“Sư phụ không có đây, nhưng Di La Cung cũng chưa đến lượt ngươi càn rỡ. Trong Di La Cung này, ngươi xếp thứ bảy, không phải thứ nhất.”
 
 Thân ảnh dưới Thế Giới Thụ bước tới gần, dần dần rõ ràng. Cho dù đại kiếp Phá Diệt hủy diệt tất cả, cũng không thể lay động thân ảnh người dưới gốc cây, thậm chí không thể dao động cả khí tức của hắn.
 
@@ -14,11 +14,11 @@ Chỉ thấy thân hình hắn khôi ngô thon dài, nhưng hai bên tóc mai đ
 
 Hắn giống Tần Mục như đúc, chỉ là trưởng thành hơn, vững vàng hơn, hiển nhiên sau khi trở về vũ trụ quá khứ đã trải qua rất nhiều chuyện.
 
-“Một đạo của thầy truyền cho bảy người. Bất kể là ai trong chúng ta lĩnh ngộ ra điều gì, đều khác nhau.”
+“Một đạo của sư phụ truyền cho bảy người. Bất kể là ai trong chúng ta lĩnh ngộ ra điều gì, đều khác nhau.”
 
 Tần Mục của vũ trụ quá khứ đảo mắt nhìn quanh, quét qua gương mặt từng bậc thành đạo, quan sát Đạo quả của họ, nói:
 
-“Chúng ta đều có thành tựu riêng. Thứ hạng chỉ dựa theo trình tự trước sau khi bái nhập môn hạ của thầy, chứ không phải thực lực. Thầy dẫn vào cửa, tu hành ở mỗi người. Thật ra từ rất lâu trước đây, ta đã siêu thoát khỏi đạo lý thầy truyền dạy. Lão Tam, Lão Tứ, ta đã tu thành thứ tốt hơn.”
+“Chúng ta đều có thành tựu riêng. Thứ hạng chỉ dựa theo trình tự trước sau khi bái nhập môn hạ của sư phụ, chứ không phải thực lực. Sư phụ dẫn vào cửa, tu hành ở mỗi người. Thật ra từ rất lâu trước đây, ta đã siêu thoát khỏi đạo lý sư phụ truyền dạy. Lão Tam, Lão Tứ, ta đã tu thành thứ tốt hơn.”
 
 Tứ công tử Di La Cung cúi đầu gảy đàn, khóe miệng lộ một nụ cười. Một tòa Bảo Điện từ nơi sâu trong Di La Cung lao nhanh tới, xông phá từng tầng Hỗn Độn, vượt qua kiếp Phá Diệt của mười lăm kỷ vũ trụ, xuất hiện sau lưng hắn.
 
@@ -46,7 +46,7 @@ Tứ công tử Di La Cung cúi đầu tiếp tục gảy đàn. Tiếng đàn �
 
 Tam công tử chắp hai tay sau lưng, ung dung nói:
 
-“Lão Thất, nể mặt thầy, chúng ta sẽ không làm khó ngươi. Hiện giờ Thái Thượng không ra, Vô Cực bị trấn áp, Vô Tông, Trạm Tịch không rõ tung tích. Tất cả bậc thành đạo của Di La Cung đều sẽ nghe theo hiệu lệnh của chúng ta, ngươi không có bất cứ phần thắng nào.”
+“Lão Thất, nể mặt sư phụ, chúng ta sẽ không làm khó ngươi. Hiện giờ Thái Thượng không ra, Vô Cực bị trấn áp, Vô Tông, Trạm Tịch không rõ tung tích. Tất cả bậc thành đạo của Di La Cung đều sẽ nghe theo hiệu lệnh của chúng ta, ngươi không có bất cứ phần thắng nào.”
 
 Tần Mục thở dài, ngồi xuống. Hỗn Độn Điện hiện ra từ Hỗn Độn Trường Hà:
 
@@ -66,7 +66,7 @@ Tứ công tử kinh ngạc ngẩng đầu. Tiếng đàn dưới tay hắn đ�
 
 Bước chân Tam công tử hạ xuống, từng bước áp sát. Hắn lạnh nhạt nói:
 
-“Cho dù là thầy đối mặt với chúng ta, cũng không dám khinh suất như vậy! Đứng dậy!”
+“Cho dù là sư phụ đối mặt với chúng ta, cũng không dám khinh suất như vậy! Đứng dậy!”
 
 Tần Mục vẫn ngồi ngay ngắn bất động, không hề đứng dậy.
 
@@ -88,7 +88,7 @@ Con mắt dọc giữa mi tâm Tần Mục chậm rãi mở ra. Trong khe mắt 
 
 Áo quần Tam công tử bay phần phật. Hắn thu tay xoay người, trầm giọng:
 
-“Lão Thất, nể mặt thầy, tha cho ngươi một lần, đừng có lần sau! Chúng ta đi!”
+“Lão Thất, nể mặt sư phụ, tha cho ngươi một lần, đừng có lần sau! Chúng ta đi!”
 
 Hắn phất tay áo bỏ đi. Rất nhiều bậc thành đạo của Ngọc Kinh Thành chần chừ một chút, rồi rối rít xoay người đi theo hắn.
 
@@ -196,7 +196,7 @@ Nơi sâu nhất của Quy Khư Đại Uyên, Hỗn Độn Hải cuộn trào. G
 
 Nàng đột nhiên cười khanh khách:
 
-“Hóa ra ngươi cũng như Lão Thất, đều đến từ Kỷ thứ mười bảy trong tương lai. Khó trách thầy mỗi lần nhắc đến ngươi đều vô cùng tán thưởng.”
+“Hóa ra ngươi cũng như Lão Thất, đều đến từ Kỷ thứ mười bảy trong tương lai. Khó trách sư phụ mỗi lần nhắc đến ngươi đều vô cùng tán thưởng.”
 
 Sắc mặt Nguyên Mẫu phu nhân kinh nghi bất định. Nàng nhìn Lăng Thiên Tôn, lại nhìn Nhị công tử, không hiểu vị Nhị công tử ấy đang nói gì.
 
@@ -206,7 +206,7 @@ Nhị công tử Vô Cực chớp đôi mắt khổng lồ. Trong ánh mắt nà
 
 Nàng và vị Nhị công tử này là cùng một hạng người!
 
-“Nhưng ta sẽ không làm vậy. Ta bị thầy trấn áp ở đây, sao lại đi giúp Di La Cung?”
+“Nhưng ta sẽ không làm vậy. Ta bị sư phụ trấn áp ở đây, sao lại đi giúp Di La Cung?”
 
 Nhị công tử Di La Cung đột nhiên cười lớn. Một sợi tóc trắng cuốn lấy Lăng Thiên Tôn, xoạt một tiếng đưa Lăng Thiên Tôn về phía một cây song liên cùng cuống trong Hỗn Độn Hải!
 

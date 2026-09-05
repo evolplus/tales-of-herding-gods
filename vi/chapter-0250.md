@@ -80,7 +80,7 @@ Tần Mục nói: "Vậy chúng ta nói cùng một chuyện. Ta từng gặp m�
 
 Tăng nhân kia nổi giận nói: "Ta nói với ngươi không phải chuyện này! Ta giảng giáo nghĩa với ngươi! Đại Lôi Âm Tự ta có Phật kinh muôn vàn, mỗi một bộ kinh điển đều đủ truyền đời, dạy người hướng thiện!"
 
-Tần Mục kinh ngạc nói: "Phật môn của mình còn tàng ô nạp cấu, chưa làm sạch, hòa thượng trong chùa còn chưa hướng thiện, lấy gì dạy người hướng thiện? Kẻ ngu lại thích làm thầy người, trong khi bản thân lại làm không được. Thôi, ngươi nói giáo nghĩa, ta nói giáo nghĩa với ngươi. Đạo của thánh nhân không khác gì cái dùng hằng ngày của trăm họ. Phật pháp của ngươi, trăm họ dùng được trong sinh hoạt hằng ngày không? Nếu không dùng được, chỉ có thể ghi trong sách, cần nó làm gì? Ngay cả tác dụng cũng không có, chẳng bằng đốt đi."
+Tần Mục kinh ngạc nói: "Phật môn của mình còn tàng ô nạp cấu, chưa làm sạch, hòa thượng trong chùa còn chưa hướng thiện, lấy gì dạy người hướng thiện? Kẻ ngu lại thích làm sư phụ người, trong khi bản thân lại làm không được. Thôi, ngươi nói giáo nghĩa, ta nói giáo nghĩa với ngươi. Đạo của thánh nhân không khác gì cái dùng hằng ngày của trăm họ. Phật pháp của ngươi, trăm họ dùng được trong sinh hoạt hằng ngày không? Nếu không dùng được, chỉ có thể ghi trong sách, cần nó làm gì? Ngay cả tác dụng cũng không có, chẳng bằng đốt đi."
 
 "Ma đầu nhà ngươi!"
 

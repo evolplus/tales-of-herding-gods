@@ -64,7 +64,7 @@ Trên đời này, người thật sự khiến hắn kiêng dè không nhiều,
 
 Trước mặt Ngự Thiên Tôn, hắn luôn cảm thấy mình thấp hơn một đầu, luôn cảm thấy mình không bằng Ngự Thiên Tôn. Dù hắn cũng là người thiên tư trác tuyệt, nhưng mỗi khi nhìn thấy Ngự Thiên Tôn, trong lòng hắn luôn không tự chủ được sinh ra một tia tự ti.
 
-Vì vậy, hắn nhất định phải giết ông ấy, nhất định phải trừ bỏ Ngự Thiên Tôn, trừ bỏ vị thần trong lòng mình!
+Vì vậy, hắn nhất định phải giết ông ấy, nhất định phải trừ khử Ngự Thiên Tôn, trừ bỏ vị thần trong lòng mình!
 
 Mà nay, vị thần đè ép hắn đến không thở nổi này lại muốn trở về sao?
 

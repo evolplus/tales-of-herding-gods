@@ -44,7 +44,7 @@ Thiên Đình để Đạo môn diễn toán Thiên Đạo, vẽ đo kết cấu
 
 Trong lòng hắn sinh ra một cảm giác không lành:
 
-"Thay vào đó! Thiên Công nguy hiểm rồi! Sau khi trừ bỏ Thiên Công, Thiên Đình muốn tái tạo một Thiên Công!"
+"Thay vào đó! Thiên Công nguy hiểm rồi! Sau khi trừ khử Thiên Công, Thiên Đình muốn tái tạo một Thiên Công!"
 
 "Đạo môn Diên Khang các ngươi tuy nói không nhập lưu, nhưng dù sao cũng là một nhánh nho nhỏ của Đạo môn thật sự."
 

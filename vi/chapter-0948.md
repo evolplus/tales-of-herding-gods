@@ -60,9 +60,9 @@ Dù vậy, họ cũng không để lộ tuyệt học thật sự, mà muốn é
 
 Thân phận của ai bại lộ trước, người đó sẽ chết trước!
 
-Dù sao Đế hậu nương nương và Nguyên Mẫu phu nhân đều là cổ thần, trong Thiên Minh cũng khét tiếng như Thiên Đế cổ thần, chắc chắn sẽ bị các Thiên Tôn khác của Thiên Minh trừ bỏ.
+Dù sao Đế hậu nương nương và Nguyên Mẫu phu nhân đều là cổ thần, trong Thiên Minh cũng khét tiếng như Thiên Đế cổ thần, chắc chắn sẽ bị các Thiên Tôn khác của Thiên Minh trừ khử.
 
-Mục đích ban đầu khi Thiên Minh thành lập là để mọi người có quyền sống sót, nhưng tới trung kỳ thời Long Hán, sau khi Vân Thiên Tôn hấp thu Hạo Thiên Tôn và những người khác gia nhập, mục đích của Thiên Minh đã là trừ bỏ cổ thần, đoạt lấy quyền thống trị.
+Mục đích ban đầu khi Thiên Minh thành lập là để mọi người có quyền sống sót, nhưng tới trung kỳ thời Long Hán, sau khi Vân Thiên Tôn hấp thu Hạo Thiên Tôn và những người khác gia nhập, mục đích của Thiên Minh đã là trừ khử cổ thần, đoạt lấy quyền thống trị.
 
 Vì thế cổ thần ẩn nấp trong Thiên Minh tuyệt đối không được bại lộ thân phận.
 

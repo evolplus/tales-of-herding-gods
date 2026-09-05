@@ -142,13 +142,13 @@ Khi kiếp nạn bùng nổ, Âm Thiên Tử thi pháp, trong nháy mắt đoạ
 
 Những người này vẫn giữ tư thái khi còn sống, như thể vẫn đang sống ở đây.
 
-Sơ Tổ lặng lẽ đi trong đám đông. Trước mắt ông dường như vẫn là Ngọc Minh Cung năm xưa, bạn học còn trẻ, rất nhiều sinh mệnh tươi sống nhảy nhót bên cạnh ông. Bên tai ông cũng là tiếng cười nói vui vẻ của bạn học và các thầy năm ấy.
+Sơ Tổ lặng lẽ đi trong đám đông. Trước mắt ông dường như vẫn là Ngọc Minh Cung năm xưa, bạn học còn trẻ, rất nhiều sinh mệnh tươi sống nhảy nhót bên cạnh ông. Bên tai ông cũng là tiếng cười nói vui vẻ của bạn học và các tiên sinh năm ấy.
 
 Ông dừng bước, lặng lẽ đứng đó. Âm Thiên Tử thi pháp giáng kiếp, tất cả mọi người đều chết, chỉ có ông trốn thoát.
 
 Nơi này đã trở thành nỗi đau cả đời ông.
 
-“Bạn học, các thầy, lần này, ta sẽ không làm đào binh nữa!”
+“Bạn học, các tiên sinh, lần này, ta sẽ không làm đào binh nữa!”
 
 Ông cung cung kính kính bái lạy những cố nhân này. Khi lại đứng dậy, đạo tâm của ông đã viên mãn, trong suốt như ngọc.
 

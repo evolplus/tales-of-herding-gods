@@ -12,7 +12,7 @@ Phược Nhật La động dung, vội hai tay nhận lấy, quan sát tỉ mỉ
 
 Hắn quả thật đã thèm muốn Sinh Tử Bộ từ lâu. Sinh Tử Bộ là bảo vật của Thiên Đình và U Đô. Nói chính xác thì Sinh Tử Bộ của Thiên Đình đều mô phỏng U Đô, nhưng Sinh Tử Bộ của U Đô công dụng không nhiều, còn Sinh Tử Bộ của Thiên Đình thì có rất nhiều chức năng, cũng vô cùng lợi hại!
 
-Sinh Tử Bộ của Thiên Đình do Hắc Đế Minh Đô luyện ra. Công pháp thần thông của Minh Đô thoát thai từ U Đô, nhưng trò giỏi hơn thầy.
+Sinh Tử Bộ của Thiên Đình do Hắc Đế Minh Đô luyện ra. Công pháp thần thông của Minh Đô thoát thai từ U Đô, nhưng đệ tử vượt sư phụ.
 
 Phược Nhật La dùng Sinh Tử Bộ soi khắp nơi. Chỉ thấy Sinh Tử Bộ dù soi tới ai, trên giấy liền hiện ra bóng dáng người đó, sau đó hiện ra tên tương ứng!
 

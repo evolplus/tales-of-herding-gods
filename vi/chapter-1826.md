@@ -10,7 +10,7 @@ Thái Thượng nói: "Nếu đạo hữu và Khai Thiên chúng còn ở lại 
 
 Thái Dịch nói: "Đại công tử vì chuyện Chủ nhân Di La Cung giết Thiên Đô năm xưa mà lòng còn áy náy, nên muốn bù đắp cho ta và Khai Thiên chúng?"
 
-Công tử Thái Thượng lắc đầu: "Nếu năm xưa thầy không giết Thiên Đô, Khai Thiên chúng vẫn sẽ biến thành Khai Thiên chúng, cũng không vì vậy mà thay đổi. Khai Thiên chúng của Thiên Đô thành có sức mạnh khai thiên lập địa, nhưng không tiết chế, lạm dụng sức mạnh này. So ra, Di La Cung càng có trật tự hơn, tai hại nhỏ hơn."
+Công tử Thái Thượng lắc đầu: "Nếu năm xưa sư phụ không giết Thiên Đô, Khai Thiên chúng vẫn sẽ biến thành Khai Thiên chúng, cũng không vì vậy mà thay đổi. Khai Thiên chúng của Thiên Đô thành có sức mạnh khai thiên lập địa, nhưng không tiết chế, lạm dụng sức mạnh này. So ra, Di La Cung càng có trật tự hơn, tai hại nhỏ hơn."
 
 "Nói bậy!" Trong từng tấm bia đá phương tiêm, khuôn mặt của Khai Thiên chúng hiện lên, nhao nhao giận dữ quát mắng lời công tử Thái Thượng thối không ngửi nổi.
 
@@ -136,7 +136,7 @@ Qua rất lâu, Tiều Phu Thánh Nhân lạnh nhạt nói một câu: "Về r�
 
 Bàn tay Tiều Phu Thánh Nhân run lên, nước trong chén suýt nữa đổ ra. Ông làm như chẳng quan tâm, nói: "Vừa về đã đi à?"
 
-Tần Mục không đáp, nhìn quanh bốn phía. Chỉ thấy nơi này vẫn giữ phong cách kiến trúc ba tỷ năm trăm triệu năm trước. Hắn lắc đầu nói: "Vì sao thầy ở nơi này? Thầy có công lao rất lớn với Diên Khang. Nếu tới Thiên Đình, chẳng phải tốt hơn sao? Hơn nữa còn có cố hữu ở đó, rất náo nhiệt. Hà tất thanh bần như vậy?"
+Tần Mục không đáp, nhìn quanh bốn phía. Chỉ thấy nơi này vẫn giữ phong cách kiến trúc ba tỷ năm trăm triệu năm trước. Hắn lắc đầu nói: "Vì sao sư phụ ở nơi này? Sư phụ có công lao rất lớn với Diên Khang. Nếu tới Thiên Đình, chẳng phải tốt hơn sao? Hơn nữa còn có cố hữu ở đó, rất náo nhiệt. Hà tất thanh bần như vậy?"
 
 Tiều Phu Thánh Nhân uống trà, nhàn nhạt nói: "Chí thánh vô danh. Cảnh giới của ta, con không hiểu."
 
@@ -158,7 +158,7 @@ Tần Mục vươn tay muốn sờ cái đầu như bồ công anh sau khi biế
 
 Hắc Hổ Thần lấy mũ tới. Đây là kiểu dáng thời đại mới. Tiều Phu Thánh Nhân vốn không vui đội mũ, nhưng sợ Tần Mục sờ đầu mình, đành đội lên trước, nói: "Người bây giờ cũng có nhiều ý tưởng hơn chúng ta năm xưa. Chỉ là không có ý thức ưu hoạn. Ở cùng bọn họ ta không thoải mái. Bọn họ luôn cảm thấy ta lải nhải, nói ta lo bò trắng răng, nói ta luôn lo lắng những nguy hiểm không đâu. Ta không ở chung được với đám người trẻ tuổi ấy."
 
-Tần Mục mỉm cười, nghe ông lải nhải nói những điều không hay về lớp trẻ thời đại mới, trong lòng có chút thương cảm: "Tâm thái của thầy đại khái thật sự đã già rồi..."
+Tần Mục mỉm cười, nghe ông lải nhải nói những điều không hay về lớp trẻ thời đại mới, trong lòng có chút thương cảm: "Tâm thái của sư phụ đại khái thật sự đã già rồi..."
 
 Tiều Phu Thánh Nhân nói rất nhiều. Thức ăn trên bàn đá cũng dần vơi đi. Bọn họ đặt bát đũa xuống. Tiều Phu Thánh Nhân đột nhiên nói: "Lần này con đi bao lâu?"
 
@@ -166,13 +166,13 @@ Tần Mục mỉm cười nói: "Không biết. Có lẽ chân trước con vừ
 
 Tiều Phu Thánh Nhân trầm mặc.
 
-Tần Mục xốc lại tinh thần, cười nói: "Ý thức ưu hoạn của thầy sẽ có chỗ dùng. Vô Ưu Hương chỉ là một đầm nước chết, sớm muộn sẽ chậm rãi chết đi. Sẽ có nguy hiểm mới xuất hiện. Khi đó thầy hẳn sẽ rời núi, thi triển hoài bão. Lão binh sẽ không chết, bọn họ chỉ ở thời bình cất chiến phủ và binh khí vào góc tường để gỉ sét, người đời chỉ tạm thời lựa chọn quên họ. Nhưng khi chiến tranh trở lại, người đời sẽ lại nhớ tới họ, còn họ cũng sẽ mài lại chiến phủ và binh khí, một lần nữa bước lên chiến trường."
+Tần Mục xốc lại tinh thần, cười nói: "Ý thức ưu hoạn của sư phụ sẽ có chỗ dùng. Vô Ưu Hương chỉ là một đầm nước chết, sớm muộn sẽ chậm rãi chết đi. Sẽ có nguy hiểm mới xuất hiện. Khi đó sư phụ hẳn sẽ rời núi, thi triển hoài bão. Lão binh sẽ không chết, bọn họ chỉ ở thời bình cất chiến phủ và binh khí vào góc tường để gỉ sét, người đời chỉ tạm thời lựa chọn quên họ. Nhưng khi chiến tranh trở lại, người đời sẽ lại nhớ tới họ, còn họ cũng sẽ mài lại chiến phủ và binh khí, một lần nữa bước lên chiến trường."
 
-Hắn đứng dậy: "Thầy, thầy sẽ có chỗ dùng võ."
+Hắn đứng dậy: "Sư phụ, sư phụ sẽ có chỗ dùng võ."
 
 Tiều Phu Thánh Nhân đứng dậy nhìn hắn, nói: "Khi nào trở về?"
 
-Tần Mục trầm mặc một lát, đột nhiên nói: "Thầy còn nhớ không gian hỗn loạn không?"
+Tần Mục trầm mặc một lát, đột nhiên nói: "Sư phụ còn nhớ không gian hỗn loạn không?"
 
 Tiều Phu Thánh Nhân nghĩ một chút, nói: "Không gian hỗn loạn ở Huyền Không giới năm xưa?"
 

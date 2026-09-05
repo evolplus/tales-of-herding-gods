@@ -1,4 +1,4 @@
-# Chương 1177: Thầy trò gặp nhau
+# Chương 1177: Sư đồ gặp nhau
 
 Thật ra, trong lòng Tần Mục vẫn luôn chưa từng trách Vũ Đấu Thiên Sư, cũng chưa từng trách Diêm Vương và những người khác.
 
@@ -64,7 +64,7 @@ Tần Mục thu kiếm, cất bước định rời đi.
 
 Sau lưng hắn, giọng Tiều Phu Thánh Nhân truyền đến: “Ngươi nhìn chưa đến thời gian một nén hương đã chặt đổ cây của ta.”
 
-Tần Mục xoay người lại, cười nói: “Lão sư, con học làm người theo thầy, chứ không phải học đạo pháp của thầy. Thứ của thầy, con đã không còn để vào mắt nữa, con lĩnh ngộ ra thứ tốt hơn rồi!”
+Tần Mục xoay người lại, cười nói: “Lão sư, con học ở người là cách làm người, chứ không phải học đạo pháp của người. Thứ của người, con đã không còn để vào mắt nữa, con lĩnh ngộ ra thứ tốt hơn rồi!”
 
 “Ngươi đứng lại!”
 

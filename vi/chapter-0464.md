@@ -26,7 +26,7 @@ Liễu Như Nhân chần chừ một chút, nhìn Liễu Chân Khanh trên cỗ 
 
 Tiểu cô nương này đang nghiêm túc liếm kẹo hồ lô, đột nhiên ngẩng đầu cười ngọt ngào: "Đúng như Tần giáo chủ nói, chỉ là phân thân của một chân thần mà thôi, giết chết không khó. Mà chân thần muốn hạ giới thì quá khó. Nương, con nhận kẹo hồ lô của Kỳ Nhi muội muội rồi, thế nào cũng phải làm chút việc cho Hùng gia. Hơn nữa..."
 
-Nàng cười càng ngọt: "Ai có thể bảo đảm Ngọc gia sẽ không tính sổ sau? Tâm nhãn của các nàng nhỏ lắm. Trừ bỏ Ngọc gia, hai mẹ con Hùng gia thống trị Chân Thiên Cung còn phải trông cậy vào Liễu gia ta. Lợi lớn hơn nguy, cớ gì không làm?"
+Nàng cười càng ngọt: "Ai có thể bảo đảm Ngọc gia sẽ không tính sổ sau? Tâm nhãn của các nàng nhỏ lắm. Diệt trừ Ngọc gia, hai mẹ con Hùng gia thống trị Chân Thiên Cung còn phải trông cậy vào Liễu gia ta. Lợi lớn hơn nguy, cớ gì không làm?"
 
 Tần Mục yên lòng.
 
@@ -86,7 +86,7 @@ Ba nữ tử Chân Thiên Cung thôi động ba đại linh bảo còn lại, h�
 
 Dấu vết mộc hóa trên người nam tử quấn khăn nhanh chóng bong đi. Hắn khẽ mỉm cười, phi kiếm sau lưng vào vỏ, thân ảnh biến mất trong Chân Thiên Cung.
 
-"Trừ bỏ các nàng." Giọng hắn truyền đến.
+"Trừ khử bọn chúng." Giọng hắn truyền đến.
 
 Dấu vết mộc hóa trên người các đệ tử Chân Thiên Cung đứng trên đầu từng sơn phong cự nhân bong đi. Uy lực Thanh Long Châu bị áp chế, các nàng cũng thoát thân.
 

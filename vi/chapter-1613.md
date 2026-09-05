@@ -104,7 +104,7 @@ Ngọc Thần Tử đúng lúc run bắn. Tâm trạng Hạo Thiên Tôn hiển 
 
 Ngọc Thần Tử vội cao giọng kêu oan: "Bệ hạ chớ mắc phải quỷ kế của lão tặc Mục!"
 
-Hạo Thiên Tôn ồ một tiếng, cười nói: "Ý ngươi là Mục Thiên Tôn muốn mượn tay ta giết ngươi? Ngươi có tài đức gì? Vì sao hắn không trực tiếp trừ bỏ ngươi, ngược lại còn phải mượn tay ta trừ ngươi?"
+Hạo Thiên Tôn ồ một tiếng, cười nói: "Ý ngươi là Mục Thiên Tôn muốn mượn tay ta giết ngươi? Ngươi có tài đức gì? Vì sao hắn không trực tiếp trừ khử ngươi, ngược lại còn phải mượn tay ta trừ ngươi?"
 
 Ngọc Thần Tử cứng cổ nói: "Mục tặc hoang dâm vô độ, thần nhiều lần khuyên can nên bị hắn ghét. Nhưng thần là đệ tử của Đạo Tổ, hắn không thể vô cớ giết thần, bởi vậy lần xin hàng này hắn mới ném thần ra chịu chết! Mọi vốn liếng của Diên Khang, vi thần đều biết rõ ràng. Hắn đang lừa gạt bệ hạ trên biểu hàng đó! Hắn lén giữ lại rất nhiều gia sản, định sau khi đầu hàng sẽ mang Lãng Uyển Thần Vương, Diên Tú Đế và một đám mỹ nhân đi sống những ngày khoái hoạt!"
 

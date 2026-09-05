@@ -82,7 +82,7 @@ Họ chưa từng ra ngoài, không ngờ Tần Mục lại xông vào!
 
 Mấy vị thành đạo này cẩn thận dè dặt, không tới gần, mà đứng từ xa quan sát, chỉ thấy trên Độ Thế Kim Thuyền không một bóng người.
 
-Qua một lát, đột nhiên cửa đại điện trên kim thuyền mở ra. Tần Mục vừa đi ra ngoài, vừa chỉnh y phục, tinh thần rạng rỡ, cười nói: "Chư vị đạo hữu không cần lo lắng, lần này ta tới không phải để giết người, mà là tới gặp thầy. Xin chư vị đạo hữu nhường đường."
+Qua một lát, đột nhiên cửa đại điện trên kim thuyền mở ra. Tần Mục vừa đi ra ngoài, vừa chỉnh y phục, tinh thần rạng rỡ, cười nói: "Chư vị đạo hữu không cần lo lắng, lần này ta tới không phải để giết người, mà là tới gặp sư phụ. Xin chư vị đạo hữu nhường đường."
 
 Phía trước, mấy vị thành đạo kia lặng lẽ nhường ra một con đường.
 
@@ -102,9 +102,9 @@ Linh Dục Tú nhìn về phía Tần Mục. Tần Mục cười nói: "Nam Tư�
 
 Mặt Linh Dục Tú hơi đỏ, lại liếc nhìn Tần Mục.
 
-Tần Mục thản nhiên, cười nói: "Nam Tương đạo hữu, lần này ta tới để gặp thầy, phiền đạo hữu thông báo một tiếng, tránh trên đường sinh thêm chuyện."
+Tần Mục thản nhiên, cười nói: "Nam Tương đạo hữu, lần này ta tới để gặp sư phụ, phiền đạo hữu thông báo một tiếng, tránh trên đường sinh thêm chuyện."
 
-Nữ tử trong Đạo quả bật cười khúc khích: "Thất công tử đúng là to gan! Bảy mươi hai điện Di La Cung đã có không ít điện chủ chết trong tay công tử và đồng đảng của công tử, vậy mà còn dám tới gặp thầy! Ngươi muốn diệt đạo thống của thầy, đừng nói thầy không dung ngươi, trên dưới Di La Cung ai có thể dung ngươi?"
+Nữ tử trong Đạo quả bật cười khúc khích: "Thất công tử đúng là to gan! Bảy mươi hai điện Di La Cung đã có không ít điện chủ chết trong tay công tử và đồng đảng của công tử, vậy mà còn dám tới gặp sư phụ! Ngươi muốn diệt đạo thống của sư phụ, đừng nói sư phụ không dung ngươi, trên dưới Di La Cung ai có thể dung ngươi?"
 
 Tần Mục mỉm cười, duỗi một ngón tay, nhẹ nhàng chạm vào hư không.
 
@@ -144,7 +144,7 @@ Linh Dục Tú cười tủm tỉm nói: "Trước đây không lâu mới thàn
 
 Nam Tương Nguyên Quân kinh ngạc nói: "Hóa ra phu nhân và công tử thành thân là để diệt Thiên Đình."
 
-Linh Dục Tú mỉm cười nói: "Chúng ta đang định có con. Ngoại tử nói muốn tới Di La Cung gặp thầy. Đi về một chuyến đại khái mất hai năm, tới Di La Cung vừa khéo hài tử cũng ra đời, đúng lúc có thể mời thầy đặt tên."
+Linh Dục Tú mỉm cười nói: "Chúng ta đang định có con. Ngoại tử nói muốn tới Di La Cung gặp sư phụ. Đi về một chuyến đại khái mất hai năm, tới Di La Cung vừa khéo hài tử cũng ra đời, đúng lúc có thể mời sư phụ đặt tên."
 
 Trong lòng Nam Tương lạnh đi, không nói thêm nữa.
 

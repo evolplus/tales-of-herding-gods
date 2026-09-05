@@ -68,11 +68,11 @@ Tây Đế vẫn nhìn nàng, như đang xem xét lai lịch của nàng.
 
 Tần Mục cười nói: "Ngươi hiện giờ khởi binh, chỉ cần tấn công Thiên Lũy thành đối diện, khi hai quân giao chiến chính là tử kỳ của ngươi. Hồng Thiên Tôn mưu tính đã lâu, đang chờ ngươi vào cuộc. Đại quân thần ma Tây Cực của ngươi vừa tới dưới thành, nguyên thần Hồng Thiên Tôn sẽ nhập chủ Thần khí Ngự Thiên Tôn. Không cần mấy hiệp, ngươi sẽ ngã xuống ngay tại chỗ!"
 
-Ánh mắt Tây Đế rời khỏi mặt Lãng Uyển Thần Vương, mở cửa sổ xe nhìn xa về phía Thần khí Ngự Thiên Tôn sau Thiên Lũy thành, nói: "Ý ngươi là Hồng Thiên Tôn đã tới? Lời này quá sai. Ta nhận được tin, lúc này Thập Thiên Tôn đều ở Thiên Đình, kiềm chế lẫn nhau. Dưới sự uy hiếp qua lại, bọn họ căn bản không thể thoát thân khỏi Thiên Đình! Ngược lại là ngươi, mang vị đạo hữu này tới, lòng dạ khó lường, e rằng muốn mượn tay nàng trừ bỏ ta!"
+Ánh mắt Tây Đế rời khỏi mặt Lãng Uyển Thần Vương, mở cửa sổ xe nhìn xa về phía Thần khí Ngự Thiên Tôn sau Thiên Lũy thành, nói: "Ý ngươi là Hồng Thiên Tôn đã tới? Lời này quá sai. Ta nhận được tin, lúc này Thập Thiên Tôn đều ở Thiên Đình, kiềm chế lẫn nhau. Dưới sự uy hiếp qua lại, bọn họ căn bản không thể thoát thân khỏi Thiên Đình! Ngược lại là ngươi, mang vị đạo hữu này tới, lòng dạ khó lường, e rằng muốn mượn tay nàng trừ khử ta!"
 
 Nàng cười lạnh nói: "Ta cảm nhận được sát ý trên người nàng!"
 
-Tần Mục bật cười: "Ta trừ bỏ ngươi làm gì? Ta và ngươi không oán không thù. Ngươi muốn mượn sức ta để cho mình một con đường lui, ta cũng muốn mượn sức ngươi đối kháng Thiên Đình. Ngươi ta hợp thì đôi bên cùng lợi, chia thì đôi bên cùng tổn. Ta tới bái phỏng là khuyên ngươi đừng tự tìm đường chết. Thật ra không phải ta nhìn ra đây là cái bẫy nhằm vào cổ thần, mà là Bắc Đế Huyền Vũ nhìn ra đây là một cái bẫy mời quân vào vò, nhờ ta tới báo cho ngươi."
+Tần Mục bật cười: "Ta trừ khử ngươi làm gì? Ta và ngươi không oán không thù. Ngươi muốn mượn sức ta để cho mình một con đường lui, ta cũng muốn mượn sức ngươi đối kháng Thiên Đình. Ngươi ta hợp thì đôi bên cùng lợi, chia thì đôi bên cùng tổn. Ta tới bái phỏng là khuyên ngươi đừng tự tìm đường chết. Thật ra không phải ta nhìn ra đây là cái bẫy nhằm vào cổ thần, mà là Bắc Đế Huyền Vũ nhìn ra đây là một cái bẫy mời quân vào vò, nhờ ta tới báo cho ngươi."
 
 Tây Đế nghe nói là Bắc Đế Huyền Vũ bảo hắn tới cảnh báo mình, lúc này mới bớt nghi ngờ, thăm dò: "Thật là Bắc Đế Huyền Vũ bảo ngươi tới?"
 

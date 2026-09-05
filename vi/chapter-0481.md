@@ -4,7 +4,7 @@ Tinh Ngạn vẫn như trước, đeo chiếc rương sau lưng. Hắn vẫn man
 
 Tim Tần Mục khẽ thắt lại. Nếu nói dưới gầm trời này còn có người khiến hắn e ngại, vậy ngoài Quốc sư Diên Khang ra chỉ còn Tinh Ngạn.
 
-Quốc sư Diên Khang là thánh nhân, làm việc có nguyên tắc của riêng mình. Ai chắn đường ông, ông đều sẽ trừ bỏ. Chỉ cần ngươi không cản đường, ông thậm chí còn có thể trở thành bằng hữu tốt của ngươi. Nhưng dù là bằng hữu, một khi chắn lối ông, ông cũng sẽ trở mặt không nhận người.
+Quốc sư Diên Khang là thánh nhân, làm việc có nguyên tắc của riêng mình. Ai chắn đường ông, ông đều sẽ trừ khử. Chỉ cần ngươi không cản đường, ông thậm chí còn có thể trở thành bằng hữu tốt của ngươi. Nhưng dù là bằng hữu, một khi chắn lối ông, ông cũng sẽ trở mặt không nhận người.
 
 Tinh Ngạn thì lại là một kiểu khác.
 

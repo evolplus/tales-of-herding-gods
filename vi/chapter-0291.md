@@ -30,13 +30,13 @@ Kiều Tinh Quân thở dốc nói: "Tuy hắn già rồi, tàn rồi, nhưng v�
 
 "Hắn còn sống?"
 
-Gương mặt kia lộ vẻ kinh ngạc, giọng nói mơ hồ truyền đến từ ngoài trời: "Tinh Quân, ngươi chuẩn bị để ai trong Thượng Thương đi trừ bỏ Nhân Hoàng mới?"
+Gương mặt kia lộ vẻ kinh ngạc, giọng nói mơ hồ truyền đến từ ngoài trời: "Tinh Quân, ngươi chuẩn bị để ai trong Thượng Thương đi trừ khử Nhân Hoàng mới?"
 
 Kiều Tinh Quân nói: "Hư Sinh Hoa, Hư công tử."
 
 Gương mặt trên bầu trời hơi nghiêm trọng: "Đến mức phải điều động Hư công tử sao?"
 
-Kiều Tinh Quân gật đầu: "Lão già ấy đã già, sắp chết rồi. Nhân Hoàng mới còn trẻ, chưa trưởng thành. Trừ bỏ Nhân Hoàng mới, có thể vĩnh viễn dứt hậu hoạn."
+Kiều Tinh Quân gật đầu: "Lão già ấy đã già, sắp chết rồi. Nhân Hoàng mới còn trẻ, chưa trưởng thành. Trừ khử Nhân Hoàng mới, có thể vĩnh viễn dứt hậu hoạn."
 
 Trên bầu trời có một luồng sáng giáng xuống, chiếu lên người Kiều Tinh Quân, tạo thành một con đường bằng ánh sáng. Gương mặt trên trời nói: "Hư công tử chưa chắc chịu xuống núi, cần ngươi đích thân đi nói."
 

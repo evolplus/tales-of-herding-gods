@@ -6,7 +6,7 @@ Thiếu niên tổ sư ánh mắt chớp động, lắc đầu nói:
 
 Giọng Lệ giáo chủ truyền tới:
 
-"Dù bà ấy luyện hóa ta, hay ta chiếm lấy bà ấy, giữa hai chúng ta cuối cùng cũng sẽ thành tựu một người. Tốt hay xấu, đều là lựa chọn của ta. Ngay khi quyết định cưới bà ấy, ta đã biết rất rõ bà ấy chính là tâm ma của ta, là tâm ma không thể không trừ. Trừ được bà ấy, ta mới có thể toàn tâm cầu đạo, tiến thêm một bước. Mong thầy thành toàn."
+"Dù bà ấy luyện hóa ta, hay ta chiếm lấy bà ấy, giữa hai chúng ta cuối cùng cũng sẽ thành tựu một người. Tốt hay xấu, đều là lựa chọn của ta. Ngay khi quyết định cưới bà ấy, ta đã biết rất rõ bà ấy chính là tâm ma của ta, là tâm ma không thể không trừ. Trừ được bà ấy, ta mới có thể toàn tâm cầu đạo, tiến thêm một bước. Mong sư phụ thành toàn."
 
 Tim Tần Mục nảy lên, nhìn về phía Thiếu niên tổ sư.
 

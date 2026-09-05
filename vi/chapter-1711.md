@@ -28,7 +28,7 @@ Con đường hắn đi khác với Tần Mục. Tần Mục học trộm Âm Th
 
 Khi ấy Tần Mục bó tay trước cách phá giải đại đạo của Quy Khư Thần Nữ, chỉ có thể phong ấn ả.
 
-Quy Khư Thần Nữ đã thành đạo, theo lý mà nói dù có hủy diệt ả, biến ả thành hỗn độn cũng không thể giết chết ả. Ả vẫn sẽ sống lại. Bản thân Tần Mục cũng tu luyện đạo Quy Khư, hơn nữa đã trồng ra sen Hỗn Độn, nở hoa sen Hỗn Độn, vì vậy hắn biết mình không thể trừ bỏ Quy Khư Thần Nữ.
+Quy Khư Thần Nữ đã thành đạo, theo lý mà nói dù có hủy diệt ả, biến ả thành hỗn độn cũng không thể giết chết ả. Ả vẫn sẽ sống lại. Bản thân Tần Mục cũng tu luyện đạo Quy Khư, hơn nữa đã trồng ra sen Hỗn Độn, nở hoa sen Hỗn Độn, vì vậy hắn biết mình không thể trừ khử Quy Khư Thần Nữ.
 
 Hơn nữa, ngay cả phong ấn luân hồi của Tần Mục cũng chỉ là kế tạm thời. Phong ấn luân hồi không thể mãi mãi phong ấn Quy Khư Thần Nữ dưới ý thức Nguyên Mẫu phu nhân. Sớm muộn gì cũng có ngày Quy Khư Thần Nữ đột phá luân hồi, nuốt chửng ý thức Nguyên Mẫu!
 

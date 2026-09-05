@@ -180,7 +180,7 @@ Cổ hắn bị chém ra một vết thương sâu chừng một tấc, máu tư
 
 Vị cổ thần kia hưng phấn, cao giọng nói:
 
-“Ngươi còn đang đợi tiểu quỷ U Thiên Tôn kia sao? Muốn trừ bỏ Thổ Bá, trước hết phải trừ bỏ U Thiên Tôn. Hiện giờ tiểu quỷ U Thiên Tôn kia lo thân còn chưa xong, tự thân khó bảo toàn. Ngươi đã không còn bất kỳ hi vọng nào nữa, cần gì phải khổ sở chống đỡ? Ném thêm một đứa!”
+“Ngươi còn đang đợi tiểu quỷ U Thiên Tôn kia sao? Muốn trừ khử Thổ Bá, trước hết phải trừ khử U Thiên Tôn. Hiện giờ tiểu quỷ U Thiên Tôn kia lo thân còn chưa xong, tự thân khó bảo toàn. Ngươi đã không còn bất kỳ hi vọng nào nữa, cần gì phải khổ sở chống đỡ? Ném thêm một đứa!”
 
 A Sửu cố bò về phía trước, nhưng bò thế nào cũng không nhúc nhích được. Con gái lớn của hắn bị giơ lên, ném xuống từ vách núi.
 

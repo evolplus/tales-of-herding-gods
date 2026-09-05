@@ -100,7 +100,7 @@ Mã Như Lai nhíu mày:
 
 Hòa thượng Minh Tâm nói:
 
-"Thưa thầy, sư huynh nói gặp dữ hóa lành là thiện, không có nguy hiểm tính mạng."
+"Thưa sư phụ, sư huynh nói gặp dữ hóa lành là thiện, không có nguy hiểm tính mạng."
 
 Mã Như Lai vẫn hơi không yên tâm, nói:
 

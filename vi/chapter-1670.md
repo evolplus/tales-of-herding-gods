@@ -16,7 +16,7 @@ Người tài trí nghịch thiên như vậy, sáu mươi vạn năm này tiế
 
 Mạnh Vân Quy ngẩng đầu nhìn Long Kỳ Lân đứng trên đỉnh hai mươi tám tầng chư thiên, trong lòng tràn đầy tôn sùng và kính sợ.
 
-Ai mới là Đệ nhất Thiên Sư của Thiên Đình, từ trước đến nay vẫn chưa có định luận. Có người nói Thương Bình Ẩn vạn cổ trường thanh, là Đệ nhất Thiên Sư của Thiên Đình. Cũng có người nói Nhạc Đình Ca kinh tài tuyệt diễm, trí lực vượt xa Thương Bình Ẩn. Lại có người nói Mạnh Vân Quy trò giỏi hơn thầy.
+Ai mới là Đệ nhất Thiên Sư của Thiên Đình, từ trước đến nay vẫn chưa có định luận. Có người nói Thương Bình Ẩn vạn cổ trường thanh, là Đệ nhất Thiên Sư của Thiên Đình. Cũng có người nói Nhạc Đình Ca kinh tài tuyệt diễm, trí lực vượt xa Thương Bình Ẩn. Lại có người nói Mạnh Vân Quy đệ tử vượt sư phụ.
 
 Nhưng đối với đệ nhất Thiên Sư thiên hạ thì không có cuộc tranh luận như vậy.
 

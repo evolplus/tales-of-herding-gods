@@ -34,7 +34,7 @@ Mục đích của hắn chính là khuấy nước đục. Dù Hạo Thiên Tô
 
 “Thời buổi lắm chuyện thật.”
 
-Hồng Thiên Tôn thở dài buồn bã, cảm khái nói: “Những cổ thần này chết rồi mà chưa cứng, đến khi nào mới trừ bỏ được họ, trả cho thiên hạ thương sinh một càn khôn sáng sủa? Haiz, đi thôi, đi thôi!”
+Hồng Thiên Tôn thở dài buồn bã, cảm khái nói: “Những cổ thần này chết rồi mà chưa cứng, đến khi nào mới trừ khử được họ, trả cho thiên hạ thương sinh một càn khôn sáng sủa? Haiz, đi thôi, đi thôi!”
 
 Tay áo lớn của hắn phất phơ, tiêu sái phiêu nhiên, xa độn mà đi.
 

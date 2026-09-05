@@ -2,11 +2,11 @@
 
 Dưới Hỗn Độn Hải, nữ tử kia ngẩng lên nhìn, thấy Tần Mục và Đế hậu nhanh chóng leo lên, cách mình càng lúc càng xa, dần dần tiến sâu vào Quy Khư Đại Uyên của vũ trụ thứ mười sáu.
 
-"Cuối cùng cũng tới ngày thoát khốn rồi, thầy."
+"Cuối cùng cũng tới ngày thoát khốn rồi, sư phụ."
 
 Bà khẽ thì thầm: "Ông nói ta xử sự quá cực đoan, trấn áp ta ở đây, nhưng ông không ngờ tới phải không, cuối cùng lại là lão Thất thả ta ra. Ha ha ha..."
 
-Bà cười khẽ thành tiếng: "Ông già rồi, ta có thể cảm nhận đạo tâm của ông mục nát. Với người như ông, đạo tâm đã già, vậy cách cái chết không xa. Đợi tới khoảnh khắc đạo tâm của ông chết, cũng chính là khoảnh khắc ông chết. Thầy, ta sẽ khóc vì ông, cũng sẽ cười vì mình thoát khốn!"
+Bà cười khẽ thành tiếng: "Ông già rồi, ta có thể cảm nhận đạo tâm của ông mục nát. Với người như ông, đạo tâm đã già, vậy cách cái chết không xa. Đợi tới khoảnh khắc đạo tâm của ông chết, cũng chính là khoảnh khắc ông chết. Sư phụ, ta sẽ khóc vì ông, cũng sẽ cười vì mình thoát khốn!"
 
 "Ông luôn nói thủ đoạn của ta quá tàn nhẫn. Ông nhân từ như vậy, muốn cứu tất cả mọi người, nhưng mỗi lần ông đều thất bại! Có lẽ chỉ người như ta mới có thể hoàn thành sự nghiệp mà ông không hoàn thành nổi!"
 

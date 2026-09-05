@@ -148,7 +148,7 @@ Tàn hồn Thiên Đế lại đặt trâm về tay hắn, cười khà khà:
 
 Ông đứng dậy đi tới đi lui, thở dài:
 
-"Nghịch tử quyền khuynh triều dã, thế lực của trẫm so với hắn còn kém không ít. Hơn nữa nếu bị người ta biết trẫm chính là Thiên Đế năm xưa, trẫm tất sẽ bị bọn họ hợp lực trừ bỏ. Trẫm không có lý do hạ giới."
+"Nghịch tử quyền khuynh triều dã, thế lực của trẫm so với hắn còn kém không ít. Hơn nữa nếu bị người ta biết trẫm chính là Thiên Đế năm xưa, trẫm tất sẽ bị bọn họ hợp lực trừ khử. Trẫm không có lý do hạ giới."
 
 Mắt Tần Mục sáng lên, vội nói:
 
@@ -248,7 +248,7 @@ Tần Mục xoay người nói với Thiên Âm nương nương:
 
 Thiên Âm nương nương lòng rối như tơ vò, đột nhiên rơi lệ:
 
-"Các ngươi thật sự muốn trừ bỏ vị tỷ tỷ Địa Mẫu kia sao? Bà ấy cũng giống ta, đều là một người đáng thương."
+"Các ngươi thật sự muốn trừ khử vị tỷ tỷ Địa Mẫu kia sao? Bà ấy cũng giống ta, đều là một người đáng thương."
 
 Tần Mục từ biệt:
 

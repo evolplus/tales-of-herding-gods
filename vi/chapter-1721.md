@@ -12,7 +12,7 @@ Hạo Thiên Đế khấu bái một phen, nói: “Lăng Tiêu công tử, Mụ
 
 Trong lòng Hạo Thiên Đế lạnh buốt: “May mà trẫm không mắc mưu!”
 
-Tam công tử nói: “Nhưng thương thế của hắn cực nặng, hẳn không còn lại bao nhiêu sức mạnh, nếu không hắn cũng chẳng cần dùng nửa tháng để thu Thần Tàng, nhập diệt giả chết. Nếu là thời toàn thịnh, một niệm diệt thế, một niệm trời mở, hắn đã có thể chữa lành thương thế trên người. Chiêu ấy của ta là thần thông do thầy ta sáng tạo khi phá Chủ nhân Thiên Đô. Hắn trúng chiêu đó, muốn nhập diệt cũng khó muôn phần! Sau khi nhập diệt, muốn khai thiên tái sinh cũng trở nên vô cùng gian nan! Trạng thái hiện giờ của hắn không sống không chết, định mượn nhập diệt để phá đạo thương ta lưu lại, nhưng hắn không phá nổi!”
+Tam công tử nói: “Nhưng thương thế của hắn cực nặng, hẳn không còn lại bao nhiêu sức mạnh, nếu không hắn cũng chẳng cần dùng nửa tháng để thu Thần Tàng, nhập diệt giả chết. Nếu là thời toàn thịnh, một niệm diệt thế, một niệm trời mở, hắn đã có thể chữa lành thương thế trên người. Chiêu ấy của ta là thần thông do sư phụ ta sáng tạo khi phá Chủ nhân Thiên Đô. Hắn trúng chiêu đó, muốn nhập diệt cũng khó muôn phần! Sau khi nhập diệt, muốn khai thiên tái sinh cũng trở nên vô cùng gian nan! Trạng thái hiện giờ của hắn không sống không chết, định mượn nhập diệt để phá đạo thương ta lưu lại, nhưng hắn không phá nổi!”
 
 Hạo Thiên Đế ngẩng đầu, thất thanh: “Ý công tử là?”
 
@@ -22,7 +22,7 @@ Tam công tử trầm giọng nói: “Ném hắn trở về Hỗn Độn Trư�
 
 Tim Hạo Thiên Đế đập loạn thình thịch. Sau khi bái tạ, hắn đứng dậy nhìn về phía Tần Mục từ xa.
 
-“Môn thần thông này do thầy ta sáng tạo để giam giữ Nhị công tử Vô Cực. Dù lão Thất chỉ học được chút da lông, nhưng nếu ta muốn phá giải, e rằng cũng phải tốn năm sáu năm mới hóa giải được thức thần thông này.”
+“Môn thần thông này do sư phụ ta sáng tạo để giam giữ Nhị công tử Vô Cực. Dù lão Thất chỉ học được chút da lông, nhưng nếu ta muốn phá giải, e rằng cũng phải tốn năm sáu năm mới hóa giải được thức thần thông này.”
 
 Giọng Tam công tử truyền tới: “Những ngày này ngươi cứ lo làm việc của ngươi, đừng đến quấy rầy ta. Ta sẽ toàn tâm toàn ý phá kết ấn dây đỏ, nếu phân tâm rất dễ bị phản phệ. Ngươi càng không được chạm vào kết ấn dây đỏ này, hiểu chưa?”
 

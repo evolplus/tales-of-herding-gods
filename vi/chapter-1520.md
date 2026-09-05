@@ -182,6 +182,6 @@ Tổ Thần Vương chống chí bảo Thiên Đạo của mình, nhìn chằm c
 
 Tường Thiên Phi nhổ về phía hắn, nhưng lại phun ra một chiếc răng, run rẩy nói: “Chỉ cần các ngươi còn theo phía sau, Mục Thiên Tôn sẽ không ra tay với ta, bởi vì hắn còn phải mượn sức ta để đối kháng đám bại hoại các ngươi!”
 
-Một bà lão khác hẳn là Cung Thiên Tôn, phụt cười thành tiếng, hai chiếc răng còn lại cũng bị phun ra một nửa, cười nói: “Thái Đế, ngươi vẫn cố chấp tự phụ như vậy! Chỉ có liên thủ với chúng ta, quy thuận Hạo Thiên Tôn, ngươi mới có thể tự bảo toàn! Năm vị Thiên Tôn chúng ta hợp sức, trừ bỏ Mục Thiên Tôn, lấy cây của hắn, chúng ta sẽ có thể khôi phục thanh xuân!”
+Một bà lão khác hẳn là Cung Thiên Tôn, phụt cười thành tiếng, hai chiếc răng còn lại cũng bị phun ra một nửa, cười nói: “Thái Đế, ngươi vẫn cố chấp tự phụ như vậy! Chỉ có liên thủ với chúng ta, quy thuận Hạo Thiên Tôn, ngươi mới có thể tự bảo toàn! Năm vị Thiên Tôn chúng ta hợp sức, trừ khử Mục Thiên Tôn, lấy cây của hắn, chúng ta sẽ có thể khôi phục thanh xuân!”
 
 [Xem chương tiếp theo](chapter-1521.md)

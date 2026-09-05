@@ -24,7 +24,7 @@ Tường Thiên Phi động lòng lắm, cười nói: “Đao của ta, cộng 
 
 Tần Mục phấn chấn tinh thần, cười nói: “Chúng ta không hề yếu. Chúng ta liên thủ, có thể tắm máu Thập Thiên Tôn trên dòng sông Hỗn Độn này, khiến bọn họ có đi không về! Từ nay về sau, vũ trụ càn khôn này, ta và bệ hạ chia đều thiên hạ!”
 
-Khóe mắt Tường Thiên Phi giật giật, thầm nghĩ: “Chia đều thiên hạ? Mơ giữa ban ngày! Trừ bỏ Thập Thiên Tôn xong, ta sẽ trừ luôn ngươi để dứt hậu hoạn! Tốc độ trưởng thành của ngươi thật sự quá nhanh!”
+Khóe mắt Tường Thiên Phi giật giật, thầm nghĩ: “Chia đều thiên hạ? Mơ giữa ban ngày! Trừ khử Thập Thiên Tôn xong, ta sẽ trừ luôn ngươi để dứt hậu hoạn! Tốc độ trưởng thành của ngươi thật sự quá nhanh!”
 
 Tần Mục mở con mắt dọc giữa mi tâm, nhìn đông nhìn tây, thúc giục thuyền nhỏ đi về phía trước, nói: “Lại gặp một vị Thiên Tôn lạc đàn! Bệ hạ, thời điểm ngươi ta đại triển hùng phong tới rồi!”
 

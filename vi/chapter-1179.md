@@ -28,7 +28,7 @@ Tần Mục ngẩn ra, đành mặc bà.
 
 Đế Dịch Nguyệt ngơ ngác nhìn nơi ấy. Nửa trước ký ức là hồi ức tốt đẹp nhất của bà, khắc cốt ghi tâm; nửa sau lại là ký ức khiến bà đau lòng nhất, cũng khắc cốt ghi tâm.
 
-“Phật pháp ta cũng từng học, ta còn từng bái Đại Phạn Thiên Vương Phật làm thầy.”
+“Phật pháp ta cũng từng học, ta còn từng bái Đại Phạn Thiên Vương Phật làm sư phụ.”
 
 Đế Dịch Nguyệt như tỉnh lại từ đoạn hồi ức khổ đau ấy, giống như người không có chuyện gì, cười với Tần Mục: “Ta nói với lão Phật rằng ta muốn học chân kinh Đế Tọa của ông ấy. Lão Phật nói với ta, ngươi quá thông minh, học không được. Môn công pháp này là công pháp chỉ kẻ ngốc mới học được, càng thông minh càng không thể học.”
 

@@ -40,7 +40,7 @@ Lăng Thiên Tôn cứng cỏi, Nguyệt Thiên Tôn dịu dàng. Hai người n
 
 Kỳ nữ trên đời này tuy nhiều, nhưng họ mới là truyền kỳ trong truyền kỳ!
 
-Lăng Thiên Tôn cũng nhớ trận chiến trừ bỏ Địa Mẫu. Vì bảo vệ nàng, Nguyệt Thiên Tôn đã rơi vào hiểm cảnh, bị đám Hỏa Thiên Tôn, Hạo Thiên Tôn, Hiểu Thiên Tôn đánh trọng thương.
+Lăng Thiên Tôn cũng nhớ trận chiến trừ khử Địa Mẫu. Vì bảo vệ nàng, Nguyệt Thiên Tôn đã rơi vào hiểm cảnh, bị đám Hỏa Thiên Tôn, Hạo Thiên Tôn, Hiểu Thiên Tôn đánh trọng thương.
 
 Nàng nhớ từ sau đó, Nguyệt Thiên Tôn không còn lộ diện nữa, đạo thương cứ quấn lấy nàng, mãi không khỏi.
 

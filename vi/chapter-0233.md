@@ -4,7 +4,7 @@ Thương thế của Tần Mục khỏi hẳn. Hắn mang theo quà tặng Ma vi
 
 Nước sông róc rách. Lại có mấy dị thú từ dưới nước nhảy ra, đầu cá thân người, lao về phía mấy thi thể khác. Mấy con dị thú này nhìn thấy Tần Mục thì vội dừng chân, nằm rạp xuống đất, không dám tiến lên.
 
-Tần Mục chẳng lấy làm lạ. Hai ngày hắn dưỡng thương, lần lượt có thần thông giả Diên Khang truy sát hắn tìm tới nơi này. Chưa vào thôn, bọn họ đã bị hắn dùng những vật tùy tiện trong thôn lần lượt trừ bỏ.
+Tần Mục chẳng lấy làm lạ. Hai ngày hắn dưỡng thương, lần lượt có thần thông giả Diên Khang truy sát hắn tìm tới nơi này. Chưa vào thôn, bọn họ đã bị hắn dùng những vật tùy tiện trong thôn lần lượt trừ khử.
 
 Trong thôn có vài thứ cực kỳ đáng sợ. Ngoài côn trùng trong hũ sành, còn có cái cào cỏ, rèm vải trước lò rèn, chum nước, Kiếm hoàn dưới gầm giường của Tư bà bà, đá mài dao của Đồ phu, máng cho gà ăn, và cả cái chậu rửa mặt bị Long Kỳ Lân ngậm đi làm bát cơm.
 

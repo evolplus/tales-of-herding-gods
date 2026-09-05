@@ -182,7 +182,7 @@ Mọi người nhìn theo tiếng, chỉ thấy ba vị cổ thần có hình du
 
 Mấy cổ thần này tướng mạo thật sự kỳ lạ, thế nhưng trong chư thiên vạn giới lại không có ba vị cổ thần này, khiến người ta không hiểu.
 
-“Hạo Thiên Đế lệnh ta đến đây, trừ bỏ Nam Đế, Xích Hoàng, Minh Hoàng.”
+“Hạo Thiên Đế lệnh ta đến đây, trừ khử Nam Đế, Xích Hoàng, Minh Hoàng.”
 
 Một vị cổ thần trong đó cười nói: “Những người khác, ta không giết ai. Ba vị đạo hữu, mời.”
 

@@ -2,11 +2,11 @@
 
 Tiều Phu Thánh Nhân cẩn thận nhận diện, trong lòng khẽ động, nói: "Nhận ra. Ông ấy tên Ninh Cẩm, là một trong rất nhiều thần chỉ mà ta phái đi thăm dò cội nguồn bóng tối. Ta đã đặt phong ấn Thiên Ma Tạo Hóa Công trên người ông ấy, đảm bảo ông ấy không bị ma quái trong bóng tối ăn mất. Ông ấy còn sống không?"
 
-Tần Mục nói: "Không sống không chết. Thầy, ông ấy đã hoàn thành nhiệm vụ của mình."
+Tần Mục nói: "Không sống không chết. Sư phụ, ông ấy đã hoàn thành nhiệm vụ của mình."
 
 Trong mắt Tiều Phu Thánh Nhân giấu sự xúc động, nhưng không để lộ ra. Ông chậm rãi gật đầu, nói: "Ngươi có cách đánh thức ông ấy không?"
 
-Tần Mục lắc đầu, nói: "Đến ban đêm, ông ấy sẽ sống lại trong bóng tối. Khi ấy thầy có thể gặp ông ấy."
+Tần Mục lắc đầu, nói: "Đến ban đêm, ông ấy sẽ sống lại trong bóng tối. Khi ấy sư phụ có thể gặp ông ấy."
 
 Lúc này, một luồng bóng tối tràn lên trước. Diêm Vương di chuyển, thân thể kéo bóng tối theo, bao phủ họ. Tấm da người kia lập tức bay phấp phới như người giấy. Chỉ thấy dưới da người, máu thịt sinh sôi, rất nhanh Khai Hoàng Thần Nhân đã máu thịt đầy đặn, sống sờ sờ đứng trước mặt họ.
 
@@ -90,7 +90,7 @@ Hư Sinh Hoa cũng nghĩ kỹ, cảm thấy tuy mình thắng Tần Mục ở v�
 
 Tiều Phu Thánh Nhân cười nói: "Các ngươi không cần rối rắm. Vốn dĩ hắn không thông minh bằng chúng ta. Hắn là Bá Thể, trời sinh vốn liếng tốt, nhưng đến giờ vẫn là cảnh giới Thiên Nhân, có thể thấy là đầu óc ngốc làm chậm tu hành. Đi thôi, chúng ta đến Thiên Âm giới bái kiến Thiên Âm nương nương."
 
-Tần Mục thấp giọng nói: "Cảnh giới tu vi của thầy là người đội sổ trong Tứ đại Thiên Sư, có thể thấy cũng là vì ngốc."
+Tần Mục thấp giọng nói: "Cảnh giới tu vi của sư phụ là người đội sổ trong Tứ đại Thiên Sư, có thể thấy cũng là vì ngốc."
 
 Tiều Phu Thánh Nhân lấy rìu và đá mài ra, dùng đá mài mài rìu, cọ đến tia lửa bắn tung tóe. Tần Mục không nói nữa, vội dẫn họ tới Thiên Âm giới.
 
@@ -118,7 +118,7 @@ Mọi người đi đến bờ biển, từ xa đã thấy Thiên Âm nương n�
 
 Tần Mục dẫn mọi người đến trước mặt. Thiên Âm nương nương tò mò đánh giá họ, nói: "Đại pháp sư, mấy vị này chính là những người thông minh tài trí đều hơn ngươi mà ngươi nói?"
 
-"Nương nương, vị này là thầy ta, Tiều Phu, trụ cột biến pháp thời đại Khai Hoàng. Vị này là Quốc sư, trụ cột biến pháp đương thời. Vị này là Diêm Vương Phong Đô, chia cắt lãnh địa từ U Đô, chiếm cứ Đại Khư, có tạo nghệ cực cao về thuật linh hồn. Vị này là Sơ Tổ Nhân Hoàng, tự sáng tạo Thiên Địa Tâm Thánh Quyết, tầng thứ công pháp thẳng đến Lăng Tiêu, nhưng đó là chuyện hai vạn năm trước, khi ấy ông vẫn chỉ là một vị hoàng tử cầu học. Tuy hai vạn năm này phí hoài không phấn chấn, nhưng tư chất ngộ tính không có gì để chê. Vị này là Hư Sinh Hoa, một Bá Thể giả, cũng là người đã làm ra sáng kiến hợp nhất hai đại Thần Tàng Thất Tinh và Lục Hợp."
+"Nương nương, vị này là sư phụ ta, Tiều Phu, trụ cột biến pháp thời đại Khai Hoàng. Vị này là Quốc sư, trụ cột biến pháp đương thời. Vị này là Diêm Vương Phong Đô, chia cắt lãnh địa từ U Đô, chiếm cứ Đại Khư, có tạo nghệ cực cao về thuật linh hồn. Vị này là Sơ Tổ Nhân Hoàng, tự sáng tạo Thiên Địa Tâm Thánh Quyết, tầng thứ công pháp thẳng đến Lăng Tiêu, nhưng đó là chuyện hai vạn năm trước, khi ấy ông vẫn chỉ là một vị hoàng tử cầu học. Tuy hai vạn năm này phí hoài không phấn chấn, nhưng tư chất ngộ tính không có gì để chê. Vị này là Hư Sinh Hoa, một Bá Thể giả, cũng là người đã làm ra sáng kiến hợp nhất hai đại Thần Tàng Thất Tinh và Lục Hợp."
 
 Tần Mục giới thiệu từng người, nói: "Ta thường kinh thán trước sự thông minh tài trí của họ, vô cùng khâm phục tài học của họ. Tài học trí tuệ của họ không kém Âm Thiên Tử, có lẽ có thể giúp nương nương giải quyết triệt để hậu họa của Thiên Âm giới."
 

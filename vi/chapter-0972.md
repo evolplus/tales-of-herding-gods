@@ -92,11 +92,11 @@ Tộc trưởng Hạ Đài nói: "Đang muốn đợi Thần Vương tới khả
 
 Lãng Uyển Thần Vương cười nói: "Các ngươi hẳn đã tra xét thân phận Thánh Anh, xác nhận hắn là Tạo Vật Chủ của tộc ta. Vậy lai lịch sư thừa đã hỏi chưa?"
 
-Tu Trọng vội cúi người, nói: "Thánh Anh nói thầy của hắn là một Tạo Vật Chủ tên Thúc Quân. Thần thức của Thánh Anh rất mạnh, không kém Tạo Vật Chủ trưởng thành. Nghĩ đến Thúc Quân cũng là nhân vật lợi hại trong tộc ta."
+Tu Trọng vội cúi người, nói: "Thánh Anh nói sư phụ của hắn là một Tạo Vật Chủ tên Thúc Quân. Thần thức của Thánh Anh rất mạnh, không kém Tạo Vật Chủ trưởng thành. Nghĩ đến Thúc Quân cũng là nhân vật lợi hại trong tộc ta."
 
 "Thúc Quân?"
 
-Trong bảo liễn truyền ra giọng kinh ngạc. Lãng Uyển Thần Vương cười nói: "Thì ra là một trong Thái Cổ Tam Vương, Thúc Quân Thần Vương. Không phải hắn đã chết từ ngàn vạn năm trước rồi sao? Nói ra thì hắn cũng xem như tiền bối của ta, ta từng nghe đại danh của hắn. Năm xưa Tạo Vật Chủ nhất tộc ta bại trận, cũng có quan hệ không nhỏ với hắn. Một người đã chết, sao lại là thầy của Thánh Anh? Phải rồi, ta biết rồi."
+Trong bảo liễn truyền ra giọng kinh ngạc. Lãng Uyển Thần Vương cười nói: "Thì ra là một trong Thái Cổ Tam Vương, Thúc Quân Thần Vương. Không phải hắn đã chết từ ngàn vạn năm trước rồi sao? Nói ra thì hắn cũng xem như tiền bối của ta, ta từng nghe đại danh của hắn. Năm xưa Tạo Vật Chủ nhất tộc ta bại trận, cũng có quan hệ không nhỏ với hắn. Một người đã chết, sao lại là sư phụ của Thánh Anh? Phải rồi, ta biết rồi."
 
 Giọng nàng êm tai dễ nghe, cười nói: "Thúc Quân Thần Vương, xin hãy hiện thân gặp một lần!"
 

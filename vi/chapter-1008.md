@@ -36,7 +36,7 @@ Vân Sơ Tụ lườm hắn một cái, cười nói: "Hiểu Thiên Tôn là an
 
 Tần Mục trợn mắt há miệng.
 
-Vân Sơ Tụ thấy vẻ mặt kinh ngạc của hắn thì không nhịn được cười, nói: "Ngươi có vẻ mặt gì vậy? Hiểu Thiên Tôn còn có một thân phận khác, chính là môn đồ của Vân Thiên Tôn và Nguyệt Thiên Tôn, từ những năm Long Hán đã đi theo họ. Có thể nói hắn là nhân vật cấp tiến nhất trong Thiên Minh. Những năm đầu, hắn một lòng muốn diệt cổ thần, thậm chí cho rằng Hạo Thiên Tôn, Lang Hiên Thần Hoàng, Tổ Thần Vương đều nhất định phải bị trừ bỏ."
+Vân Sơ Tụ thấy vẻ mặt kinh ngạc của hắn thì không nhịn được cười, nói: "Ngươi có vẻ mặt gì vậy? Hiểu Thiên Tôn còn có một thân phận khác, chính là môn đồ của Vân Thiên Tôn và Nguyệt Thiên Tôn, từ những năm Long Hán đã đi theo họ. Có thể nói hắn là nhân vật cấp tiến nhất trong Thiên Minh. Những năm đầu, hắn một lòng muốn diệt cổ thần, thậm chí cho rằng Hạo Thiên Tôn, Lang Hiên Thần Hoàng, Tổ Thần Vương đều nhất định phải bị trừ khử."
 
 Tần Mục như bị thiên lôi đánh xuống đỉnh đầu, chấn động đến không nói nên lời.
 

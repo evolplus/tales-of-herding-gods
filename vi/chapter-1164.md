@@ -72,11 +72,11 @@ Các vị Thiên Tôn đều tự cười lạnh, không cho là đúng.
 
 Hư Không Thú tuy mạnh mẽ, nhưng so với những Thiên Tôn như họ vẫn kém quá nhiều, quá nhiều. Dù là Hư Không Mẫu Thú, họ cũng chẳng sợ chút nào.
 
-Họ cũng có quyết tâm trừ bỏ Hư Không Mẫu Thú, chỉ là con Hư Không Mẫu Thú này ẩn trong hư không thứ mười chín. Thần thức của họ không đủ mạnh, không giống Tạo Vật Chủ chuyên tu luyện thần thức.
+Họ cũng có quyết tâm diệt trừ Hư Không Mẫu Thú, chỉ là con Hư Không Mẫu Thú này ẩn trong hư không thứ mười chín. Thần thức của họ không đủ mạnh, không giống Tạo Vật Chủ chuyên tu luyện thần thức.
 
 Họ không thể mang thân xác xuyên qua hư không. Nếu nguyên thần tiến vào hư không thứ mười chín thì quá nguy hiểm.
 
-Nhưng chỉ cần Hư Không Mẫu Thú thò đầu ra, họ có thể dễ dàng trừ bỏ con Mẫu Thú này.
+Nhưng chỉ cần Hư Không Mẫu Thú thò đầu ra, họ có thể dễ dàng diệt trừ con Mẫu Thú này.
 
 Trên trời, dưới đất, trong sông ngòi hồ biển, vô số Hư Không Thú chui ra. Hư Không Thú trên bầu trời rung màng thịt giữa sáu chi để bay, còn trên mặt đất, từng con Hư Không Thú sáu chân chạy như điên!
 

@@ -108,13 +108,13 @@ Sắc mặt Đồ phu âm trầm, bàn tay cầm đao không nhúc nhích, đạ
 
 "Sư đệ!"
 
-Bá Sơn nhảy xuống từ lưng trâu xanh, vui mừng khôn xiết chạy tới, gọi: "Sư đệ, đệ chọc lão sư tức giận rồi phải không? Lão sư đồng ý thu ta làm đồ đệ lần nữa, đưa vào môn tường, nhưng đề ra một điều kiện là bảo ta nói nhỏ hơn một chút, nói ít hơn một chút. Bọn họ nói tới tìm đệ, ta liền nói tiểu sư đệ lanh lợi cổ quái chắc chắn không có chuyện, quả nhiên không có chuyện! Thiên Đao lão sư, sao thầy lại đặt đao lên cổ sư đệ? Mau bỏ xuống, mọi người đều là người một nhà, có chuyện gì mà mấy câu không giải quyết được..."
+Bá Sơn nhảy xuống từ lưng trâu xanh, vui mừng khôn xiết chạy tới, gọi: "Sư đệ, đệ chọc lão sư tức giận rồi phải không? Lão sư đồng ý thu ta làm đồ đệ lần nữa, đưa vào môn tường, nhưng đề ra một điều kiện là bảo ta nói nhỏ hơn một chút, nói ít hơn một chút. Bọn họ nói tới tìm đệ, ta liền nói tiểu sư đệ lanh lợi cổ quái chắc chắn không có chuyện, quả nhiên không có chuyện! Thiên Đao lão sư, sao người lại đặt đao lên cổ sư đệ? Mau bỏ xuống, mọi người đều là người một nhà, có chuyện gì mà mấy câu không giải quyết được..."
 
 Đồ phu vung đao, đại đao rơi lên vai Bá Sơn Đại tế tửu. Bá Sơn lập tức ngậm miệng, không nói một lời, mặt nghẹn đỏ bừng.
 
 Tần Mục kinh ngạc nói: "Bá Sơn sư huynh, Đồ gia gia chỉ giả chết, cũng không đá huynh ra khỏi môn hộ, sao huynh lại bái sư lần nữa?"
 
-Bá Sơn bừng tỉnh, đẩy đao ra, giọng đột nhiên vang lên gấp một hai lần, giận dữ nói: "Lão già, thầy lừa ta!"
+Bá Sơn bừng tỉnh, đẩy đao ra, giọng đột nhiên vang lên gấp một hai lần, giận dữ nói: "Lão già, sư phụ lừa ta!"
 
 Tai Đồ phu bị chấn đến ong ong, căm giận nhìn Tần Mục.
 

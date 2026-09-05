@@ -6,7 +6,7 @@ Tần Mục giơ một ngón tay, ánh mắt quét qua mặt Hợp Hoan, Phượ
 
 "Nằm mơ!"
 
-Phượng Hoàng điện chủ ngẩng đầu nhìn hắn, sát khí đằng đằng quát: "Thất công tử, ngươi là công tử của Di La Cung, vì sao khuỷu tay lại ngoặt ra ngoài? Ngươi không giúp Di La Cung thì thôi, ngược lại còn ra tay với Di La Cung. Nếu thầy biết..."
+Phượng Hoàng điện chủ ngẩng đầu nhìn hắn, sát khí đằng đằng quát: "Thất công tử, ngươi là công tử của Di La Cung, vì sao khuỷu tay lại ngoặt ra ngoài? Ngươi không giúp Di La Cung thì thôi, ngược lại còn ra tay với Di La Cung. Nếu sư phụ biết..."
 
 Tần Mục điểm Hồng Mông Nhất Chỉ ra. Trong lòng Phượng Hoàng điện chủ giật mình, đang định chống đỡ, lại thấy một chỉ của Tần Mục đâm về phía Độ Thế Kim Thuyền sau lưng.
 

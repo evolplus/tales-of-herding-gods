@@ -32,7 +32,7 @@ Tu vi Đạo Cảnh của hắn đứng vào hàng đầu trong Thập Thiên T�
 
 Chỉ là hắn không biết đó chính là Đạo Cảnh. Mãi đến khi Khai Hoàng xác lập hệ thống Đạo Cảnh, hắn mới biết mình đã có thành tựu trong Đạo Cảnh.
 
-Đạo Cảnh đạo hỏa của hắn, sau khi trừ bỏ Nam Đế Chu Tước, lại có một lần tăng vọt kinh người, vì vậy mới có thể tu luyện tới Đạo Cảnh đạo hỏa hai mươi bốn tầng trời.
+Đạo Cảnh đạo hỏa của hắn, sau khi trừ khử Nam Đế Chu Tước, lại có một lần tăng vọt kinh người, vì vậy mới có thể tu luyện tới Đạo Cảnh đạo hỏa hai mươi bốn tầng trời.
 
 Hắn giấu đủ sâu.
 
@@ -56,7 +56,7 @@ Hỏa Thiên Tôn chần chừ một chút, ngón giữa co lại. Cánh tay tr�
 
 Tổ Thần Vương nhịn đau, cười nói: "Ngươi và ta cùng một loại người. Hành hạ ta, ngươi không có cảm giác đồng bệnh tương lân sao?"
 
-Hỏa Thiên Tôn hừ lạnh: "Trừ bỏ ngươi, sẽ không còn ai có thể tranh đoạt Thiên Công, tranh đoạt Thiên Đạo với ta."
+Hỏa Thiên Tôn hừ lạnh: "Trừ khử ngươi, sẽ không còn ai có thể tranh đoạt Thiên Công, tranh đoạt Thiên Đạo với ta."
 
 Ánh mắt hắn kỳ dị, nắm ngón tay thứ ba xuống. Chân trái Tổ Thần Vương cũng rắc một tiếng gãy lìa, đau đến nước mắt tuôn trào.
 

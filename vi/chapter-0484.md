@@ -20,7 +20,7 @@ Sắc mặt Ban Công Thố xanh mét, nghiến răng nói: "Liên quan gì tớ
 
 Trên rương, Tần Mục kinh ngạc nói: "Tinh Ngạn giải quyết Ngỗi Vu Thần nhanh như vậy sao? Thực lực cỡ này thật sự đáng sợ!"
 
-Ban Công Thố dưới rương hừ nặng một tiếng, lẩm bẩm: "Sư tôn ta mấy năm nay coi như sống uổng rồi... Có điều Tinh Ngạn rất khó luyện hóa nguyên thần của sư tôn ta, biến thành tàng phẩm nguyên thần của hắn. Tần giáo chủ, ta có một chủ ý hay, vừa có thể xử lý sư tôn ta, vừa có thể trừ bỏ Tinh Ngạn!"
+Ban Công Thố dưới rương hừ nặng một tiếng, lẩm bẩm: "Sư tôn ta mấy năm nay coi như sống uổng rồi... Có điều Tinh Ngạn rất khó luyện hóa nguyên thần của sư tôn ta, biến thành tàng phẩm nguyên thần của hắn. Tần giáo chủ, ta có một chủ ý hay, vừa có thể xử lý sư tôn ta, vừa có thể trừ khử Tinh Ngạn!"
 
 Giọng Tần Mục truyền xuống từ trên rương: "Ta biết ý ngươi. Ngươi định tới Dương Sơn phía nam Đại Khư, giải phong thân xác của Ngỗi Vu Thần. Tinh Ngạn còn chưa luyện hóa nguyên thần Ngỗi Vu Thần, đoán chừng chỉ tách Linh Thai và hồn phách trong nguyên thần của ông ta ra để trấn áp. Ngỗi Vu Thần dù sao cũng là thần. Khi gặp thân xác của mình, nói không chừng có thể thoát khỏi trấn áp của Tinh Ngạn. Ngỗi Vu Thần ở hình thái hoàn chỉnh sẽ không yếu hơn Tinh Ngạn, chỉ mạnh hơn. Ta nói có đúng không?"
 

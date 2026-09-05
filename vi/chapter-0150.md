@@ -60,7 +60,7 @@ Tướng mạo Bá Sơn Tế Tửu thô kệch, người cao ngựa lớn, cực
 
 Đến đêm, họ tới một thôn làng nghỉ chân. Bá Sơn Tế Tửu ngồi bên đống lửa, nói: "Nhưng trên thảo nguyên, thánh địa đứng đầu chính là Lâu Lan Hoàng Kim Cung, vu giáo lớn nhất. Đại vu của Lâu Lan Hoàng Kim Cung có địa vị cực cao trên thảo nguyên. Khả Hãn trên thảo nguyên đều do Vu Tôn Lâu Lan Hoàng Kim Cung trao quân quyền. Nếu lão Khả Hãn chết, con trai muốn kế vị, cần tới Lâu Lan Hoàng Kim Cung xin Vu Tôn trao quyền."
 
-Linh Dục Tú nói: "Trước kia Diên Khang quốc chúng ta cũng như vậy. Ta nghe phụ hoàng nói, những năm đầu Diên Khang quốc chỉ lớn bằng một phần mười bây giờ, là nước phụ thuộc của Trường Sinh Môn. Năm đó Linh gia chúng ta cũng không phải hoàng tộc. Sau này môn chủ Trường Sinh Môn chán ghét hoàng đế khi ấy, trực tiếp phế hoàng đế, chọn tổ tiên ta làm hoàng đế, trực tiếp thay triều đổi đại. Sau này Linh gia ta dốc sức trị quốc, âm thầm phát triển, cuối cùng trừ bỏ Trường Sinh Môn, lúc này mới lớn mạnh."
+Linh Dục Tú nói: "Trước kia Diên Khang quốc chúng ta cũng như vậy. Ta nghe phụ hoàng nói, những năm đầu Diên Khang quốc chỉ lớn bằng một phần mười bây giờ, là nước phụ thuộc của Trường Sinh Môn. Năm đó Linh gia chúng ta cũng không phải hoàng tộc. Sau này môn chủ Trường Sinh Môn chán ghét hoàng đế khi ấy, trực tiếp phế hoàng đế, chọn tổ tiên ta làm hoàng đế, trực tiếp thay triều đổi đại. Sau này Linh gia ta dốc sức trị quốc, âm thầm phát triển, cuối cùng diệt trừ Trường Sinh Môn, lúc này mới lớn mạnh."
 
 Tần Mục hơi ngẩn ra. Cậu còn không biết Diên Khang quốc vậy mà có một đoạn quá khứ như thế.
 

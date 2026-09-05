@@ -40,7 +40,7 @@ Lãng Uyển Thần Vương khẽ nhíu mày, nhẹ giọng nói: "Nói vậy l�
 
 Thúc Quân im lặng.
 
-Mày Lãng Uyển Thần Vương càng nhíu chặt. Tần Mục chưa từng học thần thức thần thông quả thật nằm ngoài dự liệu của nàng. Nàng vốn cho rằng Thúc Quân là thầy của Tần Mục, chắc chắn sẽ truyền thần thông của Thần Vương cho hắn. Vậy Tần Mục ứng phó khảo nghiệm trước mắt tuy chưa nói là nhẹ nhàng, nhưng chí ít cũng có thể vượt qua.
+Mày Lãng Uyển Thần Vương càng nhíu chặt. Tần Mục chưa từng học thần thức thần thông quả thật nằm ngoài dự liệu của nàng. Nàng vốn cho rằng Thúc Quân là sư phụ của Tần Mục, chắc chắn sẽ truyền thần thông của Thần Vương cho hắn. Vậy Tần Mục ứng phó khảo nghiệm trước mắt tuy chưa nói là nhẹ nhàng, nhưng chí ít cũng có thể vượt qua.
 
 Nàng lại chưa từng nghĩ tới, Tần Mục ngay cả một chiêu thần thức thần thông cũng không biết!
 
@@ -130,11 +130,11 @@ Tần Mục nhíu chặt mày. Tu luyện tới tầng thứ như Xích Hoàng �
 
 Nhân vật như Thái Đế, quái vật do vô số Tạo Vật Chủ cùng đắp nặn mà thành, thần thức của hắn còn mạnh hơn Xích Hoàng. Muốn tiêu diệt hắn quả thật khó khăn vô cùng!
 
-"Vì sao Thái Đế muốn trừ bỏ Tạo Vật Chủ?"
+"Vì sao Thái Đế muốn trừ khử Tạo Vật Chủ?"
 
 Tần Mục không hiểu, hỏi: "Hắn không phải cùng tộc với các ngươi sao?"
 
-"Bởi vì Tạo Vật Chủ thành tựu hắn. Tạo Vật Chủ có thể thành tựu hắn, cũng có thể thành tựu người khác. Vì sự thống trị của mình, hắn nhất định phải trừ bỏ toàn bộ Tạo Vật Chủ ngoài hắn."
+"Bởi vì Tạo Vật Chủ thành tựu hắn. Tạo Vật Chủ có thể thành tựu hắn, cũng có thể thành tựu người khác. Vì sự thống trị của mình, hắn nhất định phải trừ khử toàn bộ Tạo Vật Chủ ngoài hắn."
 
 Lãng Uyển Thần Vương nói ra một sự thật lạnh băng: "Hiện giờ bên ngoài đã qua hơn nửa năm, ngươi cần tăng tốc. Ngươi có thời gian vô cùng vô tận để phá giải lĩnh vực này, có ta ở bên cạnh ngươi. Ta bày ra lĩnh vực thần thức vô thượng, ngay cả ta cũng không thể đi ra."
 

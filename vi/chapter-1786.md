@@ -82,11 +82,11 @@ Tần Mục lại suy nghĩ chốc lát, cười nói: "Vậy theo lời sư huy
 
 Thái Thượng không nói nữa. Đạo Thụ và ông cùng khô tịch, dần dần chìm vào kiếp Phá Diệt, giống như đã hóa đạo.
 
-Tần Mục khẽ cười một tiếng, lắc đầu nói: "Học thầy, thế nào cũng học không giống."
+Tần Mục khẽ cười một tiếng, lắc đầu nói: "Học sư phụ, thế nào cũng học không giống."
 
-Nam Tương lén hỏi: "Thất công tử, Đại công tử học gì của thầy? Mỗi lần gặp ông ấy, ta đều thấp thỏm bất an, không dám nhìn thẳng, luôn cảm thấy như gặp thầy vậy. Ông ấy thật sự rất giống thầy. Vì sao công tử nói ông ấy học không giống?"
+Nam Tương lén hỏi: "Thất công tử, Đại công tử học gì của sư phụ? Mỗi lần gặp ông ấy, ta đều thấp thỏm bất an, không dám nhìn thẳng, luôn cảm thấy như gặp sư phụ vậy. Ông ấy thật sự rất giống sư phụ. Vì sao công tử nói ông ấy học không giống?"
 
-Tần Mục cười nói: "Ông ấy học cái chết của thầy. Đạo tâm thầy đã chết, hóa đạo nhập diệt. Vừa rồi Thái Thượng sư huynh nhìn như đạo tâm chết, hóa đạo rồi, nhưng thế nào cũng không chết được."
+Tần Mục cười nói: "Ông ấy học cái chết của sư phụ. Đạo tâm sư phụ đã chết, hóa đạo nhập diệt. Vừa rồi Thái Thượng sư huynh nhìn như đạo tâm chết, hóa đạo rồi, nhưng thế nào cũng không chết được."
 
 Nam Tương líu lưỡi, sắc mặt cổ quái: "Đại công tử sao lại có tật kỳ quái này? Trước kia ở Di La Cung chẳng nhìn ra..."
 
@@ -126,27 +126,27 @@ Tần Mục cuống quýt đi tới, cười nói: "Ta vẫn luôn muốn có m�
 
 Nam Tương mỉm cười nhìn đôi phu phụ trẻ tựa vào nhau, thầm nghĩ: "Thì ra Thất công tử cũng có tính người. Thất công tử trước kia đều thảm vô nhân tính..."
 
-"Có thể đi gặp thầy rồi!"
+"Có thể đi gặp sư phụ rồi!"
 
-Qua rất lâu, Tần Mục đi ra khỏi kim điện, thần thái phấn chấn, cười nói: "Mời thầy đặt tên cho con gái ta!"
+Qua rất lâu, Tần Mục đi ra khỏi kim điện, thần thái phấn chấn, cười nói: "Mời sư phụ đặt tên cho con gái ta!"
 
 Độ Thế Kim Thuyền cuối cùng tới Di La Cung. Di La Cung hiện nay vẫn lạnh lẽo vắng vẻ. Tần Mục neo Kim Thuyền, Linh Dục Tú ôm con gái, cùng hắn đi về phía Di La Cung.
 
-Nam Tương Nguyên Quân do dự một thoáng, đi theo bọn họ về phía trước, nhìn Di La Cung càng lúc càng gần, trong lòng trăm mối cảm xúc ngổn ngang: "Thầy thật sự đã chết sao? Vậy những việc Tam công tử, Tứ công tử hiện nay đang làm có đúng không? Ngay cả thầy cũng đã mất lòng tin..."
+Nam Tương Nguyên Quân do dự một thoáng, đi theo bọn họ về phía trước, nhìn Di La Cung càng lúc càng gần, trong lòng trăm mối cảm xúc ngổn ngang: "Sư phụ thật sự đã chết sao? Vậy những việc Tam công tử, Tứ công tử hiện nay đang làm có đúng không? Ngay cả sư phụ cũng đã mất lòng tin..."
 
 Nàng theo phu phụ Tần Mục tới trước Di La Cung. Tần Mục gõ cửa, cửa Di La Cung mở ra, Hồng Mông tử khí mờ mịt chấn động. Nam Tương lén nhìn vào trong điện, nhưng không thấy bất kỳ thứ gì.
 
 Phu phụ Tần Mục ôm đứa trẻ đi vào điện. Nam Tương Nguyên Quân nghiến răng, cũng theo bọn họ đi vào Di La Cung.
 
-"Đệ tử đã có hậu nhân, vì vậy dẫn đồ tôn đến bái kiến thầy."
+"Đệ tử đã có hậu nhân, vì vậy dẫn đồ tôn đến bái kiến sư phụ."
 
-Tần Mục bái nói: "Khẩn cầu thầy ban tên cho đồ tôn."
+Tần Mục bái nói: "Khẩn cầu sư phụ ban tên cho đồ tôn."
 
 Nam Tương Nguyên Quân ngẩng đầu nhìn lên, chỉ thấy một gốc Đạo Thụ kết ra mười sáu Đạo quả, chính là Đạo Thụ của Chủ nhân Di La Cung. Dưới Đạo Thụ ấy, một bộ xương khô ngồi kiết già.
 
 Trong lòng Nam Tương Nguyên Quân đau đớn vô cùng, không khỏi quỳ bái xuống, phủ phục thật sâu trên đất.
 
-Chủ nhân Di La Cung, người thầy của tất cả mọi người trong mười sáu vũ trụ kỷ, quả thật như Tần Mục nói, đã hóa đạo nhập diệt!
+Chủ nhân Di La Cung, vị sư phụ của tất cả mọi người trong mười sáu vũ trụ kỷ, quả thật như Tần Mục nói, đã hóa đạo nhập diệt!
 
 Đột nhiên, giọng Chủ nhân Di La Cung truyền tới, nói: "Ngươi bế đứa trẻ lên phía trước, để ta xem."
 
@@ -160,7 +160,7 @@ Bộ xương khô trả đứa trẻ lại cho Linh Dục Tú. Linh Dục Tú v�
 
 Giọng Chủ nhân Di La Cung truyền tới, trong giọng nói vậy mà mang theo vài phần kinh hỉ: "Mục đạo hữu, có lẽ ngươi sinh được một đứa trẻ tốt. Rất tốt, rất tốt... Ta suy diễn tương lai, chỉ thấy một mảnh hư không, không có bất kỳ sinh cơ nào. Có lẽ sinh cơ sẽ ứng trên người con bé."
 
-Ông đối đãi với người khác không tự cho mình là thầy, thường gọi đối phương là đạo hữu, không vì tu vi đối phương thấp hoặc là vãn bối mà xem nhẹ.
+Ông đối đãi với người khác không tự cho mình là sư phụ, thường gọi đối phương là đạo hữu, không vì tu vi đối phương thấp hoặc là vãn bối mà xem nhẹ.
 
 "Con bé ứng kiếp vận mà sinh, lại mang linh tính và sinh cơ của mười lăm vũ trụ kỷ, có lẽ tương lai có khả năng hóa hư không."
 
@@ -168,7 +168,7 @@ Chủ nhân Di La Cung nói: "Ta lấy một chữ Linh, lại lấy một chữ
 
 "Tần Linh Quân?"
 
-Tần Mục rất vui, Linh Dục Tú cũng khá thích, thầm nghĩ: "Còn mang họ Linh nhà ta, thầy thật chu đáo tỉ mỉ."
+Tần Mục rất vui, Linh Dục Tú cũng khá thích, thầm nghĩ: "Còn mang họ Linh nhà ta, sư phụ thật chu đáo tỉ mỉ."
 
 Chủ nhân Di La Cung nói: "Các ngươi có thể trở về. Dọc đường cẩn thận."
 

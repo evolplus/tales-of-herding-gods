@@ -62,7 +62,7 @@ Tất cả mọi người đều không ngờ Tần Mục lại đến Ngọc Ki
 
 Muốn đoán suy nghĩ của một kẻ đầu óc kỳ lạ như Tần Mục, chỉ có thể trước tiên biến đầu óc mình trở nên kỳ lạ giống Tần Mục. Công tử Tử Tiêu tự xem mình rất cao, tự nhiên sẽ không "hạ thấp" đẳng cấp của mình.
 
-"Nhưng nữ tử này nhất định phải trừ bỏ!"
+"Nhưng nữ tử này nhất định phải trừ khử!"
 
 Ánh mắt công tử Tử Tiêu chớp động, truyền âm cho công tử Lăng Tiêu. Lúc này các điện chủ khác của Ngọc Kinh Thành đang lâm vào khổ chiến, thành đạo giả cũng không còn dư sức. Chỉ có công tử Lăng Tiêu có thể vào lúc Nhị công tử Vô Cực ra tay, còn dư lực đánh chết Nguyệt Thiên Tôn, quét sạch hậu hoạn!
 
@@ -84,7 +84,7 @@ Mà mỗi tầng Đạo Vực lại tương ứng với đại đạo thần th�
 
 Có thể đạt thành tựu mà ngay cả Chủ nhân Di La Cung cũng không đạt tới trong một lĩnh vực nào đó, liền có thể xưng là công tử. Công tử Tử Tiêu ở đạo pháp đã đạt tới thành tựu mà Chủ nhân Di La Cung cũng chưa từng có!
 
-Trong vạn ngàn Đạo Vực, công tử Tử Tiêu gần như đồng thời công kích Tần Mục và Nguyệt Thiên Tôn. Công tử Lăng Tiêu ra tay giết Nguyệt Thiên Tôn chỉ là lựa chọn dự phòng. Hắn càng hi vọng mình có thể tự tay giết Nguyệt Thiên Tôn, trừ bỏ cường địch có thể quấy nhiễu đạo tâm mình!
+Trong vạn ngàn Đạo Vực, công tử Tử Tiêu gần như đồng thời công kích Tần Mục và Nguyệt Thiên Tôn. Công tử Lăng Tiêu ra tay giết Nguyệt Thiên Tôn chỉ là lựa chọn dự phòng. Hắn càng hi vọng mình có thể tự tay giết Nguyệt Thiên Tôn, trừ khử cường địch có thể quấy nhiễu đạo tâm mình!
 
 Tần Mục mang theo Nguyệt Thiên Tôn áp sát vào trong vạn ngàn dị vực của hắn, thúc giục lĩnh vực Thần Tàng của mình tới cực hạn, đứng sừng sững ở trung tâm lĩnh vực. Bất kể công tử Tử Tiêu đánh tới từ phương hướng nào, hắn đều có thể ung dung ứng đối.
 

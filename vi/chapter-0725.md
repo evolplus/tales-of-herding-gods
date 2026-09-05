@@ -142,6 +142,6 @@ Hồ Bất Quy áy náy nói: "Ngưu tiền bối..."
 
 "Gọi ta là Ngưu Tam Đa!"
 
-Lão ngưu tức hổn hển nói: "Ta đã nói nhường nước rồi, các ngươi còn muốn thế nào? Mau lên đánh cho thống khoái! Tần Mục, ngươi không muốn cứu thầy ngươi nữa à? Thầy ngươi còn đang trôi trong rãnh thối, không vớt lên nữa thì sẽ bốc mùi đấy!"
+Lão ngưu tức hổn hển nói: "Ta đã nói nhường nước rồi, các ngươi còn muốn thế nào? Mau lên đánh cho thống khoái! Tần Mục, ngươi không muốn cứu sư phụ ngươi nữa à? Sư phụ ngươi còn đang trôi trong rãnh thối, không vớt lên nữa thì sẽ bốc mùi đấy!"
 
 [Xem chương tiếp theo](chapter-0726.md)

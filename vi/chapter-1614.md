@@ -12,7 +12,7 @@ Ngọc Thần Tử phụ trách ngoại giao của Diên Khang, có nghiên cứ
 
 Ở Diên Khang, dưới tay hắn có hẳn một nhóm người chuyên nghiên cứu tính cách, sở thích, điểm yếu, tâm lý, gia đình và bối cảnh của các trọng thần nắm quyền trong Thiên Đình, lập hồ sơ đầy đủ cho từng quyền thần trọng thần.
 
-Đối với Mạnh Vân Quy, hắn biết rất nhiều thông tin. Người này xuất thân nhân tộc ở Vũ Hóa Thiên, từ Vũ Hóa Thiên thành thần rồi tới Thiên Đình làm quan, sau đó lại vào Đạo môn cầu học, bái Đạo Chủ của Đạo môn làm thầy, học thuật số.
+Đối với Mạnh Vân Quy, hắn biết rất nhiều thông tin. Người này xuất thân nhân tộc ở Vũ Hóa Thiên, từ Vũ Hóa Thiên thành thần rồi tới Thiên Đình làm quan, sau đó lại vào Đạo môn cầu học, bái Đạo Chủ của Đạo môn làm sư phụ, học thuật số.
 
 Tạo nghệ của hắn trên thuật số cực cao, có thể nói là cường giả thuật số hàng đầu của Thiên Đình.
 

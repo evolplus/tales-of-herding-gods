@@ -122,7 +122,7 @@ Chủ nhân Di La Cung triệu tập tất cả công tử, điện chủ và b�
 
 Chủ nhân Di La Cung nói với họ rằng Đệ Thập Thất Kỷ tương lai nhất định sẽ hủy diệt, bảo họ trở về vũ trụ sinh ra mình, không cần phải đi đến tương lai nữa.
 
-Trên dưới Di La Cung nhìn nhau, không biết vì sao thầy lại nói ra lời như vậy.
+Trên dưới Di La Cung nhìn nhau, không biết vì sao sư phụ lại nói ra lời như vậy.
 
 Chủ nhân Di La Cung ảm đạm đau lòng, ngồi khô cạn ở đó, trước mọi câu hỏi đều không nói một lời. Trên dưới Di La Cung cãi nhau ầm ĩ, cuối cùng Chủ nhân Di La Cung đứng dậy rời đi.
 
@@ -132,7 +132,7 @@ Hắn đi qua từng dòng Hỗn Độn Trường Hà. Thái Thượng theo sau 
 
 Hắn bước lên từng bậc thềm. Máu thịt trên người biến mất từng chút một. Khi đi lên bậc thềm cuối cùng, hắn đã biến thành một bộ xương khô.
 
-Thái Thượng nghe thấy thầy mình thở dài một tiếng thật dài. Trong tiếng thở dài, hắn ngồi xuống. Đạo Thụ hiện ra sau lưng hắn, mười sáu Đạo quả tỏa ánh sáng u u.
+Thái Thượng nghe thấy sư phụ mình thở dài một tiếng thật dài. Trong tiếng thở dài, hắn ngồi xuống. Đạo Thụ hiện ra sau lưng hắn, mười sáu Đạo quả tỏa ánh sáng u u.
 
 Thái Thượng phục xuống đất khóc lớn.
 
@@ -146,11 +146,11 @@ Bảy vị công tử mỗi người có suy nghĩ riêng.
 
 Công tử Tử Tiêu đứng dậy, phất tay áo rời đi:
 
-"Thầy có thể từ bỏ, nhưng ta vĩnh viễn sẽ không từ bỏ!"
+"Sư phụ có thể từ bỏ, nhưng ta vĩnh viễn sẽ không từ bỏ!"
 
 Ánh mắt công tử Lăng Tiêu chớp động, hắn đứng dậy:
 
-"Thầy từ bỏ lý niệm của mình, nhưng đệ tử có thể kế thừa. Nếu đệ tử cũng từ bỏ, vậy sẽ vĩnh viễn không còn hy vọng! Không có thầy, ta cũng có thể vượt qua kiếp Phá Diệt và kiếp Sáng Sinh!"
+"Sư phụ từ bỏ lý niệm của mình, nhưng đệ tử có thể kế thừa. Nếu đệ tử cũng từ bỏ, vậy sẽ vĩnh viễn không còn hy vọng! Không có sư phụ, ta cũng có thể vượt qua kiếp Phá Diệt và kiếp Sáng Sinh!"
 
 Hắn cũng đứng dậy rời đi.
 
@@ -166,13 +166,13 @@ Di La Cung chỉ còn lại Tần Mục và Thái Thượng. Thái Thượng nh�
 
 Tần Mục mỉm cười, thong thả nói:
 
-"Thầy nhìn khắp tương lai, vì vậy đạo tâm chết đi, nhưng ông không biết rằng sau khi ông quay về kiếp Phá Diệt Đệ Thập Lục Kỷ, sự việc đã xuất hiện vài thay đổi vi diệu."
+"Sư phụ nhìn khắp tương lai, vì vậy đạo tâm chết đi, nhưng ông không biết rằng sau khi ông quay về kiếp Phá Diệt Đệ Thập Lục Kỷ, sự việc đã xuất hiện vài thay đổi vi diệu."
 
 Thái Thượng lại nâng mí mắt, liếc hắn một cái.
 
 Tần Mục đứng dậy, nói:
 
-"Chúng ta có thể quay về kiếp Phá Diệt Đệ Thập Lục Kỷ. Huynh sẽ phát hiện vài thay đổi khác với trước khi thầy bước vào trong kiếp."
+"Chúng ta có thể quay về kiếp Phá Diệt Đệ Thập Lục Kỷ. Huynh sẽ phát hiện vài thay đổi khác với trước khi sư phụ bước vào trong kiếp."
 
 Thái Thượng nửa tin nửa ngờ, đứng dậy cùng hắn vượt qua mười lăm dòng trường hà, đến dòng trường hà thứ mười sáu.
 
@@ -188,7 +188,7 @@ Qua chốc lát, Thái Dịch bị bắt. Công tử Thái Thượng trấn áp 
 
 Tần Mục cười nói:
 
-"Sư huynh, trước khi thầy tiến vào kiếp Sáng Sinh Đệ Thập Thất Kỷ, đã từng xảy ra việc này chưa?"
+"Sư huynh, trước khi sư phụ tiến vào kiếp Sáng Sinh Đệ Thập Thất Kỷ, đã từng xảy ra việc này chưa?"
 
 Công tử Thái Thượng ngẩn ra, lắc đầu.
 
@@ -204,15 +204,15 @@ Ngay lúc này, trong kiếp Phá Diệt đại loạn. Không biết bao nhiêu
 
 Tần Mục đứng bên cạnh hắn, nói:
 
-"Việc này trước khi thầy vào kiếp Sáng Sinh cũng chưa từng xảy ra phải không?"
+"Việc này trước khi sư phụ vào kiếp Sáng Sinh cũng chưa từng xảy ra phải không?"
 
 Thái Thượng vừa kinh vừa giận, lại thấy Vô Cực vậy mà định giết Trạm Tịch, nuốt chửng Trạm Tịch. Hắn đang muốn đi ngăn cản thì Lăng Tiêu, Tử Tiêu, Vô Tông lần lượt kéo đến, vây đánh Vô Cực.
 
-"Việc này trước khi thầy vào kiếp Sáng Sinh cũng chưa từng xảy ra."
+"Việc này trước khi sư phụ vào kiếp Sáng Sinh cũng chưa từng xảy ra."
 
 Ánh mắt Tần Mục chớp động, trầm giọng nói:
 
-"Vậy tương lai Đệ Thập Thất Kỷ mà thầy nhìn thấy còn là tương lai thật sự sao?"
+"Vậy tương lai Đệ Thập Thất Kỷ mà sư phụ nhìn thấy còn là tương lai thật sự sao?"
 
 Thái Thượng không hiểu hắn đang nói gì. Đột nhiên, một chiếc thuyền gỗ khổng lồ phá qua tầng tầng Hỗn Độn, đi vào trường hà, xuất hiện trên chiến trường công tử hỗn chiến.
 
@@ -280,7 +280,7 @@ Nàng không bị thần thông Luân Hồi ảnh hưởng.
 
 Tần Mục mỉm cười. Ánh mắt hắn xuyên qua từng dòng Hỗn Độn Trường Hà, trong lòng thầm nói:
 
-"Thưa thầy, người đã ý thức được chưa? Tương lai mà người nhìn thấy đã thay đổi rồi."
+"Thưa sư phụ, người đã ý thức được chưa? Tương lai mà người nhìn thấy đã thay đổi rồi."
 
 Trong mắt Tần Linh Quân khí Hỗn Độn vấn vít. Nhìn bé gái do Trạm Tịch hóa thành, nàng lập tức thấy rõ mọi trải nghiệm của nàng ấy, cười hì hì:
 
@@ -290,7 +290,7 @@ Bỗng nhiên, trong Di La Cung trên kiếp Phá Diệt Đệ Nhất Kỷ, mộ
 
 Bàn tay lớn ấy hóa thành nút dây đỏ, phong tỏa Đại Uyên.
 
-"Thầy!" Thái Thượng, Lăng Tiêu và mọi người đồng loạt bái xuống.
+"Sư phụ!" Thái Thượng, Lăng Tiêu và mọi người đồng loạt bái xuống.
 
 Khóe mắt Tần Mục giật giật. Dù Chủ nhân Di La Cung đã ra tay trấn áp Vô Cực, nhưng hắn không cảm nhận được đạo tâm của Chủ nhân Di La Cung khôi phục.
 
@@ -302,7 +302,7 @@ Tần Mục khẽ nhíu mày, dẫn Tần Linh Quân và Trạm Tịch nghênh n
 
 Thái Thượng gọi lớn. Ba người Tần Mục lại không dừng lại. Lăng Tiêu khàn giọng nói:
 
-"Nhị tỷ giết Trạm Tịch! Giết nhiều bậc thành đạo như vậy! Vì sao thầy không trừ bỏ tỷ ấy?"
+"Nhị tỷ giết Trạm Tịch! Giết nhiều bậc thành đạo như vậy! Vì sao sư phụ không trừ khử tỷ ấy?"
 
 Tử Tiêu nói:
 

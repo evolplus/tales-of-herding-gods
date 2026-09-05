@@ -2,7 +2,7 @@
 
 Trong buồng điều khiển, hai thân ảnh lên xuống không ngừng. Tần Mục và Ban Công Thố vẫn đang ra tay hiểm độc với đối phương, liều đến ngươi chết ta sống.
 
-Hai người đồng thời nghĩ rằng, đã tạm thời không tìm được lối vào thế giới hiện thực, chi bằng cứ giết chướng ngại của mình trước, trừ bỏ đối phương, sau đó mới có thể toàn tâm toàn ý điều khiển bảo thuyền tìm kiếm lối ra.
+Hai người đồng thời nghĩ rằng, đã tạm thời không tìm được lối vào thế giới hiện thực, chi bằng cứ giết chướng ngại của mình trước, trừ khử đối phương, sau đó mới có thể toàn tâm toàn ý điều khiển bảo thuyền tìm kiếm lối ra.
 
 Nếu không, bị một đại địch như vậy nhìn chằm chằm, bất cứ lúc nào cũng có thể bị đâm sau lưng, quả thật là chuyện đau đầu. Hơn nữa không biết lúc nào sẽ chết vì một sơ suất trong bóng tối.
 
@@ -34,7 +34,7 @@ Hai người một trước một sau, một chạy một đuổi, tốc độ c
 
 Bọn họ nhúc nhích mất nửa ngày, bò được một hai trượng. Đột nhiên Ban Công Thố cuối cùng cũng mò được một món đồ từ Túi Thao Thiết của mình, đó là một hồ lô chứa vu độc.
 
-Ban Công Thố mừng như điên. Đây là vu độc hắn luyện ở kiếp trước, độc tính dữ dội, trừ bỏ Tần Mục dễ như trở bàn tay. Hắn lập tức ngừng bò, khó nhọc xoay người lại, bò về phía Tần Mục.
+Ban Công Thố mừng như điên. Đây là vu độc hắn luyện ở kiếp trước, độc tính dữ dội, trừ khử Tần Mục dễ như trở bàn tay. Hắn lập tức ngừng bò, khó nhọc xoay người lại, bò về phía Tần Mục.
 
 Tần Mục thấy vậy vội quay đầu. Qua hồi lâu, cuối cùng hắn cũng xoay được người, liều mạng bò về phía trước. Thứ Ban Công Thố cầm là vu độc đã luyện xong, còn độc dược trong tay hắn vẫn chỉ là bán thành phẩm, xét độc tính chắc chắn không bằng Ban Công Thố.
 
@@ -116,7 +116,7 @@ Ban Công Thố mỉm cười: "Không cần phiền phức như vậy. Chúng t
 
 Tần Mục gật đầu, nói: "Quả thật là đạo lý này."
 
-Ban Công Thố thầm thở phào: "Vị tân Nhân Hoàng này rốt cuộc vẫn còn trẻ, vẫn không đấu lại ta. Nếu ta ký giao ước Thổ Bá với ngươi, vậy thì chỉ có thể liên thủ với ngươi, làm sao còn cơ hội trừ bỏ ngươi?"
+Ban Công Thố thầm thở phào: "Vị tân Nhân Hoàng này rốt cuộc vẫn còn trẻ, vẫn không đấu lại ta. Nếu ta ký giao ước Thổ Bá với ngươi, vậy thì chỉ có thể liên thủ với ngươi, làm sao còn cơ hội trừ khử ngươi?"
 
 Hai người đều mang quỷ thai trong lòng. Ban Công Thố nói: "Chúng ta phải tìm thuộc hạ của mình, tụ lại một chỗ mới có thực lực tự bảo vệ."
 

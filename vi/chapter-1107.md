@@ -2,7 +2,7 @@
 
 "Vậy Địa Mẫu, việc này bà làm hay không?" Thiên Công hỏi.
 
-Địa Mẫu nghiến răng: "Nếu ta làm, Huyền Đô cũng không còn chỗ dung thân cho ta. Tổ Thần Vương tất sẽ truy sát ta, khiến ta lên trời không đường, xuống đất không cửa! Mục đích ông cứu ta chỉ là lợi dụng ta trừ bỏ thế lực của Thiên Đình trong Huyền Đô!"
+Địa Mẫu nghiến răng: "Nếu ta làm, Huyền Đô cũng không còn chỗ dung thân cho ta. Tổ Thần Vương tất sẽ truy sát ta, khiến ta lên trời không đường, xuống đất không cửa! Mục đích ông cứu ta chỉ là lợi dụng ta diệt trừ thế lực của Thiên Đình trong Huyền Đô!"
 
 Thiên Công nhìn bà, nói: "Sau khi bà làm xong, ta sẽ mượn tức nhưỡng của Tây Đế cho bà."
 

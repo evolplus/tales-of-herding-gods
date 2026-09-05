@@ -212,7 +212,7 @@ Tần Mục ngồi trên đầu Long Kỳ Lân, trị thương cho mình. Rất 
 
 Hắn bị Thiên Công đuổi ra, lúc này cũng không tiện quay về hỏi, đành thôi, thầm nghĩ:
 
-"Vẫn nên về Diên Khang một chuyến trước, để Tiều phu lão sư kiểm tra. Tầm mắt kiến thức của thầy hơn ta gấp trăm lần, nhất định có thể nhìn ra đầu mối. Nếu thật là thủ đoạn giám sát, vậy những chư thần ban phúc của Ngự Thiên Tôn chỉ sợ cũng đều cần gỡ bỏ..."
+"Vẫn nên về Diên Khang một chuyến trước, để Tiều Phu lão sư kiểm tra. Tầm mắt kiến thức của người hơn ta gấp trăm lần, nhất định có thể nhìn ra đầu mối. Nếu thật là thủ đoạn giám sát, vậy những chư thần ban phúc của Ngự Thiên Tôn chỉ sợ cũng đều cần gỡ bỏ..."
 
 Hắn lục tìm trong túi Thao Thiết một phen, cuối cùng tìm được lệnh bài Mục Thiên Tôn và thánh chỉ Thiên Đế do Thiên Đế ban ở trong góc.
 
@@ -222,7 +222,7 @@ Nếu là thủ đoạn giám sát, hành tung của mình chẳng phải sẽ r
 
 Hắn trầm ngâm một lát, lại nhét lệnh bài Mục Thiên Tôn và thánh chỉ Thiên Đế vào túi Thao Thiết:
 
-"Đợi sau khi Tiều phu lão sư kiểm tra Địa Mẫu ban phúc rồi tính! Nhận được Thiên Đế ban phúc, cố nhiên có thêm một thủ đoạn giữ mạng, nhưng tâm ý Thiên Đế khó đoán, không biết là họa hay phúc. Dù sao đã có vết xe đổ của Ngự Thiên Tôn."
+"Đợi sau khi Tiều Phu lão sư kiểm tra Địa Mẫu ban phúc rồi tính! Nhận được Thiên Đế ban phúc, cố nhiên có thêm một thủ đoạn giữ mạng, nhưng tâm ý Thiên Đế khó đoán, không biết là họa hay phúc. Dù sao đã có vết xe đổ của Ngự Thiên Tôn."
 
 Hắn thúc giục Bá Thể Tam Đan Công. Đột nhiên trong cơ thể truyền đến sáu tiếng chấn động ầm ầm, Linh Thai, Ngũ Diệu, Lục Hợp, Thất Tinh, Thiên Nhân và Sinh Tử Thần Tàng ầm ầm mở ra!
 

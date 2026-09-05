@@ -68,7 +68,7 @@ Còn Thái tử có danh mà không có quyền, địa vị không bằng Thiê
 
 Chuyện Hạo Thiên Tôn là con Thiên Đế trong chư thiên vạn giới cũng không phải bí mật, nhưng Hạo Thiên Tôn cam nguyện làm Thái tử, khiến người ta không thể không suy nghĩ nguyên do bên trong.
 
-"Sau khi trừ bỏ Thiên Công, e rằng chẳng bao lâu nữa Thập Thiên Tôn sẽ ra tay với Thiên Đế."
+"Sau khi trừ khử Thiên Công, e rằng chẳng bao lâu nữa Thập Thiên Tôn sẽ ra tay với Thiên Đế."
 
 Có người nhìn ra thế cục, thầm nghĩ: "Thập Thiên Tôn muốn một lần vất vả suốt đời nhàn nhã giải quyết tất cả cổ thần, nắm giữ quyền lực! Nhưng điều khiến người ta khó hiểu là Thiên Đế bệ hạ lẽ nào không nhìn ra? Vì sao còn muốn phong Hạo Thiên Tôn làm Thái tử? Chẳng lẽ lời Tần Thiên Tôn nói là thật?"
 
@@ -162,7 +162,7 @@ Tần Mục mỉm cười nói: "Đại Hắc Sơn của ta cũng để ngươi 
 
 Lang Hiên Thần Hoàng ha hả cười lớn, đặt chén trà xuống, ung dung nói: "Núi hoang nước độc của ngươi toàn ở đám dân xảo quyệt, ta tới đó làm gì? Mục Thiên Tôn, ta cũng không bắt nạt ngươi. Ta học biến pháp ở Diên Khang của ngươi, có rất nhiều vấn đề khó hiểu về đạo pháp thần thông, đáng tiếc ta không tìm được Giang Bạch Khuê hoặc Diên Phong Đế để giải đáp. Ngươi là Mục Thiên Tôn, người cuối cùng trong Diên Khang biến pháp tam kiệt, ngươi đích thân giảng giải cho ta!"
 
-Tần Mục lộ vẻ khó xử, nói: "Ta tuy là Diên Khang tam kiệt, nhưng đã lỗi thời rất nhiều năm rồi. Nếu ngươi muốn học điều tốt nhất, ta đề cử cho ngươi một vị thầy tên là Hư Sinh Hoa, để hắn dạy ngươi. Hư Sinh Hoa đang ở Đại Hắc Mộc Tổ Đình..."
+Tần Mục lộ vẻ khó xử, nói: "Ta tuy là Diên Khang tam kiệt, nhưng đã lỗi thời rất nhiều năm rồi. Nếu ngươi muốn học điều tốt nhất, ta đề cử cho ngươi một vị sư phụ tên là Hư Sinh Hoa, để hắn dạy ngươi. Hư Sinh Hoa đang ở Đại Hắc Mộc Tổ Đình..."
 
 Lang Hiên Thần Hoàng cười lạnh nói: "Ngươi đừng lấy kẻ không đứng đắn ra lừa gạt ta! Ngươi đích thân dạy, nếu không ngươi đừng hòng bước vào Dao Trì của ta nửa bước!"
 

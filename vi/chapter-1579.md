@@ -14,7 +14,7 @@ Chẳng lẽ thế gian thật sự có một con đường không cần Đạo 
 
 Nữ tử dưới mặt biển nói: "Thành đạo không chỉ có một con đường đại đạo hóa thành Đạo Thụ để đi. Nói ra thì thành đạo hóa thành Đạo Thụ thật ra cũng chỉ là hành vi đi đường tắt."
 
-Tần Mục khiêm tốn thỉnh giáo: "Nhị tỷ vì sao nói vậy? Ta quan sát thầy của chúng ta, chủ nhân Di La Cung, ông cũng có Đạo Thụ, vì sao tỷ lại nói là đi đường tắt?"
+Tần Mục khiêm tốn thỉnh giáo: "Nhị tỷ vì sao nói vậy? Ta quan sát sư phụ của chúng ta, chủ nhân Di La Cung, ông cũng có Đạo Thụ, vì sao tỷ lại nói là đi đường tắt?"
 
 "Đạo Thụ là Thế Giới Thụ. Thế gian này đã có Thế Giới Thụ rồi. Khi các ngươi thành đạo, các ngươi nặn đạo của mình thành hình dáng Thế Giới Thụ, chẳng phải là mượn sức Thế Giới Thụ sao?"
 
@@ -32,7 +32,7 @@ Những người này tu luyện phần lớn đều là con đường Đạo Th
 
 "Kẻ tầm thường vẫn là kẻ tầm thường!"
 
-Nữ tử kia cười nhạo nói: "Ngay cả thầy, người đầu tiên tu thành Đạo Thụ, Đạo quả, cũng khó tránh khỏi rơi vào con đường tầm thường này. Tu luyện Đạo Thụ không thể vượt qua đại kiếp Sinh Diệt, vì vậy họ chỉ có thể dựa vào lén vượt. Đến đời thứ hai tu thành viên Đạo quả thứ hai mới có cơ hội sống sót trong đại kiếp Sinh Diệt. Nhưng muốn vào vũ trụ tiếp theo, vẫn chỉ có thể dựa vào lén vượt! Dù là nhân vật như thầy, người tu thành mười sáu viên Đạo quả, thì có thể thế nào?"
+Nữ tử kia cười nhạo nói: "Ngay cả sư phụ, người đầu tiên tu thành Đạo Thụ, Đạo quả, cũng khó tránh khỏi rơi vào con đường tầm thường này. Tu luyện Đạo Thụ không thể vượt qua đại kiếp Sinh Diệt, vì vậy họ chỉ có thể dựa vào lén vượt. Đến đời thứ hai tu thành viên Đạo quả thứ hai mới có cơ hội sống sót trong đại kiếp Sinh Diệt. Nhưng muốn vào vũ trụ tiếp theo, vẫn chỉ có thể dựa vào lén vượt! Dù là nhân vật như sư phụ, người tu thành mười sáu viên Đạo quả, thì có thể thế nào?"
 
 Bà cười lạnh nói: "Ông muốn qua đây, chẳng phải cũng phải dựa vào lén vượt sao? Đây chính là bi ai của hệ thống Đạo Thụ!"
 
@@ -50,11 +50,11 @@ Nữ tử kia thong thả nói: "Đây chính là tệ đoan của việc mượ
 
 "Câm miệng!"
 
-Nữ tử kia giận dữ ngút trời, quát gay gắt: "Chê bai thầy ta, dù ngươi là mạch Quy Khư của ta, ta cũng tuyệt không dung tình!"
+Nữ tử kia giận dữ ngút trời, quát gay gắt: "Chê bai sư phụ ta, dù ngươi là mạch Quy Khư của ta, ta cũng tuyệt không dung tình!"
 
 Nguyên Mẫu phu nhân rùng mình, không dám nịnh bừa nữa.
 
-Nữ tử kia lạnh lùng nói: "Ngươi căn bản không hiểu chủ nhân Di La Cung, không hiểu thầy của ta. Lòng dạ rộng lớn của ông là điều ngươi không thể phỏng đoán. Ông đứng ở đó thôi cũng đủ khiến tất cả mọi người tâm phục, kính ngưỡng. Tuy ta có oán trách ông, bị ông trấn áp, nhưng trong lòng ta không hận ông chút nào."
+Nữ tử kia lạnh lùng nói: "Ngươi căn bản không hiểu chủ nhân Di La Cung, không hiểu sư phụ của ta. Lòng dạ rộng lớn của ông là điều ngươi không thể phỏng đoán. Ông đứng ở đó thôi cũng đủ khiến tất cả mọi người tâm phục, kính ngưỡng. Tuy ta có oán trách ông, bị ông trấn áp, nhưng trong lòng ta không hận ông chút nào."
 
 Nguyên Mẫu phu nhân thè lưỡi, không dám nói chuyện.
 

@@ -22,9 +22,9 @@ Thái Đế khẽ gật đầu, thản nhiên nói: “Nguyên Quân không cầ
 
 Thời Thái cổ, Thái Đế thống trị vũ trụ càn khôn. Tuy hắn tàn bạo vô cùng, nhưng tất cả cổ thần đều là thần tử dưới danh nghĩa của hắn. Vì vậy Địa Mẫu Nguyên Quân vẫn tuân theo cổ chế, gọi hắn là bệ hạ.
 
-Đương nhiên, trong trận chiến Huyết Tú năm xưa thời Thái cổ, Địa Mẫu cũng từng theo Thiên Đế Thái Sơ ra tay, góp sức rất lớn trong chiến dịch diệt trừ Tạo Vật Chủ và trừ bỏ Thái Đế.
+Đương nhiên, trong trận chiến Huyết Tú năm xưa thời Thái cổ, Địa Mẫu cũng từng theo Thiên Đế Thái Sơ ra tay, góp sức rất lớn trong chiến dịch diệt trừ Tạo Vật Chủ và trừ khử Thái Đế.
 
-Thái Đế trầm giọng nói: “Nguyên Quân, vì sao ngươi không trực tiếp trừ bỏ Mục Thiên Tôn? Ngược lại lén lút trộm bảo ấn đi? Với thực lực của ngươi, trực tiếp xuống tay tàn nhẫn, hắn nhất định không phải đối thủ của ngươi.”
+Thái Đế trầm giọng nói: “Nguyên Quân, vì sao ngươi không trực tiếp trừ khử Mục Thiên Tôn? Ngược lại lén lút trộm bảo ấn đi? Với thực lực của ngươi, trực tiếp xuống tay tàn nhẫn, hắn nhất định không phải đối thủ của ngươi.”
 
 Địa Mẫu Nguyên Quân quan sát bảo ấn này, đột nhiên rùng mình, trong mắt lộ vẻ sợ hãi: “Sau lưng Mục Thiên Tôn có người. Trên biển Hỗn Độn, vị đứng sau hắn một đòn bức lui bốn đại Thiên Tôn! Vị kia đáng sợ hơn xa Thập Thiên Tôn! Ta lo vị kia chưa đi xa, nên không dám ra tay với hắn.”
 

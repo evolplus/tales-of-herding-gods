@@ -98,7 +98,7 @@ Dược sư sờ mặt nạ trên mặt, ngạc nhiên nói: "Hắn chạy nhanh
 
 "Thiên Đao lão sư!"
 
-Trong Linh Năng Đối Thiên Kiều, một giọng nói dày nặng vang dội từ Đại Khư truyền tới, chấn động tai người: "Con nhìn thấy thầy rồi, thầy đừng chạy! Trâu xanh, chạy nhanh lên! Lão sư, con có rất nhiều lời muốn nói với thầy... nói... nói..."
+Trong Linh Năng Đối Thiên Kiều, một giọng nói dày nặng vang dội từ Đại Khư truyền tới, chấn động tai người: "Con nhìn thấy sư phụ rồi, người đừng chạy! Trâu xanh, chạy nhanh lên! Lão sư, con có rất nhiều lời muốn nói với người... nói... nói..."
 
 Sắc mặt Đồ phu xám như đất, vội nói: "Bá Sơn đuổi tới rồi, chúng ta mau đi!"
 

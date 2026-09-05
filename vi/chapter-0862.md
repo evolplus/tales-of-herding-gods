@@ -134,7 +134,7 @@ Từng vị thần ma dẫn thần thông giả phương bắc chư thiên nhanh
 
 Đợi bọn họ rời xa Giang Lăng học cung, một vị thần thông giả nói:
 
-"Thưa thầy, chiến thiếp này thật sự lợi hại như vậy sao? Có thể mở ra cho chúng ta xem thử không?"
+"Thưa tiên sinh, chiến thiếp này thật sự lợi hại như vậy sao? Có thể mở ra cho chúng ta xem thử không?"
 
 Thần ma đầu trâu lắc đầu nói:
 

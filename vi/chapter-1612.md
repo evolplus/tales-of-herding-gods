@@ -40,9 +40,9 @@ Hạo Thiên Tôn thở dài: "Lại nói, Hỏa Thiên Tôn dù sao cũng là n
 
 Âm Thiên Tử không khỏi rùng mình, khom người không dám nói.
 
-Khi ấy Hạo Thiên Tôn gặp Thái Đế, một trận ác chiến suýt nữa mất mạng. Các vị Thiên Tôn lớn ở vùng đất Thái Hư đều âm thầm phái nhiều cường giả tìm kiếm Hạo Thiên Tôn, dụng ý chính là nhân lúc Hạo Thiên Tôn trọng thương mà trừ bỏ hắn!
+Khi ấy Hạo Thiên Tôn gặp Thái Đế, một trận ác chiến suýt nữa mất mạng. Các vị Thiên Tôn lớn ở vùng đất Thái Hư đều âm thầm phái nhiều cường giả tìm kiếm Hạo Thiên Tôn, dụng ý chính là nhân lúc Hạo Thiên Tôn trọng thương mà trừ khử hắn!
 
-Sau đó Tần Mục tìm được Hạo Thiên Tôn, truy sát sáu mươi vạn dặm, khiến Hạo Thiên Tôn mất hết thể diện. Hỏa Thiên Tôn và những người khác cũng chưa từng ra tay cứu viện, đều có ý mượn đao Tần Mục để trừ bỏ Hạo Thiên Tôn!
+Sau đó Tần Mục tìm được Hạo Thiên Tôn, truy sát sáu mươi vạn dặm, khiến Hạo Thiên Tôn mất hết thể diện. Hỏa Thiên Tôn và những người khác cũng chưa từng ra tay cứu viện, đều có ý mượn đao Tần Mục để trừ khử Hạo Thiên Tôn!
 
 Lúc ấy địa vị Âm Thiên Tử rất thấp, cũng không dám ra tay giúp.
 

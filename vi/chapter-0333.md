@@ -94,7 +94,7 @@ Trong chuyện này có liên hệ gì không?
 
 Lão què là thần trộm, chân ông bị Quốc sư Diên Khang chém khi vào hoàng cung trộm đồ, khác với Lão mù và Đồ phu bọn họ. Lưỡi của Lão câm không biết bị ai cắt, Lão câm không nói thì không ai biết nguyên do.
 
-Mặt của Dược sư do chính ông cắt đi, cắt đứt dây dưa tình ái. Tai của Lão điếc là do chính ông tự chọc điếc, hận mình hai tai không nghe chuyện ngoài cửa sổ. Tâm ma của Tư bà bà là Lệ Thiên Hành, thầy trò tranh đấu vì dung mạo đẹp như thần. Cánh tay của Mã gia là do chính ông chém đứt để báo ân sư phụ. Những chuyện này đều không liên quan.
+Mặt của Dược sư do chính ông cắt đi, cắt đứt dây dưa tình ái. Tai của Lão điếc là do chính ông tự chọc điếc, hận mình hai tai không nghe chuyện ngoài cửa sổ. Tâm ma của Tư bà bà là Lệ Thiên Hành, sư đồ tranh đấu vì dung mạo đẹp như thần. Cánh tay của Mã gia là do chính ông chém đứt để báo ân sư phụ. Những chuyện này đều không liên quan.
 
 Chỉ riêng Đồ phu và Thôn trưởng, thương tật trên người bọn họ e rằng đều vì cùng một nguyên nhân.
 

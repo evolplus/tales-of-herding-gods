@@ -18,7 +18,7 @@ Ba người bọn họ vừa rồi còn hạ độc thủ với nhau, dáng vẻ
 
 Đó chính là sự ăn ý giữa Thập Thiên Tôn!
 
-Khi không có đại địch, bọn họ sẽ trăm phương nghìn kế chèn ép nhau, tìm cơ hội trừ bỏ đối thủ. Nhưng một khi kẻ địch xuất hiện, bọn họ lập tức là đồng minh trên cùng một chiến tuyến, có thể phó thác tính mạng!
+Khi không có đại địch, bọn họ sẽ trăm phương nghìn kế chèn ép nhau, tìm cơ hội trừ khử đối thủ. Nhưng một khi kẻ địch xuất hiện, bọn họ lập tức là đồng minh trên cùng một chiến tuyến, có thể phó thác tính mạng!
 
 Đó chính là lý do Thập Thiên Tôn vẫn sừng sững không ngã suốt trăm vạn năm!
 

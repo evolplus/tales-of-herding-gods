@@ -38,7 +38,7 @@ Cùng lúc đó, Lâm Hiên Đạo Chủ cũng tỉnh ngộ: "Ta không thể gh
 
 Hắn có phần hưng phấn, lập tức bắt tay đánh số.
 
-Vũ Hồng Tụ nhìn tới hoa mắt chóng mặt, đột nhiên tỉnh ngộ: "Ta theo Nam Đế làm thầy, bản thân lại là bán thần Chu Tước, ghi nhớ phù văn Đại Đạo của các cổ thần khác để làm gì? Vì giống loài khác nhau, tu luyện phù văn Đại Đạo của những cổ thần này đối với ta sẽ làm nhiều công ít. Cách tối ưu của ta hẳn là tới tầng của Nam Đế, học thuộc những phù văn Đại Đạo kia, như vậy có ích cho tu luyện của ta hơn!"
+Vũ Hồng Tụ nhìn tới hoa mắt chóng mặt, đột nhiên tỉnh ngộ: "Ta theo Nam Đế làm sư phụ, bản thân lại là bán thần Chu Tước, ghi nhớ phù văn Đại Đạo của các cổ thần khác để làm gì? Vì giống loài khác nhau, tu luyện phù văn Đại Đạo của những cổ thần này đối với ta sẽ làm nhiều công ít. Cách tối ưu của ta hẳn là tới tầng của Nam Đế, học thuộc những phù văn Đại Đạo kia, như vậy có ích cho tu luyện của ta hơn!"
 
 Cô lập tức đi tới tầng của Nam Đế.
 

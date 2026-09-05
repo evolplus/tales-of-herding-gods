@@ -142,7 +142,7 @@ Trên thân Bỉ Ngạn Phương Chu, một phù văn sáng lên, tiếp đó h�
 
 "Tần tiểu hữu, ngươi đã tính là Tạo Vật Chủ rồi."
 
-Trong đầu Tần Mục, giọng Thúc Quân truyền tới, cảm khái nói: "Thời Thái Cổ, Tạo Vật Chủ có thể quan tưởng sáng tạo ra thần khí phức tạp như vậy cũng không nhiều. Tạo Vật Chủ có tạo nghệ thần thức vượt qua ngươi thì nhiều không đếm xuể, nhưng có thể quan tưởng ra thần khí to lớn phức tạp như thế lại đếm trên đầu ngón tay. Về sự tinh diệu trong vận dụng thần thức, ngươi đã trò giỏi hơn thầy."
+Trong đầu Tần Mục, giọng Thúc Quân truyền tới, cảm khái nói: "Thời Thái Cổ, Tạo Vật Chủ có thể quan tưởng sáng tạo ra thần khí phức tạp như vậy cũng không nhiều. Tạo Vật Chủ có tạo nghệ thần thức vượt qua ngươi thì nhiều không đếm xuể, nhưng có thể quan tưởng ra thần khí to lớn phức tạp như thế lại đếm trên đầu ngón tay. Về sự tinh diệu trong vận dụng thần thức, ngươi đã đệ tử vượt sư phụ."
 
 "Đa tạ Thúc Quân đạo huynh khen ngợi."
 

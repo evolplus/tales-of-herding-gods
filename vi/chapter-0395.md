@@ -78,7 +78,7 @@ Biển mây cuồn cuộn, ập xuống Thuyền Mặt Trời phía dưới. Lin
 
 Mà cái miệng dài ngoằng cắm từ bên ngoài vào màn trời vẫn không ngừng phun thêm càng nhiều Trọng Thân Ma tộc. Linh Dục Tú và Tư Vân Hương đều từng ra chiến trường, từng trải qua sự tôi luyện bằng máu lửa trong trận công phạt Lang Cư Tư quốc. Trận đánh Lang Cư Tư quốc tất nhiên có quy mô lớn lao, hàng vạn quân đoàn va chạm trên hoang nguyên, thần thông giả, cự thú, lâu thuyền, chỉ trong khoảnh khắc va vào nhau đã là máu thịt tung bay.
 
-Thế nhưng chiến trường Lang Cư Tư quốc so với cảnh tượng trước mắt vẫn chỉ là trò nhỏ gặp bậc thầy, chẳng đáng nhắc tới.
+Thế nhưng chiến trường Lang Cư Tư quốc so với cảnh tượng trước mắt vẫn chỉ là trò nhỏ gặp cao nhân, chẳng đáng nhắc tới.
 
 "Giết!"
 

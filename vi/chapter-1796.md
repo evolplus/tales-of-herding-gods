@@ -124,7 +124,7 @@ Thiên Công bày năm mươi chí bảo Thiên Đạo ra, nói: "Vận hành Th
 
 Nàng liếc Thiên Công một cái, không nói tiếp.
 
-Năm xưa Thiên Công và cha nàng làm chủ, đưa nàng cho Khai Hoàng Tần Nghiệp làm con dâu nuôi từ nhỏ. Quan hệ giữa nàng và Khai Hoàng Tần Nghiệp cực kỳ vi diệu, vừa là thầy vừa là bạn. Những năm đầu, nàng từng đơn phương yêu Khai Hoàng Tần Nghiệp, nhưng Khai Hoàng Tần Nghiệp đã có người trong lòng, từ chối nàng. Sau đó, cánh cửa lòng nàng mới bị Âm Thiên Tử Âm Triều Cận thừa cơ bước vào.
+Năm xưa Thiên Công và cha nàng làm chủ, đưa nàng cho Khai Hoàng Tần Nghiệp làm con dâu nuôi từ nhỏ. Quan hệ giữa nàng và Khai Hoàng Tần Nghiệp cực kỳ vi diệu, vừa là sư phụ vừa là bằng hữu. Những năm đầu, nàng từng đơn phương yêu Khai Hoàng Tần Nghiệp, nhưng Khai Hoàng Tần Nghiệp đã có người trong lòng, từ chối nàng. Sau đó, cánh cửa lòng nàng mới bị Âm Thiên Tử Âm Triều Cận thừa cơ bước vào.
 
 Nhưng tình cảm đầu đời ấy vẫn cất giấu trong lòng nàng.
 

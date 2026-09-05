@@ -90,7 +90,7 @@ Nam Tương Nguyên Quân phá hỏng Di La Hợp Đạo, lập tức nhân lo�
 
 Tần Phượng Thanh khống chế Lục Đạo Thiên Luân, rảnh ra hai cánh tay, hành lễ với Nam Tương Nguyên Quân: "Đệ đệ ta từng nói, Nam Tương Nguyên Quân nhất định sẽ ra tay tương trợ vào thời khắc nguy nan. Quả nhiên không phải lời hư."
 
-Nam Tương Nguyên Quân hoàn lễ, nói: "Nam Tương không phải giúp Thất công tử, mà là giúp Di La Cung. Di La Cung ngày nay đã không còn khí tượng và khí độ khi thầy còn tại thế, cũng đã đi ngược lý niệm của thầy. Xin chư quân yên tâm, sau trận này, bất kể thắng bại, Nam Tương đều sẽ như thầy, hóa đi một thân đạo hạnh, trở về với trời đất."
+Nam Tương Nguyên Quân hoàn lễ, nói: "Nam Tương không phải giúp Thất công tử, mà là giúp Di La Cung. Di La Cung ngày nay đã không còn khí tượng và khí độ khi sư phụ còn tại thế, cũng đã đi ngược lý niệm của sư phụ. Xin chư quân yên tâm, sau trận này, bất kể thắng bại, Nam Tương đều sẽ như sư phụ, hóa đi một thân đạo hạnh, trở về với trời đất."
 
 Tần Phượng Thanh nói: "Nguyên Quân có thể chuyển thế, Diên Khang tương lai cũng cần một bậc như Nguyên Quân."
 
@@ -134,7 +134,7 @@ Nam Tương Nguyên Quân nhanh chóng nói: "Còn có dị bảo Phi Yên, là 
 
 Hoa Đô dẫn mọi người xông ra khỏi thành, nghe vậy liền cao giọng nói: "Ngươi nhất định phải đẩy đám đồng môn chúng ta vào chỗ chết sao? Dù nói người mỗi chí, nhưng ngươi không nghĩ tới tình đồng đạo ngày trước sao?"
 
-Nam Tương Nguyên Quân nhìn bọn Di La Cung đang đánh tới. Tất cả đều là gương mặt quen thuộc. Nàng thầm thở dài, nói luôn dị bảo của Ngũ công tử và Lục công tử một lượt, rồi nói: "Những dị bảo này tuy không phải đạo binh, nhưng uy lực cực mạnh, không thể không phòng. Trong thành còn có dị bảo của Thất công tử, giấu dưới bồ đoàn của thầy, Chủ nhân Di La Cung. Tìm được bảo vật này, các ngươi sẽ có phần thắng."
+Nam Tương Nguyên Quân nhìn bọn Di La Cung đang đánh tới. Tất cả đều là gương mặt quen thuộc. Nàng thầm thở dài, nói luôn dị bảo của Ngũ công tử và Lục công tử một lượt, rồi nói: "Những dị bảo này tuy không phải đạo binh, nhưng uy lực cực mạnh, không thể không phòng. Trong thành còn có dị bảo của Thất công tử, giấu dưới bồ đoàn của sư phụ, Chủ nhân Di La Cung. Tìm được bảo vật này, các ngươi sẽ có phần thắng."
 
 Nàng đứng thẳng dậy, đáp xuống trước trận, khom người thi lễ với Hoa Đô điện chủ và những người khác: "Tuy ta vì khác biệt lý niệm mà đối địch với chư quân, nhưng thật sự không vượt qua nổi ải đạo tâm của mình, không nỡ ra tay với chư quân. Ta đã phản bội đồng môn, tất nên hóa đạo mà đi. Kiếp sau, ta sẽ không còn nhận ra chư quân nữa."
 

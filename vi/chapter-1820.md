@@ -150,7 +150,7 @@ Nói không chừng chiếc bồ đoàn này thật sự là Tần Mục tặng 
 
 Danh tiếng của Tần Mục trong quá khứ không tốt, lập tức khiến bọn họ có liên tưởng không lành.
 
-"Thất công tử tặng bồ đoàn cho thầy, nhất định là mượn đại đạo của thầy để luyện bồ đoàn thành chí bảo!"
+"Thất công tử tặng bồ đoàn cho sư phụ, nhất định là mượn đại đạo của sư phụ để luyện bồ đoàn thành chí bảo!"
 
 "Đặt bồ đoàn xuống!"
 
@@ -174,7 +174,7 @@ Cũng tức là Tần Mục căn bản chưa từng luyện dị bảo này. Ng�
 
 Tần Mục chỉ mượn tay bọn họ để luyện thành bảo vật này cho mình!
 
-"Truyền thuyết trong Ngọc Kinh Thành rằng thầy trấn áp dị bảo của Thất công tử, đè dị bảo của hắn dưới bồ đoàn, phần lớn chính là do Thất công tử tự mình tung ra!"
+"Truyền thuyết trong Ngọc Kinh Thành rằng sư phụ trấn áp dị bảo của Thất công tử, đè dị bảo của hắn dưới bồ đoàn, phần lớn chính là do Thất công tử tự mình tung ra!"
 
 Năm người Hoa Đô trong chớp mắt đã nghĩ rõ ngọn nguồn trước sau của chuyện này, sắc mặt đại biến. Chỉ thấy luồng khí hỗn độn kia bị bảo vật hấp thu, dị bảo của Thất công tử cuối cùng cũng hiện ra.
 

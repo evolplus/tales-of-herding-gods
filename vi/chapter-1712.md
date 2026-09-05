@@ -194,7 +194,7 @@ Lam Ngự Điền kể lại điều mình thấy. Nguyệt Thiên Tôn, Lãng U
 
 Diêm Thiếu Thanh nói với hắn: “Vân Thiên Tôn đã tới Vân phủ. Về sau, ông ấy cùng Vân Tiêu phu nhân đi ra, rời về phía đông.”
 
-Tần Mục trầm mặc một lát, lộ ra nụ cười, nhìn quanh trái phải rồi cười nói: “Vân Thiên Tôn thần long thấy đầu chẳng thấy đuôi. Huynh ấy trừ bỏ Nhị công tử, trọng thương Hạo Thiên Đế, buộc Hạo Thiên Đế không thể không làm chó cho Tam công tử, Tứ công tử Di La Cung. Huynh ấy đã công thành, nhưng không muốn danh toại, cho nên mang theo Vân Tiêu phu nhân đi ẩn cư rồi.”
+Tần Mục trầm mặc một lát, lộ ra nụ cười, nhìn quanh trái phải rồi cười nói: “Vân Thiên Tôn thần long thấy đầu chẳng thấy đuôi. Huynh ấy trừ khử Nhị công tử, trọng thương Hạo Thiên Đế, buộc Hạo Thiên Đế không thể không làm chó cho Tam công tử, Tứ công tử Di La Cung. Huynh ấy đã công thành, nhưng không muốn danh toại, cho nên mang theo Vân Tiêu phu nhân đi ẩn cư rồi.”
 
 Hắn ngẩng đầu nhìn trời, cười nói: “Thật là một đôi quyến lữ khiến người ta ngưỡng mộ. Không biết khi nào ta mới có thể tiêu dao tự tại giống họ?”
 

@@ -96,7 +96,7 @@ Chủ điện Trường Phong nghe lời này thì hơi ngẩn ra, thân hình t
 
 "Không phải Thất công tử?"
 
-Chủ điện Trường Phong kinh ngạc, cẩn thận đánh giá Lam Ngự Điền ở mũi thuyền, tán thưởng: "Tu vi thực lực của ngươi không yếu. Từ dao động thần kinh trong đại não của ngươi, ta nhìn thấy trí tuệ của ngươi. Nếu thầy ở đây, nhất định sẽ rất thưởng thức ngươi, nói không chừng ngươi sẽ trở thành một thành viên của Di La Cung. Ngươi và ta có thể biến can qua thành ngọc lụa, ta có thể tiến cử ngươi với các công tử khác của Di La Cung, tương lai cùng mưu đại sự."
+Chủ điện Trường Phong kinh ngạc, cẩn thận đánh giá Lam Ngự Điền ở mũi thuyền, tán thưởng: "Tu vi thực lực của ngươi không yếu. Từ dao động thần kinh trong đại não của ngươi, ta nhìn thấy trí tuệ của ngươi. Nếu sư phụ ở đây, nhất định sẽ rất thưởng thức ngươi, nói không chừng ngươi sẽ trở thành một thành viên của Di La Cung. Ngươi và ta có thể biến can qua thành ngọc lụa, ta có thể tiến cử ngươi với các công tử khác của Di La Cung, tương lai cùng mưu đại sự."
 
 Lam Ngự Điền lắc đầu: "Ta không cần ngươi tiến cử, ca ta chính là Thất công tử Di La Cung của các ngươi."
 

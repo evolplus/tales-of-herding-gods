@@ -28,7 +28,7 @@ Kinh Yến cười nói: "Vương Mộc Nhiên có thù với Quốc sư, Đại
 
 Kinh Yến tiếp tục nói: "Hoàng đế cũng rất vui, tuy không thể tự mình chạy tới, nhưng truyền lệnh các đại học cung, triệu tập sĩ tử có tạo nghệ thuật số cao nhất đến hỗ trợ. Hoàng đế lại nói chuyện này cho Tiều Phu Thánh Nhân, Thánh Nhân cũng đi giúp."
 
-"Hoàng đế cũng rất vui? Thầy ta cũng đi?"
+"Hoàng đế cũng rất vui? Sư phụ ta cũng đi?"
 
 Tần Mục hừ trầm, trong lòng căm giận: "Tiều Phu lão sư đi qua cũng là để đè bớt ngọn gió của ta? Ta đáng ra nên để ông ấy mục trong rãnh nước! Không đúng, sở dĩ Tiều Phu lão sư hớn hở đi tìm Vũ Đấu Thiên Sư, e là vì Hư Sinh Hoa cùng bọn họ hoàn thành Kiến Mộc Tiên Thiên Thần Kiều, cho nên ông ấy mới có lòng tin đi tìm Vũ Đấu Thiên Sư. Nhưng ông ấy không ngờ Vũ Đấu Thiên Sư căn bản không nghe, trực tiếp đánh ông ấy tàn phế rồi ném vào rãnh bẩn. Đáng đời!"
 

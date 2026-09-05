@@ -24,7 +24,7 @@ Trong đầu Tần Mục vang lên một trận nổ ầm. Hắn vậy mà nhìn
 
 Lăng Thiên Tôn vậy mà cũng ở trong số các bậc thành đạo của tòa thần thành này, sao có thể như vậy?
 
-Nhưng hắn quen thuộc với Lăng Thiên Tôn đến bậc nào? Hai người vừa là thầy vừa là bạn. Năm xưa Tần Mục chỉ điểm nàng đạo tạo hóa, khích lệ nàng khai sáng Bất Dịch thần thông. Về sau Lăng Thiên Tôn truyền đạo pháp thần thông cho hắn, đồng thời đưa hắn trở về đầu thời Long Hán!
+Nhưng hắn quen thuộc với Lăng Thiên Tôn đến bậc nào? Hai người vừa là sư phụ vừa là bằng hữu. Năm xưa Tần Mục chỉ điểm nàng đạo tạo hóa, khích lệ nàng khai sáng Bất Dịch thần thông. Về sau Lăng Thiên Tôn truyền đạo pháp thần thông cho hắn, đồng thời đưa hắn trở về đầu thời Long Hán!
 
 Hắn tuyệt đối không nhận lầm!
 

@@ -2,7 +2,7 @@
 
 Long Kỳ Lân lấy Hồ Thiên Bình xuống, dùng Hồng Mông nguyên dịch chữa thương cho Đồ phu. Lão câm và Lão mù cười hì hì mãi không thôi. Lão câm khoa tay nói: "Công pháp cấp Đế Tọa của ông đã hoàn thành rồi, sao không truyền thẳng cho Mục nhi, lại cứ ép con dùng đao nhập đạo?"
 
-Đồ phu lại lấy đan dược Dược sư luyện cho ông, uống vào để ổn định nguyên khí tán loạn, bồi bổ Thần Tàng và Thiên Cung, lắc đầu nói: "Các ông biết cái rắm. Công pháp là ta sáng ra, hợp với ta, chưa chắc đã hợp với con. Người thầy tốt nhất không phải là dạy con công pháp của mình, mà là để con tham ngộ ra con đường thuộc về chính mình."
+Đồ phu lại lấy đan dược Dược sư luyện cho ông, uống vào để ổn định nguyên khí tán loạn, bồi bổ Thần Tàng và Thiên Cung, lắc đầu nói: "Các ông biết cái rắm. Công pháp là ta sáng ra, hợp với ta, chưa chắc đã hợp với con. Vị sư phụ tốt nhất không phải là dạy con công pháp của mình, mà là để con tham ngộ ra con đường thuộc về chính mình."
 
 Ông ngẩng đầu nhìn Tần Mục trên bầu trời đang suy nghĩ tên gọi tầng trời thứ nhất của đao đạo, nói: "Đại đồ đệ Bá Sơn của ta không được, về đao đạo còn thiếu chút ý vị, chỉ có thể đi đường lệch, hợp nhất chiến pháp, cũng có thể thành đại tông sư, cho nên ta có thể truyền công pháp của ta cho nó. Nhưng Mục nhi thì khác, con có thể đi xa hơn, vì vậy nhất định phải tự mình lĩnh ngộ."
 
@@ -84,7 +84,7 @@ Tần Mục trịnh trọng gật đầu. Trong Linh Thai Thần Tàng, Đao Đ�
 
 Đồ phu chưa từng truyền công pháp cho hắn, chỉ dẫn dắt hắn bước vào đao đạo. Tòa Đao Đạo Thiên Cung này chỉ có thể dựa vào Tần Mục tự mình hoàn thiện.
 
-Cách dạy của Đồ phu dã man, trực tiếp, không phải người thầy tốt nhất, nhưng cũng là người thầy tốt nhất.
+Cách dạy của Đồ phu dã man, trực tiếp, không phải vị sư phụ tốt nhất, nhưng cũng là vị sư phụ tốt nhất.
 
 Tần Mục nhắm mắt lại. Trong Đao Đạo Thiên Cung, từng tòa kiến trúc mọc lên từ đất bằng, thần cung thần điện hình thành giữa đao khí tung hoành, Dao Trì Dao Đài nhanh chóng được dựng nên, tiếp đó hình thành Trảm Thần Đài, Ngọc Kinh Thành.
 

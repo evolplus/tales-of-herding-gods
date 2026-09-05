@@ -42,7 +42,7 @@ Mà Tần Mục biết thân phận thật của nàng, cũng có thủ đoạn 
 
 Tuy nàng có phần thưởng thức Tần Mục, cũng rất cảm kích khi mình còn là Thước Phi Nhân, Tần Mục từng ra tay giúp mình, nhưng thưởng thức và cảm kích đến đâu cũng không quan trọng bằng tính mạng của chính nàng.
 
-Vì vậy, nàng muốn mượn tay Âm Thiên Tử trừ bỏ Tần Mục, rồi đoạt lấy Luân Hồi Chung của Âm Thiên Tử.
+Vì vậy, nàng muốn mượn tay Âm Thiên Tử trừ khử Tần Mục, rồi đoạt lấy Luân Hồi Chung của Âm Thiên Tử.
 
 Nhưng hiển nhiên Tần Mục đã nhìn thấu kế sách của nàng, nên cố ý dẫn Âm Thiên Tử tấn công thần thành, đánh vỡ tường thành. Nếu Tần Mục và Âm Cửu Tôn mang theo Luân Hồi Chung xông vào trong thành, e rằng thiên binh thiên tướng trong thành và đại quân Tây Lạc Sư Môn đều sẽ thương vong thảm trọng!
 
@@ -54,7 +54,7 @@ Với trí tuệ như bọn họ, không cần nói toạc ra cũng biết suy n
 
 Bạch Ngọc Quỳnh mời hắn vào trong thành, vuốt lại tóc mai. Nữ tử này vẫn thích một thân áo trắng, rất thanh, rất nhã, nói: “Mục Thiên Tôn không sợ chết sao? Kẻ thù của ngài rất nhiều. Có vài người vốn không phải kẻ thù của ngài, nhưng giết ngài có lợi lớn cho họ, họ cũng sẽ vì lợi ích mà ra tay với ngài.”
 
-Tần Mục ngây ngẩn nhìn nơi xa, buồn bã nói: “Vì xã tắc gia quốc, không thể không phạm hiểm. Ta cũng biết vùng đất Thái Hư này là nơi man di, đám loạn đảng ấy đều muốn trừ bỏ ta...”
+Tần Mục ngây ngẩn nhìn nơi xa, buồn bã nói: “Vì xã tắc gia quốc, không thể không phạm hiểm. Ta cũng biết vùng đất Thái Hư này là nơi man di, đám loạn đảng ấy đều muốn trừ khử ta...”
 
 Bạch Ngọc Quỳnh liếc hắn một cái, thản nhiên nói: “Mục Thiên Tôn ở trước mặt ta không cần cẩn thận như vậy. Tâm ý của ngài ta đều hiểu. Việc ngài làm, ta cũng đều nhìn thấy. Cần gì giả vờ giả vịt?”
 

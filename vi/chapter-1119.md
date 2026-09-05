@@ -102,7 +102,7 @@ Dư Sơ Độ do dự một chút, đánh giá Tần Mục, nói: “Ta chưa t�
 
 “Cháu có hai vị sư thúc cơ, sau này ta sẽ từ từ kể cho cháu.”
 
-Tần Mục búng tay một cái. Mấy lão thần trông coi Vân La Cung chìm vào giấc ngủ, ký ức cũng bị hắn sửa đổi, xóa đi ký ức từng gặp bọn Tần Mục. Hắn cười nói: “Chúng ta đi thôi. Thiên Long bảo liễn không thể dùng nữa. Ngồi bảo liễn chắc chắn sẽ để lại dấu vết, bị người ta nhìn thấy, Hạo Thiên Tôn liền biết là ta ra tay trừ bỏ đệ tử của hắn. Dư sư điệt, cháu biết có con đường tắt nào có thể rời khỏi nơi này, nhanh chóng quay về Thiên Đình không?”
+Tần Mục búng tay một cái. Mấy lão thần trông coi Vân La Cung chìm vào giấc ngủ, ký ức cũng bị hắn sửa đổi, xóa đi ký ức từng gặp bọn Tần Mục. Hắn cười nói: “Chúng ta đi thôi. Thiên Long bảo liễn không thể dùng nữa. Ngồi bảo liễn chắc chắn sẽ để lại dấu vết, bị người ta nhìn thấy, Hạo Thiên Tôn liền biết là ta ra tay trừ khử đệ tử của hắn. Dư sư điệt, cháu biết có con đường tắt nào có thể rời khỏi nơi này, nhanh chóng quay về Thiên Đình không?”
 
 “Bẩm sư thúc, con đường gần nhất là đi từ Trung Ương Thần Châu trong Cửu Châu, tức Ký Châu Bạch Thổ. Nơi đó có một cây cầu Linh Năng Đối Thiên thông tới Bạch Đế Thiên Cung. Nếu đi từ tinh không, e là phải đi năm sáu chục năm mới tới Thiên Đình.”
 

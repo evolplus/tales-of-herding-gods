@@ -90,7 +90,7 @@ Nếu vậy, tư chất thiên phú của Vân Thiên Tôn khó tránh khỏi qu
 
 "Còn một điểm nữa, nếu Thái Đế thật sự muốn ngươi chết, vậy ngươi không thể tránh khỏi độc thủ của Thái Đế."
 
-Ánh mắt Tần Mục chớp động, nhìn nguyên thần đạo hữu trước mặt, nói: "Đạo Thụ không giết ngươi, Thái Đế lại có thể giết ngươi! Nếu ta là Thái Đế, thấy tư chất tài tình của ngươi yêu nghiệt như vậy, nhất định sẽ trừ bỏ ngươi ngay lập tức!"
+Ánh mắt Tần Mục chớp động, nhìn nguyên thần đạo hữu trước mặt, nói: "Đạo Thụ không giết ngươi, Thái Đế lại có thể giết ngươi! Nếu ta là Thái Đế, thấy tư chất tài tình của ngươi yêu nghiệt như vậy, nhất định sẽ trừ khử ngươi ngay lập tức!"
 
 Vân Thiên Tôn gật đầu: "Thái Đế quả thật có thủ đoạn này. Nhưng..."
 

@@ -78,7 +78,7 @@ Mà lần này, hắn thẳng thừng xông vào. Cát đen trong đại mạc v
 
 Tần Mục bình bình an an đi tới trung tâm đại mạc, đến trước khoáng mạch Thái Cực.
 
-Cổ thần trong khoáng mạch Thái Cực giật mình, lặng lẽ quan sát: “Tên này sao lại tới đây? Chẳng lẽ biết ta lừa hắn đến Đại Hắc Mộc nộp mạng nên đến báo thù rửa hận? Hay là hắn biết được âm mưu của ta và Thái Tố, đến trừ bỏ ta?”
+Cổ thần trong khoáng mạch Thái Cực giật mình, lặng lẽ quan sát: “Tên này sao lại tới đây? Chẳng lẽ biết ta lừa hắn đến Đại Hắc Mộc nộp mạng nên đến báo thù rửa hận? Hay là hắn biết được âm mưu của ta và Thái Tố, đến trừ khử ta?”
 
 Nhưng điều khiến vị cổ thần kia khó hiểu là Tần Mục thẳng thừng xuyên qua khoáng mạch, lang thang không mục đích đi vào đại mạc cát trắng.
 

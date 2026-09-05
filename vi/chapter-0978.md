@@ -126,7 +126,7 @@ Sắc mặt nàng bình tĩnh. Tần Mục kỹ càng quan sát gương mặt n�
 
 Tần Mục thản nhiên nói: "Không dám giấu, ở ngoại giới ta có thân phận rất lớn. Lần này vào Thái Hư quả thật là tới tìm Vô Ưu Hương, không ngờ cơ duyên xảo hợp lại vào chỗ kẻ địch của Vô Ưu Hương, càng không ngờ ta sẽ trở thành Thánh Anh. Nhưng điều khiến ta không ngờ nhất là Lãng Uyển Thần Vương xinh đẹp như vậy, lại thông minh như vậy. Thần Vương định xử trí ta thế nào?"
 
-Lãng Uyển Thần Vương lại xoay người, tiếp tục đi về phía trước, nói: "Ngươi là Thánh Anh, ta sao lại xử trí ngươi? Chỉ khi ngươi gây hại cho tộc ta, ta mới trừ bỏ ngươi, rồi tạo thêm một Thánh Anh."
+Lãng Uyển Thần Vương lại xoay người, tiếp tục đi về phía trước, nói: "Ngươi là Thánh Anh, ta sao lại xử trí ngươi? Chỉ khi ngươi gây hại cho tộc ta, ta mới trừ khử ngươi, rồi tạo thêm một Thánh Anh."
 
 Tần Mục rùng mình.
 

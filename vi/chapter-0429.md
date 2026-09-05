@@ -62,7 +62,7 @@ Bạch Khích Thần Kỳ cười lạnh:
 
 Tần Mục thở dài:
 
-"Mặt trăng kia là bảo vật do thần thời Khai Hoàng luyện chế, trong mặt trăng sao có thể không có thần thông? Mặt trăng là thái âm, mà khí thái âm giỏi hủy hoại nhục thân người ta nhất. Giấu bệnh sợ thầy, không ngờ một vị thần chỉ đường đường cũng tầm thường như vậy."
+"Mặt trăng kia là bảo vật do thần thời Khai Hoàng luyện chế, trong mặt trăng sao có thể không có thần thông? Mặt trăng là thái âm, mà khí thái âm giỏi hủy hoại nhục thân người ta nhất. Giấu bệnh sợ sư phụ, không ngờ một vị thần chỉ đường đường cũng tầm thường như vậy."
 
 Dứt lời, cậu phất tay áo bỏ đi.
 
@@ -108,7 +108,7 @@ Hai mắt Bạch Khích Thần Kỳ sáng rực, nhìn cậu chằm chằm, gi�
 
 Tần Mục bước lên trước, kiểm tra tỉ mỉ một lượt rồi lắc đầu:
 
-"Ta đã nói là ngươi giấu bệnh sợ thầy, ngươi lại không tin ta. Mặt trăng của Thuyền Mặt Trăng há dễ chịu sao? Ngươi bị mặt trăng gây thương tích, nếu sớm mời ta chữa trị, cái chân này còn giữ được. Bây giờ thì không xong rồi, máu thịt đã thối, tủy xương cũng chết, chỉ có thể chặt bỏ cái chân này mới tránh được tiếp tục thối rữa."
+"Ta đã nói là ngươi giấu bệnh sợ sư phụ, ngươi lại không tin ta. Mặt trăng của Thuyền Mặt Trăng há dễ chịu sao? Ngươi bị mặt trăng gây thương tích, nếu sớm mời ta chữa trị, cái chân này còn giữ được. Bây giờ thì không xong rồi, máu thịt đã thối, tủy xương cũng chết, chỉ có thể chặt bỏ cái chân này mới tránh được tiếp tục thối rữa."
 
 Khóe mắt Bạch Khích Thần Kỳ run lên. Hắn nhìn cậu chằm chằm, nhưng thấy thần sắc cậu không giống giả vờ, bèn suy sụp nói:
 

@@ -30,7 +30,7 @@ Tần Mục ngây như phỗng.
 
 Thiếu niên này chính là thiếu niên tổ sư của Thiên Thánh giáo. Chẳng biết ông chuyển thế từ khi nào, tái sinh hóa thành thiếu niên, hơn nữa còn thành đệ tử trên danh nghĩa của hắn!
 
-Tư bà bà chớp mắt, cười nói: “Văn Nguyên bây giờ rất khá, ở Văn Đạo Viện cũng rất xuất sắc. Dĩ nhiên, ta là thầy của Mục nhi, cũng chính là tổ sư của ông ấy.”
+Tư bà bà chớp mắt, cười nói: “Văn Nguyên bây giờ rất khá, ở Văn Đạo Viện cũng rất xuất sắc. Dĩ nhiên, ta là sư phụ của Mục nhi, cũng chính là tổ sư của ông ấy.”
 
 Trong lòng bà khá đắc ý.
 

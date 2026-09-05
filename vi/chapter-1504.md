@@ -100,7 +100,7 @@ Khai Hoàng gần như là vị thần trong lòng của tất cả cường gi�
 
 “Ông muốn ra tay, phá vị thần trong lòng, nhưng lại không dám ra tay, bởi vì ông cảm thấy chỉ cần mình xuất kiếm, bất cứ kiếm chiêu nào cũng đều sai.”
 
-Khai Hoàng nhìn tay Thôn trưởng. Bàn tay ấy vẫn đang run rẩy, vẫn không thể nắm lấy kiếm của mình. Ông trầm giọng nói: “Nhưng ông chưa từng nghĩ, Mục Thiên Tôn không phải do ta dạy ra. Kiếm đạo của hắn là do ông rèn dạy, ông mới là thầy của hắn. Trong lòng hắn căn bản không có vị thần trong lòng nào, Kiếm đạo của hắn căn bản không có vị thần là ta chắn đường.”
+Khai Hoàng nhìn tay Thôn trưởng. Bàn tay ấy vẫn đang run rẩy, vẫn không thể nắm lấy kiếm của mình. Ông trầm giọng nói: “Nhưng ông chưa từng nghĩ, Mục Thiên Tôn không phải do ta dạy ra. Kiếm đạo của hắn là do ông rèn dạy, ông mới là sư phụ của hắn. Trong lòng hắn căn bản không có vị thần trong lòng nào, Kiếm đạo của hắn căn bản không có vị thần là ta chắn đường.”
 
 Giọng Thôn trưởng Tô Mạc Già khàn khàn già nua, rít lên: “Kiếm đạo của hắn chưa tu luyện tới cảnh giới cao thâm, vì vậy khó nhìn thấy vị đại thần như ngươi chắn ở phía trước...”
 
@@ -116,7 +116,7 @@ Tầng trời thứ hai mươi chín của Kiếm đạo cứ như vậy đượ
 
 “Thiên tài Kiếm đạo như vậy là do ông dạy ra, là do ông bồi dưỡng ra, ta không dạy được.”
 
-Bàn tay Khai Hoàng đặt lên chuôi Vô Ưu Kiếm, trầm giọng nói: “Ông có thể dạy ra đệ tử tuyệt đại vô song như vậy, vậy mà trước mặt ta ngay cả kiếm cũng không dám rút sao? Chính ông nói với hắn hắn là Bá Thể, chính ông bồi dưỡng lòng tin vô địch cho hắn, chính ông dạy hắn cách làm người làm việc. Hắn không có vị thần trong lòng chính là nhờ ông vun trồng. Chẳng lẽ người thầy như ông lại không làm được? Rút kiếm!”
+Bàn tay Khai Hoàng đặt lên chuôi Vô Ưu Kiếm, trầm giọng nói: “Ông có thể dạy ra đệ tử tuyệt đại vô song như vậy, vậy mà trước mặt ta ngay cả kiếm cũng không dám rút sao? Chính ông nói với hắn hắn là Bá Thể, chính ông bồi dưỡng lòng tin vô địch cho hắn, chính ông dạy hắn cách làm người làm việc. Hắn không có vị thần trong lòng chính là nhờ ông vun trồng. Chẳng lẽ vị sư phụ như ông lại không làm được? Rút kiếm!”
 
 Mắt Thôn trưởng càng lúc càng sáng, bàn tay càng lúc càng ổn.
 

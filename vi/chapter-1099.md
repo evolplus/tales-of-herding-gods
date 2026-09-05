@@ -116,7 +116,7 @@ Tinh thần của hắn giống như một hạt giống còn chưa nảy mầm,
 
 Mà Đồ phu rút đao chính là cho hắn áp lực này!
 
-Đồ phu xưa nay là vị thầy nghiêm khắc nhất trong Tàn Lão Thôn. Mỗi lần dạy Tần Mục, ông đều xuống tay rất nặng. Nếu không phải Mã gia thường xuyên canh bên cạnh, Tần Mục đã sớm bị ông bổ chết trăm tám mươi lần.
+Đồ phu xưa nay là vị sư phụ nghiêm khắc nhất trong Tàn Lão Thôn. Mỗi lần dạy Tần Mục, ông đều xuống tay rất nặng. Nếu không phải Mã gia thường xuyên canh bên cạnh, Tần Mục đã sớm bị ông bổ chết trăm tám mươi lần.
 
 Lần này cũng không ngoại lệ!
 

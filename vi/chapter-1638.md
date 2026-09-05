@@ -88,7 +88,7 @@ Tiều Phu Thánh Nhân lộ vẻ mong đợi: "Có thể bù đắp chỗ thi�
 
 Tần Mục mỉm cười: "Theo lý mà nói thì có thể, nhưng con đã tìm được thứ tốt hơn!"
 
-Râu Tiều Phu Thánh Nhân run lên, đưa tay chụp búa sau lưng. Tần Mục vội cười nói: "Lão sư, con đùa với thầy thôi, nhìn thầy gấp kìa. Bốn vị Thiên Sư các vị cùng lên, hiện giờ cũng không đỡ nổi một chiêu trong tay con đâu, đừng nổi giận."
+Râu Tiều Phu Thánh Nhân run lên, đưa tay chụp búa sau lưng. Tần Mục vội cười nói: "Lão sư, con đùa với người thôi, nhìn người gấp kìa. Bốn vị Thiên Sư các vị cùng lên, hiện giờ cũng không đỡ nổi một chiêu trong tay con đâu, đừng nổi giận."
 
 Hắn vừa nói ra lời này, Yên Vân Hề, Trác Trà và Hàn Đường cũng không nhịn được nổi giận.
 

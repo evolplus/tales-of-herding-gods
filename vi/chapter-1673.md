@@ -72,7 +72,7 @@ Nhất thời chủ khách đều vui, tiếng cười như sấm.
 
 Đang lúc rượu ngà say, Hạo Thiên Đế nghiêng người hỏi, cười nói: “Điện chủ, ngài lớn tuổi hơn, trẫm xin gọi ngài một tiếng đạo huynh. Dám hỏi đạo huynh, trên đời này có mấy loại pháp thành đạo?”
 
-Chủ điện Linh Quan uống đến hứng khởi, nói: “Lão đệ, pháp thành đạo có tất cả bốn loại. Loại thứ nhất là pháp thành đạo bằng Đạo Cảnh chính thống nhất, do thầy sáng lập. Loại thứ hai là pháp thành đạo bằng Ngọc Kinh, còn gọi là lấy sức thành đạo, thuộc về mượn sức, mượn sức Ngọc Kinh Thành, thuộc đường lối bên lề. Loại thứ ba là do Nhị công tử sáng tạo, gọi là pháp thành đạo bằng Quy Khư...”
+Chủ điện Linh Quan uống đến hứng khởi, nói: “Lão đệ, pháp thành đạo có tất cả bốn loại. Loại thứ nhất là pháp thành đạo bằng Đạo Cảnh chính thống nhất, do sư phụ sáng lập. Loại thứ hai là pháp thành đạo bằng Ngọc Kinh, còn gọi là lấy sức thành đạo, thuộc về mượn sức, mượn sức Ngọc Kinh Thành, thuộc đường lối bên lề. Loại thứ ba là do Nhị công tử sáng tạo, gọi là pháp thành đạo bằng Quy Khư...”
 
 Tâm thần Hạo Thiên Đế chấn động mạnh, nhưng sắc mặt không đổi, nói: “Dám hỏi pháp thành đạo bằng Quy Khư này thành đạo như thế nào?”
 

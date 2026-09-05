@@ -62,11 +62,11 @@ Vô số cành và rễ Thế Giới Thụ vươn ra bốn phương tám hướn
 
 Vô Nhai lão nhân và công tử Vô Cực gần như cùng lúc ra tay hiểm độc với đối phương!
 
-Trong khoảnh khắc này, bọn họ đều ý thức được chỉ có trừ bỏ đối phương, mình mới có khả năng sống sót, mới không cùng đối phương hình thần đều diệt!
+Trong khoảnh khắc này, bọn họ đều ý thức được chỉ có trừ khử đối phương, mình mới có khả năng sống sót, mới không cùng đối phương hình thần đều diệt!
 
 Công tử Lăng Tiêu, công tử Tử Tiêu và Tần Mục bay lên không, đánh về phía hai người, đồng thời chặn cửa vào Quy Khư, khiến hai người họ đều không thể thoát ra.
 
-Quy Khư Đại Uyên biến thành nơi khốn thú. Ba bên hỗn chiến, trong đại uyên khắp nơi đều là thần thông Quy Khư đen kịt, nuốt chửng tất cả. Tóc trắng công tử Vô Cực tung bay, dốc toàn bộ sức mạnh thúc giục thần thông, nghiêm giọng nói: "Lão Tam, lão Tứ, lão Thất, các ngươi tàn hại đồng môn, phải ăn nói với thầy thế nào?"
+Quy Khư Đại Uyên biến thành nơi khốn thú. Ba bên hỗn chiến, trong đại uyên khắp nơi đều là thần thông Quy Khư đen kịt, nuốt chửng tất cả. Tóc trắng công tử Vô Cực tung bay, dốc toàn bộ sức mạnh thúc giục thần thông, nghiêm giọng nói: "Lão Tam, lão Tứ, lão Thất, các ngươi tàn hại đồng môn, phải ăn nói với sư phụ thế nào?"
 
 Công tử Lăng Tiêu sát khí đằng đằng. Đạo thương xuyên vào trong một hắc động Quy Khư, rồi từ trong động đâm ra, chỉ thẳng mi tâm Vô Cực, lạnh lùng nói: "Nhị tỷ, Trạm Tịch chết trong tay ai, tỷ còn không rõ sao?"
 
@@ -144,7 +144,7 @@ Một bàn tay đỏ rực từ trên trời giáng xuống, ép Hỗn Độn H�
 
 Tần Mục thúc giục Bất Dịch thần thông, cứu sống Tam công tử Lăng Tiêu và Vô Nhai lão nhân, đội áp lực do một ấn này của Chủ nhân Di La Cung mang tới mà lui một bước, chắn Nguyệt Thiên Tôn trong Hỗn Độn Điện.
 
-Chưởng ấn màu đỏ rơi xuống. Công tử Vô Cực cứng rắn đỡ một đòn này, nghiêm giọng nói: "Thầy, ấn pháp của người đã bị ta phá gần hết, không làm gì được ta mảy may! Thần thông của người đã lỗi thời rồi, còn thần thông của ta mới là bản chất của vũ trụ!"
+Chưởng ấn màu đỏ rơi xuống. Công tử Vô Cực cứng rắn đỡ một đòn này, nghiêm giọng nói: "Sư phụ, ấn pháp của người đã bị ta phá gần hết, không làm gì được ta mảy may! Thần thông của người đã lỗi thời rồi, còn thần thông của ta mới là bản chất của vũ trụ!"
 
 Ầm!
 
@@ -166,7 +166,7 @@ Trong tất cả mọi người có mặt, hắn lĩnh ngộ ấn kết ấn dâ
 
 Khi uy lực chiêu thần thông này của Chủ nhân Di La Cung bộc phát, hắn thật sự bị kinh diễm. Trong đầu, đủ loại biến hóa của ấn kết ấn dây đỏ lập tức ùn ùn kéo tới.
 
-"Thầy, người không giết được ta! Ha ha ha..."
+"Sư phụ, người không giết được ta! Ha ha ha..."
 
 Hỗn Độn Hải nứt ra. Công tử Vô Cực tóc tai xõa tung, từng bước đi lên từ dưới biển, sát khí đằng đằng nói: "Hôm nay, các ngươi một người cũng đừng mơ sống rời đi! Ta sẽ xóa sạch các ngươi khỏi lịch sử toàn bộ mười sáu kỷ! Khiến thứ vật chất như các ngươi chưa từng hiện hữu!"
 

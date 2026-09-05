@@ -46,7 +46,7 @@ Chỉ cần Thiên Tôn trong Thiên Đình ít hơn ba người, hai vị cổ 
 
 Bây giờ, Thiên Tôn trong Thiên Đình có bốn vị: Hạo, Hiểu, Tường, cùng một vị Thiên phi khác trong hậu cung là Nghiên Thiên Phi. Chỉ cần xuất động hai vị Thiên Tôn cản Khai Hoàng và Lãng Uyển, vậy chính là cơ hội trời ban cho Thiên Công và Thổ Bá!
 
-Trừ bỏ bốn vị Thiên Tôn, sáu vị Thiên Tôn còn lại sẽ phải đối mặt với một thế yếu khiến người ta khó xử.
+Trừ khử bốn vị Thiên Tôn, sáu vị Thiên Tôn còn lại sẽ phải đối mặt với một thế yếu khiến người ta khó xử.
 
 Phải biết rằng Khai Hoàng Tần Nghiệp là đồng minh trời sinh của cổ thần. Năm xưa thời đại Khai Hoàng chính là do các cổ thần nâng đỡ dựng lên!
 

@@ -50,7 +50,7 @@ Tần Mục như không nghe thấy, chào Hiểu Thiên Tôn, cười nói: “
 
 Hiểu Thiên Tôn vội đáp lễ, cười nói: “Địa Mẫu Nguyên Quân tạo phản gây loạn, vẫn luôn là mối họa trong lòng Thiên Đình. Nay không còn mối họa ấy, ngược lại có thêm một vị Địa Đức Nguyên Quân hiền lương thục đức, đây là may mắn của Nguyên giới.”
 
-Trong lòng Tần Mục khẽ động. Các Thiên Tôn khác đều không nhắc tới Địa Mẫu Nguyên Quân, chỉ riêng hắn nhắc đến, có thể thấy việc Tần Mục dùng kế trừ bỏ Địa Mẫu ở kinh thành Diên Khang không giấu được hắn.
+Trong lòng Tần Mục khẽ động. Các Thiên Tôn khác đều không nhắc tới Địa Mẫu Nguyên Quân, chỉ riêng hắn nhắc đến, có thể thấy việc Tần Mục dùng kế trừ khử Địa Mẫu ở kinh thành Diên Khang không giấu được hắn.
 
 Trong lời hắn có hàm ý, cũng có ý cảnh cáo Tần Mục.
 

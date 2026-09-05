@@ -22,7 +22,7 @@ Sau khi ba vị cổ thần này nhận được tin, họ không đứng ngồi
 
 "Nhìn từ tin tức, Cửu Châu cổ thần đã toàn quân bị diệt."
 
-Trụ Nhất cổ thần mặt xanh đen, mặt xanh răng nanh như Quỷ Vương, trầm giọng nói: "Năm ngày, ra tay suốt từ Bạch Thổ tới Thâm Thổ, trừ bỏ chín vị cổ thần. Điều này cho thấy căn bản không hề có trận đánh ngang sức ngang tài nào, mà là thích khách chạy liên tục không nghỉ, trước khi các cổ thần Cửu Châu khác nhận được tin đã lẻn vào tổ địa của họ, giết họ."
+Trụ Nhất cổ thần mặt xanh đen, mặt xanh răng nanh như Quỷ Vương, trầm giọng nói: "Năm ngày, ra tay suốt từ Bạch Thổ tới Thâm Thổ, trừ khử chín vị cổ thần. Điều này cho thấy căn bản không hề có trận đánh ngang sức ngang tài nào, mà là thích khách chạy liên tục không nghỉ, trước khi các cổ thần Cửu Châu khác nhận được tin đã lẻn vào tổ địa của họ, giết họ."
 
 Trụ Nhị cổ thần mặt đỏ răng nanh, nhíu mày nói: "Chúng ta đã không yếu chút nào. Những năm qua chúng ta nghiên cứu đại đạo của từng người, sự nghiên cứu đạo pháp càng lúc càng sâu, thực lực cũng càng lúc càng mạnh. Nhìn khắp thiên hạ, tuy chúng ta không phải nhân vật như Thập Thiên Tôn, nhưng chí ít cũng có thể sánh vai cường giả Đế Tọa chứ? Cửu Châu cổ thần sao có thể không hề phản kháng đã thân chết đạo tiêu?"
 

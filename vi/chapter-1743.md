@@ -12,7 +12,7 @@ Mảnh vỡ thần kiếm nhiều đến hàng trăm triệu. Nhưng trên bề 
 
 Tần Mục nhìn vô số mặt gương trên mặt đất, cười nói: "Xem ra ngươi thành đạo bằng cách chạy trốn. Nếu vị cố nhân kia của ta còn sống, gặp ngươi nhất định vui lắm, sẽ xem ngươi là đạo hữu của hắn."
 
-Trong vô số mặt gương, bóng dáng Chủ điện Sở Ca biến mất, chỉ còn lại bóng dáng cuối cùng, từ một mặt gương bước vào một mặt gương khác, nói: "Thất công tử nói đùa rồi. Bản lĩnh của ta không phải dùng để chạy trốn, mà là ngươi nhìn không hiểu bản lĩnh của ta. Dù sao ngươi vẫn chưa thành đạo. Dĩ nhiên, sau này công tử thành đạo, ngay cả thầy cũng khen ngợi có thừa, khi ấy ta đương nhiên xa xa không địch lại."
+Trong vô số mặt gương, bóng dáng Chủ điện Sở Ca biến mất, chỉ còn lại bóng dáng cuối cùng, từ một mặt gương bước vào một mặt gương khác, nói: "Thất công tử nói đùa rồi. Bản lĩnh của ta không phải dùng để chạy trốn, mà là ngươi nhìn không hiểu bản lĩnh của ta. Dù sao ngươi vẫn chưa thành đạo. Dĩ nhiên, sau này công tử thành đạo, ngay cả sư phụ cũng khen ngợi có thừa, khi ấy ta đương nhiên xa xa không địch lại."
 
 Bóng dáng hắn đột nhiên chia làm hai, xuất hiện trong hai mặt gương, mỗi bóng đều có động tác khác nhau, cười nói: "Đã vậy, vì sao công tử không trở về quá khứ, trở thành Thất công tử ở quá khứ? Kỷ thứ mười bảy này phiền nhiễu quá nhiều, quấy nhiễu tài trí thông minh của công tử. Trở về quá khứ rồi, mọi chuyện đều không liên quan tới công tử, công tử cũng có thể yên tâm thành đạo."
 
@@ -24,7 +24,7 @@ Hắn đi tới một mặt gương khác, chỉ thấy trong mặt gương ấy
 
 "Ta vẫn luôn cho rằng mình thành đạo ở Kỷ thứ mười bảy."
 
-Tần Mục nói với hắn: "Nhưng không lâu trước đây ta phát hiện, thầy nói không sai. Ta chưa trải qua từng trận đại kiếp Phá Diệt, thành đạo tất nhiên sẽ không viên mãn. Ta muốn thành đạo, nhất định phải trở về quá khứ, tự mình trải qua đại kiếp Hỗn Độn Phá Diệt."
+Tần Mục nói với hắn: "Nhưng không lâu trước đây ta phát hiện, sư phụ nói không sai. Ta chưa trải qua từng trận đại kiếp Phá Diệt, thành đạo tất nhiên sẽ không viên mãn. Ta muốn thành đạo, nhất định phải trở về quá khứ, tự mình trải qua đại kiếp Hỗn Độn Phá Diệt."
 
 Thân hình Chủ điện Sở Ca liên tục chớp động, lướt qua vô số mặt gương. Điều khiến hắn kinh ngạc là trong mỗi mặt gương đều có một Tần Mục ung dung đứng đó, chờ hắn đến.
 
@@ -34,11 +34,11 @@ Trên trán Chủ điện Sở Ca toát mồ hôi lạnh. Đột nhiên hắn h�
 
 "Đánh sập Di La Cung?"
 
-Chủ điện Sở Ca ổn định tâm thần, cười ha hả: "Thất công tử, ngươi là công tử của Di La Cung, vậy mà lại muốn đánh sập Di La Cung? Ngươi xứng đáng với thầy sao?"
+Chủ điện Sở Ca ổn định tâm thần, cười ha hả: "Thất công tử, ngươi là công tử của Di La Cung, vậy mà lại muốn đánh sập Di La Cung? Ngươi xứng đáng với sư phụ sao?"
 
 "Hiện giờ ta còn chưa phải công tử của Di La Cung, đánh sập Di La Cung, đối với ta mà nói không có bất cứ gánh nặng đạo đức nào."
 
-Thần thái Tần Mục nghiêm túc, nói: "Tấn công đạo tâm của ta từ tâm lý, đối với ta không có tác dụng gì. Hơn nữa, thầy sáng lập Di La Cung, cũng không muốn nhìn thấy Di La Cung hiện nay biến thành như vậy. Ta thay ông ấy phá hủy Di La Cung, trong lòng ông ấy chắc chắn cũng rất vui. Đợi ta phá hủy Di La Cung, trở về quá khứ, sau khi thầy thu ta làm đệ tử, nhất định sẽ chăm sóc ta đủ điều."
+Thần thái Tần Mục nghiêm túc, nói: "Tấn công đạo tâm của ta từ tâm lý, đối với ta không có tác dụng gì. Hơn nữa, sư phụ sáng lập Di La Cung, cũng không muốn nhìn thấy Di La Cung hiện nay biến thành như vậy. Ta thay ông ấy phá hủy Di La Cung, trong lòng ông ấy chắc chắn cũng rất vui. Đợi ta phá hủy Di La Cung, trở về quá khứ, sau khi sư phụ thu ta làm đệ tử, nhất định sẽ chăm sóc ta đủ điều."
 
 Khóe mắt Chủ điện Sở Ca giật giật. Quả thật như Tần Mục nói, Chủ nhân Di La Cung đúng là rất chăm sóc vị Thất công tử này, thậm chí có thể nói là có phần cưng chiều!
 

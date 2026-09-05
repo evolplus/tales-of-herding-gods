@@ -2,13 +2,13 @@
 
 Phía trên tế đàn của thần sơn Tây Thổ, lưu quang cuộn chảy. Qua một lát, mắt Kinh Yến và Ngọc Liễu sáng lên, chỉ thấy một thiếu niên đội ngọc quan bước ra từ lưu quang. Sắc mặt hắn hơi lạnh nhạt, nhưng ánh mắt lưu chuyển rơi trên người hai cô gái, khiến lòng thiếu nữ của cả hai thầm e thẹn.
 
-"Hư công tử, Kiều Tinh Quân lệnh cho bốn tỷ muội chúng ta phò tá công tử trừ bỏ Nhân Hoàng mới. Dao Hoa và Thanh Oanh đã đi trước tới Lâu Lan Hoàng Kim Cung thăm dò tin tức về Nhân Hoàng mới."
+"Hư công tử, Kiều Tinh Quân lệnh cho bốn tỷ muội chúng ta phò tá công tử trừ khử Nhân Hoàng mới. Dao Hoa và Thanh Oanh đã đi trước tới Lâu Lan Hoàng Kim Cung thăm dò tin tức về Nhân Hoàng mới."
 
 Ngọc Liễu dịu giọng nói: "Công tử, bây giờ chúng ta đi hội hợp với họ..."
 
 Hư Sinh Hoa khẽ gật đầu, nói: "Xử lý chuyện này càng sớm càng tốt, ta còn phải trở về Thượng Thương. Hồng trần cõi đời này nhiễu loạn, không phải nơi ở lâu."
 
-Kinh Yến cười nói: "Công tử, cõi đời này vẫn có vài kỳ nhân dị sĩ, không thể xem thường. Nhân Hoàng lại càng là kẻ địch của Thượng Thương chúng ta, đối đầu với chúng ta nhiều năm như vậy, không dễ trừ bỏ đâu."
+Kinh Yến cười nói: "Công tử, cõi đời này vẫn có vài kỳ nhân dị sĩ, không thể xem thường. Nhân Hoàng lại càng là kẻ địch của Thượng Thương chúng ta, đối đầu với chúng ta nhiều năm như vậy, không dễ trừ khử đâu."
 
 Hư Sinh Hoa một thân áo trắng không nhiễm bụi trần, đi xuống núi, nói: "Cõi đời vẫn có vài chỗ kỳ dị. Tiểu Ngọc Kinh, Đại Lôi Âm, Đạo môn, Thiên Thánh giáo, cùng những thánh địa gọi là ở Trung Thổ cũng có vài cao nhân, không yếu hơn Tây Thổ. Ta không xem thường bọn họ, cũng không xem thường Nhân Hoàng. Ta cũng muốn gặp những nơi trong thế giới này khiến các bậc kia kiêng dè, chỉ là hồng trần không hợp tâm tính của ta. Vì vậy, đi sớm về sớm."
 

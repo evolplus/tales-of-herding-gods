@@ -116,7 +116,7 @@ Cung Thiên Tôn hơi ngẩn ra, khom người nói: “Nào dám không theo? C
 
 Hạo Thiên Tôn mỉm cười, không để ý: “Cung đạo hữu hứa với hắn, tự nhiên là phải cho. Khoáng mạch này giao cho ta, ta chia hắn một thành là được. Ngươi yên tâm, ta sẽ không khiến ngươi khó xử.”
 
-Hỏa Thiên Tôn nói: “Hạo huynh, vừa rồi trong Phi Hương Điện không phát hiện tung tích Mục Thiên Tôn. Phần lớn là hắn dụ chúng ta tới, muốn mượn tay lão quái vật trong điện trừ bỏ chúng ta...”
+Hỏa Thiên Tôn nói: “Hạo huynh, vừa rồi trong Phi Hương Điện không phát hiện tung tích Mục Thiên Tôn. Phần lớn là hắn dụ chúng ta tới, muốn mượn tay lão quái vật trong điện trừ khử chúng ta...”
 
 Hạo Thiên Tôn lắc đầu nói: “Hắn không nông cạn tới mức cho rằng chỉ dựa vào lão quái vật trong điện là có thể giết chúng ta. Phần lớn hắn có tính toán khác...”
 

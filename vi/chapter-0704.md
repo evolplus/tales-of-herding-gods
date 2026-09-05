@@ -26,7 +26,7 @@ Thần thông Diên Khang đổi mới từng ngày, khiến hắn thật sự k
 
 Nhưng như vậy cũng hơi lợi hại quá mức!
 
-"Trong chuyện này hẳn không chỉ có tác dụng của Lão câm gia gia và Lão mù gia gia, chỉ e Tiều phu lão sư cũng đang thúc đẩy! Học vấn của ông ấy tạp nhất. Nghe ý Thùy Điếu Ông, biến pháp thời Khai Hoàng chính là do Tiều phu lão sư thúc đẩy."
+"Trong chuyện này hẳn không chỉ có tác dụng của Lão câm gia gia và Lão mù gia gia, chỉ e Tiều Phu lão sư cũng đang thúc đẩy! Học vấn của ông ấy tạp nhất. Nghe ý Thùy Điếu Ông, biến pháp thời Khai Hoàng chính là do Tiều Phu lão sư thúc đẩy."
 
 Tần Mục trầm ngâm. Tiều phu và người Tàn Lão Thôn thúc đẩy đạo pháp thần thông Diên Khang, quả thật sẽ khiến Diên Khang lớn mạnh trong thời gian ngắn, cuộc sống ăn mặc ở đi của bách tính đều sẽ được nâng lên rất nhiều. Cũng có thể để thần thông giả rảnh thời gian tu luyện, nghiên cứu công pháp thần thông cao thâm hơn.
 
@@ -260,7 +260,7 @@ Trăng sáng vừa tròn.
 
 Thân thể Tần Mục chấn động mạnh, cao giọng quát:
 
-"Bọn họ trốn trong mặt trăng! Tiều phu lão sư, Sơ Tổ Nhân Hoàng, các vị có nghe thấy không?"
+"Bọn họ trốn trong mặt trăng! Tiều Phu lão sư, Sơ Tổ Nhân Hoàng, các vị có nghe thấy không?"
 
 Bịch.
 

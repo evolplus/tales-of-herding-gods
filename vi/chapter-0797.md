@@ -172,7 +172,7 @@ Tần Mục gật đầu, nói:
 
 Quốc sư Diên Khang trầm ngâm thật lâu, trầm giọng:
 
-"Vậy cần mời Tiều phu lão sư và tất cả những người trí tuệ tuyệt đỉnh của Diên Khang tới, còn có Tư bà bà, nhất định phải mời tới. Bà ấy tinh thông phù văn Nguyên Từ. Họ đều ở bên ngoài, chạy tới cần một thời gian."
+"Vậy cần mời Tiều Phu lão sư và tất cả những người trí tuệ tuyệt đỉnh của Diên Khang tới, còn có Tư bà bà, nhất định phải mời tới. Bà ấy tinh thông phù văn Nguyên Từ. Họ đều ở bên ngoài, chạy tới cần một thời gian."
 
 Vẻ mặt Tần Mục khẽ động, nói:
 

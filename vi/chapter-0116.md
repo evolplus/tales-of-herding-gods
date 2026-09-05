@@ -72,7 +72,7 @@ Lăng Vân Đạo Nhân mở danh sách, cười nói: "Mỗi năm Thái Học V
 
 Ông nhìn chằm chằm tên Tần Mục, sắc mặt cổ quái, nhìn đi nhìn lại một hàng chữ rất nhiều lần, có chút khó hiểu: "Tên Tần Mục này là chuyện gì? Sao vừa nói hắn tà tính, cần quan sát trọng điểm, vì sao lại nói hắn có tấm lòng xích tử, không bị ngoại vật lay động? Mấy tên này viết lời phê bừa bãi!"
 
-Đồng tử kia nói: "Thưa thầy, ba sĩ tử Giang Lăng đã được định sẵn rồi, ải của thầy phải loại bảy người. Hơn nữa Thiên Sách tướng quân nói cô nương nhà ông ấy cũng tới dự khảo, xin thầy chiếu cố thêm. Còn Thái úy phủ cũng gửi thư, nói có một đứa cháu muốn vào Thái Học Viện tu hành. Còn Phiêu kỵ đại tướng quân, Tần gia Kinh thành, cùng Trấn An Tự Vương gửi thư nói tiểu công tử của Trấn An Vương cũng muốn..."
+Đồng tử kia nói: "Thưa tiên sinh, ba sĩ tử Giang Lăng đã được định sẵn rồi, ải của tiên sinh phải loại bảy người. Hơn nữa Thiên Sách tướng quân nói cô nương nhà ông ấy cũng tới dự khảo, xin tiên sinh chiếu cố thêm. Còn Thái úy phủ cũng gửi thư, nói có một đứa cháu muốn vào Thái Học Viện tu hành. Còn Phiêu kỵ đại tướng quân, Tần gia Kinh thành, cùng Trấn An Tự Vương gửi thư nói tiểu công tử của Trấn An Vương cũng muốn..."
 
 Lăng Vân Đạo Nhân đau đầu vô cùng, nói: "Bọn họ đều muốn vào Thái Học Viện, lai lịch đều rất lớn, kiểu gì cũng lớn hơn ta. Ba sĩ tử Giang Lăng đã chiếm ba suất, đây là thể diện của Quốc sư. Mười suất chỉ còn bảy, làm sao sắp xếp nhiều người như vậy? Tần Mục này có lai lịch gì? Chẳng lẽ là người Tần gia Kinh thành?"
 

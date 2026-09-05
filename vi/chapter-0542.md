@@ -54,7 +54,7 @@ Tiều Phu Thánh Nhân lộ nụ cười: "Ngươi không biết lai lịch c�
 
 Tần Mục mờ mịt.
 
-"Hắn giống ngươi, đều họ Tần, cũng đều là đệ tử của ta. Phược Nhật La gọi ta là Thiên Sư. Thiên Sư là thầy hợp với Thiên Đạo, cũng là thầy của thiên tử, thật ra chỉ là một ông giáo. Năm đó ta phụng mệnh Khai Hoàng dạy dỗ hoàng tử, trong đó có tên đào binh ở Nhân Hoàng Điện kia."
+"Hắn giống ngươi, đều họ Tần, cũng đều là đệ tử của ta. Phược Nhật La gọi ta là Thiên Sư. Thiên Sư là bậc sư phụ hợp với Thiên Đạo, cũng là sư phụ của thiên tử, thật ra chỉ là một ông giáo. Năm đó ta phụng mệnh Khai Hoàng dạy dỗ hoàng tử, trong đó có tên đào binh ở Nhân Hoàng Điện kia."
 
 Tiều Phu Thánh Nhân cất bước đi về phía cổng đông Ly thành, hồi tưởng năm xưa, ánh mắt sâu xa: "Vị hoàng tử này quả thật tư chất phi phàm, ngộ tính cũng cao, nhưng tai biến bùng nổ, trong đại chiến Thiên Đình vẫn lạc, Thiên Đình rơi xuống. Hoàng tử trên chiến trường sợ chết bỏ chạy, nhưng cơ duyên xảo hợp cứu được một số chủng tộc, vì vậy được tôn là Nhân Hoàng. Ta cũng sống sót. Hắn từng đến gặp ta vài lần, ta không muốn gặp hắn. Sau này ta hóa thành tượng đá, nguyên thần ngao du tìm kiếm đáp án, liền không gặp hắn nữa. Ngươi muốn thắng hắn, rất khó."
 
@@ -64,7 +64,7 @@ Tiều Phu Thánh Nhân leo lên thành lâu cao vút. Vì cần chống Ma tộ
 
 "Ta từng dạy hắn. Tư chất ngộ tính của hắn là tốt nhất trong số các hoàng tử ta từng dạy. Bất cứ thần thông nào vừa học là biết, chỉ điểm một chút là thông, ngộ một mà biết trăm. Hắn tôn sư trọng đạo. Tuy ta khinh việc hắn làm đào binh, nhưng vẫn rất thưởng thức hắn. Ngươi muốn thắng hắn, dựa vào ta dạy ngươi là vô dụng."
 
-Tiều Phu Thánh Nhân như một phàm nhân, từng bước từng bước leo lên, không dùng bất cứ thần thông nào, nói: "Ta là thầy dạy học của Khai Hoàng, tuy có danh Thiên Sư, nhưng nói về chiến lực, ta không phải người mạnh nhất thời đại Khai Hoàng. Ngược lại, chiến lực của ta chỉ có thể xem là hạng trung. Ta dạy ngươi thì ngươi cũng sẽ không vượt qua tên đào binh kia. Hơn nữa..."
+Tiều Phu Thánh Nhân như một phàm nhân, từng bước từng bước leo lên, không dùng bất cứ thần thông nào, nói: "Ta là tiên sinh dạy học của Khai Hoàng, tuy có danh Thiên Sư, nhưng nói về chiến lực, ta không phải người mạnh nhất thời đại Khai Hoàng. Ngược lại, chiến lực của ta chỉ có thể xem là hạng trung. Ta dạy ngươi thì ngươi cũng sẽ không vượt qua tên đào binh kia. Hơn nữa..."
 
 Ông mỉm cười: "Không phải ta đã dạy ngươi rồi sao?"
 

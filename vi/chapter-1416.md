@@ -56,7 +56,7 @@ Tần Mục hơi nhíu mày, nói: "Đồ gia gia, nước có quốc pháp. Đ�
 
 Lông mày Đồ phu nhướng lên, nghiêng mắt nhìn hắn, cười lạnh: "Sơ tâm của con thay đổi rồi. Năm xưa ở Tương Long Thành, kẻ nổi giận xách đao ra khỏi lệnh cấm, một đao bổ Phó Nhạc Đình làm đôi là Tần Mục nào? Quốc pháp, quốc pháp. Nếu quốc pháp thật sự không gì không làm được, vậy ác bá từ đâu ra?"
 
-Tần Mục lắc đầu nói: "Đó là dũng của thất phu. Trong Đại Khư không có quốc pháp nên dùng đao trừ bỏ. Nhưng Diên Khang có pháp chế..."
+Tần Mục lắc đầu nói: "Đó là dũng của thất phu. Trong Đại Khư không có quốc pháp nên dùng đao trừ khử. Nhưng Diên Khang có pháp chế..."
 
 "Đao đạo chính là dũng của thất phu!"
 

@@ -76,9 +76,9 @@ Công tử Lăng Tiêu nhìn theo hướng ngón tay hắn, thấy Di La Cung, k
 
 Di La Cung không giống hắn, bị phân thành vô số cái. Di La Cung vẫn chỉ có một tòa.
 
-"Hồng Mông phù văn của thầy là Một, lấy Một diễn hóa vạn đạo, không thể tiếp tục phân chia nữa. Vì vậy Di La Cung cũng là Một trong kiếp Sáng Sinh."
+"Hồng Mông phù văn của sư phụ là Một, lấy Một diễn hóa vạn đạo, không thể tiếp tục phân chia nữa. Vì vậy Di La Cung cũng là Một trong kiếp Sáng Sinh."
 
-Tần Mục nói: "Thái Thượng sư huynh kế thừa y bát của thầy, cũng có thể làm được bước này. Vô Cực sư tỷ là thần nữ Quy Khư, kiêm cả diệt thế và sáng thế, cũng có thể làm được bước này. Bọn họ đều có thể là duy nhất trong kiếp Sáng Sinh. Đương nhiên, ta cũng có thể làm được bước này."
+Tần Mục nói: "Thái Thượng sư huynh kế thừa y bát của sư phụ, cũng có thể làm được bước này. Vô Cực sư tỷ là thần nữ Quy Khư, kiêm cả diệt thế và sáng thế, cũng có thể làm được bước này. Bọn họ đều có thể là duy nhất trong kiếp Sáng Sinh. Đương nhiên, ta cũng có thể làm được bước này."
 
 Đột nhiên, vô số Tần Mục trong vô số không gian nhỏ bé nhất biến mất, thay vào đó là Tần Mục duy nhất, xuất hiện trước mặt tất cả công tử Lăng Tiêu, đi qua đi lại trước mặt hắn.
 
@@ -94,21 +94,21 @@ Khoảnh khắc trước khi kiếp Sáng Sinh bộc phát quỷ dị đến m�
 
 "Tam sư huynh, nếu huynh không thể chống nổi kiếp Sáng Sinh, vô số tương lai của huynh đều sẽ bị kiếp Sáng Sinh hủy diệt, huynh tự nhiên cũng không còn nữa. Kiếp Sáng Sinh sẽ xóa sạch huynh hoàn toàn!"
 
-Tần Mục thong thả nói: "Vô số tương lai của huynh đều sẽ hóa thành dưỡng chất của vũ trụ kỷ thứ mười bảy. Đây chính là nguyên nhân ngay cả bậc thành đạo cũng không thể sống sót trong kiếp Sáng Sinh. Nhưng huynh có một tia sinh cơ, đó là tụ vô số tương lai vào một thân, giống như thầy, giống như Thái Thượng. Chỉ như vậy, huynh mới có thể giữ được tính mạng trong kiếp Sáng Sinh."
+Tần Mục thong thả nói: "Vô số tương lai của huynh đều sẽ hóa thành dưỡng chất của vũ trụ kỷ thứ mười bảy. Đây chính là nguyên nhân ngay cả bậc thành đạo cũng không thể sống sót trong kiếp Sáng Sinh. Nhưng huynh có một tia sinh cơ, đó là tụ vô số tương lai vào một thân, giống như sư phụ, giống như Thái Thượng. Chỉ như vậy, huynh mới có thể giữ được tính mạng trong kiếp Sáng Sinh."
 
 Công tử Lăng Tiêu nghe thấy vô số bản thân đang giận dữ quát hỏi, đặt câu hỏi, nhìn thấy vô số bản thân đang tấn công, nhưng trước sau không thể làm Tần Mục tổn thương chút nào.
 
-"Đây chính là cảnh tượng thầy gặp phải khi ở kỷ thứ nhất luyện chế Độ Thế Kim Thuyền để độ chúng sinh?" Hắn cất tiếng hỏi giữa sự ồn ào hỗn loạn.
+"Đây chính là cảnh tượng sư phụ gặp phải khi ở kỷ thứ nhất luyện chế Độ Thế Kim Thuyền để độ chúng sinh?" Hắn cất tiếng hỏi giữa sự ồn ào hỗn loạn.
 
-Tần Mục lại như có thể bắt được rõ ràng câu hỏi này trong vô số vấn đề của vô số hắn, đáp: "Khi đó, thầy chỉ có thể vượt qua kiếp Phá Diệt. Có lẽ ông chưa từng dẫn chúng sinh gặp kiếp Sáng Sinh. Trong kiếp Phá Diệt, chúng sinh kỷ thứ nhất đã hóa thành tro bụi. Nếu gặp kiếp Sáng Sinh, ông sẽ càng tuyệt vọng. Nhưng ta cảm thấy sau khi chúng sinh hủy diệt, thầy vẫn gặp kiếp Sáng Sinh, và ông sống sót. Trong khoảnh khắc ngắn ngủi ấy, hẳn ông có thể nhìn thấy tương lai."
+Tần Mục lại như có thể bắt được rõ ràng câu hỏi này trong vô số vấn đề của vô số hắn, đáp: "Khi đó, sư phụ chỉ có thể vượt qua kiếp Phá Diệt. Có lẽ ông chưa từng dẫn chúng sinh gặp kiếp Sáng Sinh. Trong kiếp Phá Diệt, chúng sinh kỷ thứ nhất đã hóa thành tro bụi. Nếu gặp kiếp Sáng Sinh, ông sẽ càng tuyệt vọng. Nhưng ta cảm thấy sau khi chúng sinh hủy diệt, sư phụ vẫn gặp kiếp Sáng Sinh, và ông sống sót. Trong khoảnh khắc ngắn ngủi ấy, hẳn ông có thể nhìn thấy tương lai."
 
 Công tử Lăng Tiêu thở phào một hơi thật dài. Thực lực của Chủ nhân Di La Cung khi ấy tuy cao minh, nhưng vẫn chưa bằng hắn hiện tại.
 
-Nếu thầy khi ấy đã có thể vượt qua kiếp Sáng Sinh, vậy hắn nhất định cũng có thể!
+Nếu sư phụ khi ấy đã có thể vượt qua kiếp Sáng Sinh, vậy hắn nhất định cũng có thể!
 
 "Có thể vượt qua kiếp Sáng Sinh hay không, không nằm ở thực lực, mà nằm ở việc huynh có thể gom tương lai vào một thân hay không."
 
-Tần Mục như nghe thấy tiếng lòng hắn, nói: "Sư huynh, nếu huynh là ta, huynh thậm chí có thể nhảy khỏi kiếp Sáng Sinh, trực tiếp đi tới sau kiếp nạn. Đây chính là đạo Hỗn Độn. Nếu ta đoán không sai, nguyên nhân đạo tâm thầy chết đi, trở về kỷ thứ nhất hóa đạo, là vì trước khi kỷ thứ mười sáu phá diệt, kiếp Sáng Sinh của kỷ thứ mười bảy giáng lâm, ông đã nhìn thấy toàn bộ tương lai kỷ thứ mười bảy. Một tương lai khiến ông vô cùng tuyệt vọng."
+Tần Mục như nghe thấy tiếng lòng hắn, nói: "Sư huynh, nếu huynh là ta, huynh thậm chí có thể nhảy khỏi kiếp Sáng Sinh, trực tiếp đi tới sau kiếp nạn. Đây chính là đạo Hỗn Độn. Nếu ta đoán không sai, nguyên nhân đạo tâm sư phụ chết đi, trở về kỷ thứ nhất hóa đạo, là vì trước khi kỷ thứ mười sáu phá diệt, kiếp Sáng Sinh của kỷ thứ mười bảy giáng lâm, ông đã nhìn thấy toàn bộ tương lai kỷ thứ mười bảy. Một tương lai khiến ông vô cùng tuyệt vọng."
 
 Đồng tử công tử Lăng Tiêu co rút dữ dội.
 
@@ -118,15 +118,15 @@ Nhưng Chủ nhân Di La Cung hẳn có thể làm được.
 
 "Đây là lần đầu tiên ta bước vào kiếp Sáng Sinh, cũng là lần đầu tiên ta gặp cảnh tượng kỳ dị này. Tương lai kỷ thứ mười bảy trong kiếp Sáng Sinh, ta cũng chưa kịp nhìn rõ."
 
-Tần Mục buồn bã nói: "Nhưng thầy nói, tương lai kỷ thứ mười bảy là lãnh tịch chung cực, sau tám trăm tỷ năm sẽ hóa thành hư không hoàn toàn lạnh lẽo, không có bất kỳ sinh mệnh nào, cũng không có vũ trụ kế tiếp. Nghĩ đến, ông đã nhìn thấy tương lai kỷ thứ mười bảy, vì vậy tuyệt vọng."
+Tần Mục buồn bã nói: "Nhưng sư phụ nói, tương lai kỷ thứ mười bảy là lãnh tịch chung cực, sau tám trăm tỷ năm sẽ hóa thành hư không hoàn toàn lạnh lẽo, không có bất kỳ sinh mệnh nào, cũng không có vũ trụ kế tiếp. Nghĩ đến, ông đã nhìn thấy tương lai kỷ thứ mười bảy, vì vậy tuyệt vọng."
 
 "Ngươi không tuyệt vọng sao?" công tử Lăng Tiêu hỏi.
 
-Tần Mục lắc đầu: "Ta không. Ta không tin tương lai kỷ thứ mười bảy đã được định sẵn. Dù đã định sẵn, ta cũng muốn sửa một sửa! Sư huynh, đường của thầy đi sai rồi, huynh còn muốn tiếp tục đi theo con đường của ông sao?"
+Tần Mục lắc đầu: "Ta không. Ta không tin tương lai kỷ thứ mười bảy đã được định sẵn. Dù đã định sẵn, ta cũng muốn sửa một sửa! Sư huynh, đường của sư phụ đi sai rồi, huynh còn muốn tiếp tục đi theo con đường của ông sao?"
 
 Công tử Lăng Tiêu trầm mặc, siết chặt đạo thương trong tay, càng siết càng chặt.
 
-"Sư đệ, ngươi nói sinh lộ duy nhất của ta chính là giống Đại sư huynh và thầy, gom tất cả tương lai vào một thân. Điểm này ta không đồng ý."
+"Sư đệ, ngươi nói sinh lộ duy nhất của ta chính là giống Đại sư huynh và sư phụ, gom tất cả tương lai vào một thân. Điểm này ta không đồng ý."
 
 Hắn mím môi, lộ ra một nụ cười: "Ngoài cách đó ra, còn có một tia sinh cơ. Đó là bãi ô uế trong Chung Cực Hư Không, vùng đất bị bỏ phế kia!"
 

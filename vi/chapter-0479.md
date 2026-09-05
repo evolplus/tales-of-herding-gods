@@ -54,7 +54,7 @@ Màn phối hợp này quả thực như đã luyện tập trăm nghìn lần, 
 
 "Tên họ Tần, ngươi có dám báo chân danh họ thật không?" Trong cuộn tranh truyền ra giọng Ngỗi Vu Thần.
 
-Tần Mục làm như không nghe thấy, nói với Tiểu Như Lai và mọi người: "Bản lĩnh Ngỗi Vu Thần thần quỷ khó lường. Chỉ cần biết tên là có thể bái mất hồn phách. Như Lai không biết sự lợi hại của hắn nên mới chịu thiệt. Vốn dĩ ta tới Âm Sơn là để trừ bỏ hắn. Lần này hắn suýt nữa thoát khỏi trấn áp của Như Lai. Theo ý ta, vẫn nên sớm diệt hắn để tuyệt hậu hoạn! Trừ hắn là đại công đức!"
+Tần Mục làm như không nghe thấy, nói với Tiểu Như Lai và mọi người: "Bản lĩnh Ngỗi Vu Thần thần quỷ khó lường. Chỉ cần biết tên là có thể bái mất hồn phách. Như Lai không biết sự lợi hại của hắn nên mới chịu thiệt. Vốn dĩ ta tới Âm Sơn là để trừ khử hắn. Lần này hắn suýt nữa thoát khỏi trấn áp của Như Lai. Theo ý ta, vẫn nên sớm diệt hắn để tuyệt hậu hoạn! Trừ hắn là đại công đức!"
 
 Tiểu Như Lai chần chừ, nói: "Ngỗi Vu Thần bị vô số oan hồn quấn thân. Nếu có thể độ hóa, chắc chắn là công đức vô thượng. Trực tiếp giết hắn, e rằng..."
 

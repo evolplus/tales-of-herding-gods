@@ -30,7 +30,7 @@ Sắc mặt Ban Công Thố chợt biến.
 
 Vị Thần Ma sau lưng hắn chính là vị Thần Ma từng xuất hiện trong tế đàn sau lưng hắn khi hắn thi triển Bái Hồn Vu Pháp!
 
-Tần Mục hỏi tung tích vị Thần Ma ấy, rõ ràng không phải định bái kiến thần thánh tiên hiền gì, mà là chuẩn bị gom sức trừ bỏ vị Thần Ma này!
+Tần Mục hỏi tung tích vị Thần Ma ấy, rõ ràng không phải định bái kiến thần thánh tiên hiền gì, mà là chuẩn bị gom sức trừ khử vị Thần Ma này!
 
 "Tần giáo chủ, Tần Nhân Hoàng, ta làm sao nhận biết nhân vật bậc ấy được?"
 
@@ -88,7 +88,7 @@ Sắc mặt Ban Công Thố khi sa sầm khi sáng lên, đột nhiên cười h
 
 Tần Mục trợn to mắt, chấn kinh không nói nên lời.
 
-Ban Công Thố đắc ý dào dạt, cười nói: "Có sư phụ thế nào thì có đồ đệ thế ấy. Hắn dạy ta gì, ta đều học hết, hơn nữa trò giỏi hơn thầy! Nhưng lão già ấy trước sau không truyền cho ta pháp thành thần. Khi đó ta đã già, chẳng còn mấy năm nữa sẽ chết già, còn hắn hoàn toàn không nghĩ tới tình sư đồ. Hừ, lão già muốn ta chết, vậy ta để hắn chết trước! Cuối cùng hắn cũng sắp rời thế giới này, tiếp dẫn thần quang từ thượng giới chiếu xuống. Ta ra tay ngay trong khoảnh khắc hắn bước vào tiếp dẫn thần quang."
+Ban Công Thố đắc ý dào dạt, cười nói: "Có sư phụ thế nào thì có đồ đệ thế ấy. Hắn dạy ta gì, ta đều học hết, hơn nữa đệ tử vượt sư phụ! Nhưng lão già ấy trước sau không truyền cho ta pháp thành thần. Khi đó ta đã già, chẳng còn mấy năm nữa sẽ chết già, còn hắn hoàn toàn không nghĩ tới tình sư đồ. Hừ, lão già muốn ta chết, vậy ta để hắn chết trước! Cuối cùng hắn cũng sắp rời thế giới này, tiếp dẫn thần quang từ thượng giới chiếu xuống. Ta ra tay ngay trong khoảnh khắc hắn bước vào tiếp dẫn thần quang."
 
 Trong lòng Tần Mục dâng lên từng trận lạnh buốt.
 

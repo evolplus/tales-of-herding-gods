@@ -58,7 +58,7 @@ Nhiều cường giả vây công như vậy mà vẫn thương vong thảm tr�
 
 Lục Ly đánh lúc hắn không phòng bị, thu U Đô thần tử vào trong đỉnh. Nếu mở Sát Sinh Đỉnh để gã này thoát ra, muốn lại thu hắn vào trong đỉnh sẽ khó như lên trời, chẳng biết phải chết thêm bao nhiêu bậc cổ xưa!
 
-“Ba vị đạo hữu này vì trừ bỏ U Đô thần tử mà xả thân vì nghĩa, nghĩa bạc vân thiên, chúng ta kính phục.”
+“Ba vị đạo hữu này vì trừ khử U Đô thần tử mà xả thân vì nghĩa, nghĩa bạc vân thiên, chúng ta kính phục.”
 
 Đột nhiên Cao Thiên Vương mặt đầy vẻ bi thương, đặt tay lên Sát Sinh Đỉnh, rơi lệ nói:
 

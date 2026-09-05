@@ -16,7 +16,7 @@ Lão Như Lai trên Tu Di Sơn nói:
 
 Tăng nhân đầy núi không dừng lại. Hư ảnh Tu Di Sơn bay về phía chiến trường kia.
 
-Quốc sư Diên Khang vẫn đang đại chiến với Cùng Phu Tử và mọi người, cố gắng trừ bỏ mấy vị cường giả này trước khi hư ảnh Tu Di Sơn tới. Lúc này, giọng lão Như Lai truyền tới, thong thả nói:
+Quốc sư Diên Khang vẫn đang đại chiến với Cùng Phu Tử và mọi người, cố gắng trừ khử mấy vị cường giả này trước khi hư ảnh Tu Di Sơn tới. Lúc này, giọng lão Như Lai truyền tới, thong thả nói:
 
 "Quốc sư, chư vị đạo hữu, có thể nể mặt một chút không?"
 
@@ -30,7 +30,7 @@ Cùng Phu Tử và mọi người vẫn định ra tay, nghe vậy do dự một
 
 Điền Chân Quân ho ra máu không ngừng, bị kiếm khí Quốc sư Diên Khang làm tổn thương tâm phế, giọng the thé nói:
 
-"Lão Như Lai, ngươi định liên thủ với chúng ta, trừ bỏ tên này sao?"
+"Lão Như Lai, ngươi định liên thủ với chúng ta, trừ khử tên này sao?"
 
 Lão Như Lai lắc đầu.
 

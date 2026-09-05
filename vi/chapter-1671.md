@@ -108,7 +108,7 @@ Chủ điện Linh Quan hít một hơi thật dài. Mấy trăm khối xương,
 
 Hắn quá cổ xưa, từng bộ phận trong nhục thân đã thành thần. Giờ phút này toàn bộ pháp lực được điều động, quả thật mạnh mẽ đến tột cùng!
 
-“Là Đại La Thiên của người ấy! Vị cường giả vô danh từng giao đấu với thầy!”
+“Là Đại La Thiên của người ấy! Vị cường giả vô danh từng giao đấu với sư phụ!”
 
 Nhục thân Chủ điện Linh Quan điên cuồng phình to. Hắn liên tục quát lớn, gắng gượng chống lại sức nghiền ép đáng sợ của đạo Thái Dịch. Trong đạo Thái Dịch còn xen lẫn Tiên Thiên Nhất Khí, đạo thần thức và kiếm đạo, tạo thành từng vết thương trên người hắn!
 
@@ -116,7 +116,7 @@ Chủ điện Linh Quan như không hay biết, nhục thân vừa vỡ liền t
 
 Nhưng hắn đã thành đạo qua bốn kỷ vũ trụ, đạo tâm vững chắc. Cho dù bậc tu thành Thần Thức Đại La Thiên đích thân tới đây, cũng khó có thể gây cho hắn bao nhiêu thương tổn.
 
-“Là vị cường giả vượt qua mười sáu dòng Hỗn Độn Trường Hà để đến Di La Cung gặp thầy! Ông ta bị thầy đánh vào kỷ thứ tư, Đại công tử vẫn luôn tìm ông ta mà chưa tìm được. Đến kỷ thứ mười sáu mới tìm thấy và trấn áp ông ta!”
+“Là vị cường giả vượt qua mười sáu dòng Hỗn Độn Trường Hà để đến Di La Cung gặp sư phụ! Ông ta bị sư phụ đánh vào kỷ thứ tư, Đại công tử vẫn luôn tìm ông ta mà chưa tìm được. Đến kỷ thứ mười sáu mới tìm thấy và trấn áp ông ta!”
 
 Nhục thân Chủ điện Linh Quan tiếp tục phình to, càng lúc càng mạnh. Sau đầu hắn, từng dải đại đạo múa bay. Thân hình hắn dần dần bay lên từ trước bảo điện, còn bảo điện bị đại đạo của hắn quấn quanh, uy năng được thôi thúc đến cực hạn, đạo âm như hoàng chung đại lữ chấn động không dứt!
 

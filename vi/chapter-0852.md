@@ -160,7 +160,7 @@ Qua một lát, cuối cùng Tần Mục không nhịn được, hỏi:
 
 Lão giả mù đặt búa đục xuống, đôi mắt mù ngẩn ngơ xuất thần. Qua một lát, lão nói:
 
-"Cả đời lão sư nghiên cứu đạo pháp thần thông, xưa nay độc lai độc vãng, rất ít bạn bè. Nàng thu ta làm đệ tử, phần lớn là vì cảm thấy cô độc buồn chán. Ta là người thời Thượng Hoàng. Sau khi bái nàng làm thầy, ta đi theo nàng tu hành, biết lão sư không có mấy bằng hữu, nhưng nàng lại thường nhắc tới hai người, hai người đột nhiên xuất hiện vào đầu thời Long Hán, giúp đỡ nàng."
+"Cả đời lão sư nghiên cứu đạo pháp thần thông, xưa nay độc lai độc vãng, rất ít bạn bè. Nàng thu ta làm đệ tử, phần lớn là vì cảm thấy cô độc buồn chán. Ta là người thời Thượng Hoàng. Sau khi bái nàng làm sư phụ, ta đi theo nàng tu hành, biết lão sư không có mấy bằng hữu, nhưng nàng lại thường nhắc tới hai người, hai người đột nhiên xuất hiện vào đầu thời Long Hán, giúp đỡ nàng."
 
 Trong lòng Tần Mục ấm lên.
 

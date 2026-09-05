@@ -44,7 +44,7 @@ Quả nhiên, Hiểu Thiên Tôn cười như không cười, nói: “Tường 
 
 Trên gương mặt đầy râu quai nón của Thạch Kỳ La dập dờn ý cười, còn lè lưỡi với hắn. Tần Mục làm như không thấy, thầm nghĩ: “Lần này ngã đau rồi, nhưng cũng chưa tính là quá đau. Chỉ cần ta lui vào Hỗn Độn Trường Hà, bọn họ sẽ chẳng làm gì được ta...”
 
-Hỏa Thiên Tôn cười lạnh: “Mục Thiên Tôn, ngươi lên tiếng bảo vệ Tường Thiên Phi, chẳng lẽ ngươi cũng cấu kết với bậc thành đạo của vũ trụ quá khứ? Ta đã sớm biết ngươi là hạng ăn cây táo rào cây sung, vong ân phụ nghĩa, chỉ hận không sớm nhìn thấu bộ mặt thật của ngươi, trừ bỏ ngươi!”
+Hỏa Thiên Tôn cười lạnh: “Mục Thiên Tôn, ngươi lên tiếng bảo vệ Tường Thiên Phi, chẳng lẽ ngươi cũng cấu kết với bậc thành đạo của vũ trụ quá khứ? Ta đã sớm biết ngươi là hạng ăn cây táo rào cây sung, vong ân phụ nghĩa, chỉ hận không sớm nhìn thấu bộ mặt thật của ngươi, trừ khử ngươi!”
 
 Tần Mục khẽ mỉm cười, chiếc thuyền nhỏ dưới chân đã sắp lùi về sau.
 

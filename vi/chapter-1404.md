@@ -86,7 +86,7 @@ Lang Hiên Thần Hoàng thở dài một tiếng: "Đạo Cảnh vậy mà có 
 
 Tần Mục suy tư giây lát, nói: "Thủ đoạn bình thường rất khó giết chết ta triệt để. Thực lực ta tuy không bằng Thần Hoàng, nhưng có rất nhiều thủ đoạn giữ mạng. Đặc biệt là thần thông Bất Dịch, khi Thần Hoàng giết ta còn phải đề phòng ta kéo ngươi cùng rơi vào đại quỷ dị vật chất bất dịch. Cho nên cách đơn giản nhất để Thần Hoàng mài diệt ta chính là xem ta như tế phẩm, ném ta về tiền sử."
 
-Lang Hiên Thần Hoàng vỗ tay khen: "Quả thật là cách hay! Vũ trụ tiền sử đại hủy diệt, vật chất không còn, ném ngươi vào đó ngươi sẽ bị mài diệt thành một đoàn năng lượng, không còn lại gì! Dù có người giống ngươi, biết pháp thuật chiêu hồn nắn hồn, cũng không thể gọi cát đen linh hồn của ngươi về. Đây đúng là con đường tốt nhất để triệt để trừ bỏ ngươi. Hơn nữa ném ngươi về tiền sử cũng rất dễ, đầu kia của mảnh vỡ Đại La Thiên này đang ở trong đại hủy diệt của vũ trụ tiền sử. Ta chỉ cần đẩy nhẹ ngươi một cái, ngươi sẽ rơi vào."
+Lang Hiên Thần Hoàng vỗ tay khen: "Quả thật là cách hay! Vũ trụ tiền sử đại hủy diệt, vật chất không còn, ném ngươi vào đó ngươi sẽ bị mài diệt thành một đoàn năng lượng, không còn lại gì! Dù có người giống ngươi, biết pháp thuật chiêu hồn nắn hồn, cũng không thể gọi cát đen linh hồn của ngươi về. Đây đúng là con đường tốt nhất để triệt để trừ khử ngươi. Hơn nữa ném ngươi về tiền sử cũng rất dễ, đầu kia của mảnh vỡ Đại La Thiên này đang ở trong đại hủy diệt của vũ trụ tiền sử. Ta chỉ cần đẩy nhẹ ngươi một cái, ngươi sẽ rơi vào."
 
 Tần Mục im lặng.
 

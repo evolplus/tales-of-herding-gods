@@ -50,7 +50,7 @@ Lão què và Mã gia thoải thoải mái mái nằm trong đỉnh lớn. Canh 
 
 Lão què nheo mắt, nhìn dây chuyền vàng lớn của mình nổi lên từ trong nước, quay đầu liếc Đô Thiên Ma Vương vẫn đang chửi rủa kia một cái, cười nói:
 
-"Tiểu gia hỏa Mục nhi này thật sự trưởng thành rồi. Vốn ta còn tưởng cần ngươi và ta ra tay mới có thể trừ bỏ cái thứ Ma Vương vớ vẩn này, không ngờ nó tự mình xử lý xong. Bây giờ ta hơi lo rồi, không lo cho nó, mà lo cho những kẻ đối đầu với nó. Nói xem thằng bé này học ai mà xấu xa, mà nham hiểm như vậy?"
+"Tiểu gia hỏa Mục nhi này thật sự trưởng thành rồi. Vốn ta còn tưởng cần ngươi và ta ra tay mới có thể trừ khử cái thứ Ma Vương vớ vẩn này, không ngờ nó tự mình xử lý xong. Bây giờ ta hơi lo rồi, không lo cho nó, mà lo cho những kẻ đối đầu với nó. Nói xem thằng bé này học ai mà xấu xa, mà nham hiểm như vậy?"
 
 Mã gia nhìn chằm chằm Lão què.
 

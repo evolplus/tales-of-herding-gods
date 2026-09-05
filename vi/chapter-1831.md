@@ -146,7 +146,7 @@ Hắn và Lăng Thiên Tôn là cùng một loại người, ngoài đạo ra, k
 
 Thái Dịch đi trong thế gian, nhìn việc làm của đời trước của mình và Khai Thiên chúng, trong lòng thầm thở dài:
 
-"Thầy, người đúng, con sai rồi..."
+"Sư phụ, người đúng, con sai rồi..."
 
 Đời này, ngay cả hắn cũng không thể thành đạo lần nữa.
 

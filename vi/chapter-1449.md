@@ -34,7 +34,7 @@ Vì vậy, trong tình huống đao đạo của năm người Tần Mục thẳ
 
 Tần Mục hạ quyết tâm. Hắn và Nguyên Mẫu phu nhân giống nhau, đều có tính sợ thiên hạ không loạn, nhưng Tần Mục là sợ Thập Thiên Tôn không loạn, sợ Thiên Đình không loạn, còn Nguyên Mẫu phu nhân lại muốn cả thiên hạ loạn lên.
 
-Nhưng trong việc trừ bỏ Thiên Công, Nguyên Mẫu phu nhân và Thập Thiên Tôn đều có lợi ích giống nhau.
+Nhưng trong việc trừ khử Thiên Công, Nguyên Mẫu phu nhân và Thập Thiên Tôn đều có lợi ích giống nhau.
 
 Lúc này, Thạch Kỳ La đã tới không xa tôn thần khí Ngự Thiên Tôn bị Thiên Công khống chế. Tôn thần khí Ngự Thiên Tôn này là tôn của Tổ Thần Vương, nhưng lại bị Thiên Đạo Huyền Đô trấn áp, biến thành trọng khí Thiên Công dùng đối phó họ!
 

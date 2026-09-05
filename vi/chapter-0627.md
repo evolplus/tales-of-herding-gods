@@ -60,7 +60,7 @@ Bỗng nhiên, mặt Đế Thích Thiên Vương Phật đen lại, lập tức 
 
 Tần Mục đang sửa Đế Thích Thiên Vương Kinh của hắn, xuyên tạc công pháp của hắn!
 
-Loại gia hỏa phản thầy diệt tổ này, vừa học xong công pháp đã lập tức bắt tay sửa đổi, có vị thầy nào đối mặt với đệ tử như vậy mà còn giữ được lòng tiếc tài?
+Loại gia hỏa phản sư diệt tổ này, vừa học xong công pháp đã lập tức bắt tay sửa đổi, có vị sư phụ nào đối mặt với đệ tử như vậy mà còn giữ được lòng tiếc tài?
 
 Phật quang sau đầu Tần Mục đang dần biến đổi, giống như từng con du long nhỏ bé vô cùng và từng tôn Phật nhỏ bé bơi trong vòng sáng, trong Phật âm cũng mang theo tiếng rồng ngâm.
 

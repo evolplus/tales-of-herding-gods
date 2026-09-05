@@ -30,7 +30,7 @@ Giọng nói kia vô cùng quỷ dị, như lướt qua linh hồn bọn họ, c
 
 "Đến nước này, xem ra ta không giấu tiền bối được nữa."
 
-Ban Công Thố nghiêm mặt nói: "Không sai, ta chính là Tần Công Thố! Tên bên cạnh ta mới là Đại Tôn của Lâu Lan Hoàng Kim Cung, chuyển thế đoạt xá, gọi là Ban Mục. Xin tiền bối ra tay, lập tức trừ bỏ kẻ vô dụng này!"
+Ban Công Thố nghiêm mặt nói: "Không sai, ta chính là Tần Công Thố! Tên bên cạnh ta mới là Đại Tôn của Lâu Lan Hoàng Kim Cung, chuyển thế đoạt xá, gọi là Ban Mục. Xin tiền bối ra tay, lập tức trừ khử kẻ vô dụng này!"
 
 Tần Mục cười lạnh: "Vừa rồi ngươi còn gọi ta là Tần giáo chủ, chẳng lẽ lời ngươi nói đều là đánh rắm?"
 

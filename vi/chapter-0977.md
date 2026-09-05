@@ -150,7 +150,7 @@ Trong lòng Tần Mục khẽ động. Với bản lĩnh của Khai Hoàng, nế
 
 Tần Mục lắc đầu: "Nếu đổi nơi khác, ông ấy nhất định sẽ đánh ta một trận ra trò. Nhưng để ông ấy trút giận cũng tốt."
 
-Tạo Vật Chủ trên đại lục này bị kinh động. Tu Trọng, Tàm Nữ và rất nhiều tộc trưởng Tạo Vật Chủ khác dẫn các trưởng lão phóng lên trời, chuẩn bị đi hội hợp với Lãng Uyển Thần Vương, hợp lực trừ bỏ "Tần gian".
+Tạo Vật Chủ trên đại lục này bị kinh động. Tu Trọng, Tàm Nữ và rất nhiều tộc trưởng Tạo Vật Chủ khác dẫn các trưởng lão phóng lên trời, chuẩn bị đi hội hợp với Lãng Uyển Thần Vương, hợp lực trừ khử "Tần gian".
 
 Bên ngoài trời náo nhiệt vô cùng. Tần Mục cũng rục rịch, rất muốn chạy ra ngoài trời xem chiến, chỉ là hiện giờ hắn đang cung cấp khí huyết thần thức cho Thúc Quân, hơi lực bất tòng tâm.
 

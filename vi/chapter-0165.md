@@ -146,7 +146,7 @@ Tần Mục đi lên trước, ngồi trên tảng đá dưới gốc tùng bác
 
 Thiếu niên tổ sư nhìn xuống phía dưới, trầm giọng nói:
 
-"Tảng đá này chính là Thánh Nhân Thạch, Thánh nhân tọa. Năm đó vị tiều phu chỉ điểm Khai sơn tổ sư chính là Thánh nhân từ trên trời xuống. Ông không có quan hệ máu mủ với Tổ sư, không có quan hệ lợi ích, chỉ vì Tổ sư cầu đạo, ông liền làm thầy, truyền thụ kỹ nghệ cho Khai sơn tổ sư. Người ngồi trên Thánh Nhân Thạch này là giáo chủ, nhưng cũng là Thánh sư của giáo ta."
+"Tảng đá này chính là Thánh Nhân Thạch, Thánh nhân tọa. Năm đó vị tiều phu chỉ điểm Khai sơn tổ sư chính là Thánh nhân từ trên trời xuống. Ông không có quan hệ máu mủ với Tổ sư, không có quan hệ lợi ích, chỉ vì Tổ sư cầu đạo, ông liền làm sư phụ, truyền thụ kỹ nghệ cho Khai sơn tổ sư. Người ngồi trên Thánh Nhân Thạch này là giáo chủ, nhưng cũng là Thánh sư của giáo ta."
 
 Ánh mắt ông quét qua từng vị đường chủ, hộ giáo trưởng lão, đốc tra sứ, Thiên Vương và hộ pháp sứ, trầm giọng nói:
 

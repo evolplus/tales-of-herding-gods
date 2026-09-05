@@ -26,9 +26,9 @@ Khai Hoàng nắm lấy chuôi Vô Ưu Kiếm, ngón cái vuốt ve hoa văn tr�
 
 Tiều Phu Thánh Nhân nói: “Thất bại năm xưa, hôm nay giành lại là được!”
 
-Lam Ngự Điền dẫn năm nghìn đệ tử đến Diên Khang, nhìn đông ngó tây một phen, phân biệt đường đi. Nhưng những thần nhân đi theo hắn đều biết vị thầy này của mình dù phân biệt đường đi thế nào cũng sẽ lạc đường.
+Lam Ngự Điền dẫn năm nghìn đệ tử đến Diên Khang, nhìn đông ngó tây một phen, phân biệt đường đi. Nhưng những thần nhân đi theo hắn đều biết vị sư phụ này của mình dù phân biệt đường đi thế nào cũng sẽ lạc đường.
 
-“Thầy định đi đâu?” Một vị thần nữ hỏi.
+“Sư phụ định đi đâu?” Một vị thần nữ hỏi.
 
 “Không biết nữa.” Lam Ngự Điền hớn hở nói.
 
@@ -90,7 +90,7 @@ Lam Ngự Điền nói: “Ta cũng có cảm giác này. Ta cảm thấy huynh 
 
 Năm nghìn thần nhân theo bọn họ ùa vào Cầu Linh Năng Đối Chuyển. Rất lâu sau, bọn họ đi ra từ tế đàn ở đầu bên kia, trước mặt là phong ấn của Thập Thiên Tôn.
 
-“Thầy, bên này có phong ấn, bên kia có một cái lỗ, không có phong ấn!” Có người kêu lên.
+“Sư phụ, bên này có phong ấn, bên kia có một cái lỗ, không có phong ấn!” Có người kêu lên.
 
 Cửa động kia của Tổ Đình là do Tần Mục kích phát uy năng khoáng mạch Thái Thủy, oanh ra.
 

@@ -4,7 +4,7 @@ Tề Hạ Du hung dữ trừng Tần Mục một cái. Tần Mục bất đắc 
 
 Tề Hạ Du nhìn dáng vẻ quẫn bách của hắn, không biết nên giận hay nên cười, nghiêm mặt nói:
 
-"Đừng ăn nữa! Các nàng là Thanh Tước, Nam Đế tặng cho thầy ta, ngày thường thích hầu hạ người nhất, mà khiến người ta phiền nhất cũng là hầu hạ người. Bình thường các nàng ngậm thức ăn trong miệng để mớm cho chim non, các nàng xem ngươi là chim non rồi. Hơn nữa các nàng không biết tiết chế, coi chừng đút ngươi no chết!"
+"Đừng ăn nữa! Các nàng là Thanh Tước, Nam Đế tặng cho sư phụ ta, ngày thường thích hầu hạ người nhất, mà khiến người ta phiền nhất cũng là hầu hạ người. Bình thường các nàng ngậm thức ăn trong miệng để mớm cho chim non, các nàng xem ngươi là chim non rồi. Hơn nữa các nàng không biết tiết chế, coi chừng đút ngươi no chết!"
 
 Tần Mục bừng tỉnh, thảo nào những cô gái này cứ thích đút hắn ăn.
 

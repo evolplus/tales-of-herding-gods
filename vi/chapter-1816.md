@@ -118,7 +118,7 @@ Bàn tay công tử Lăng Tiêu đặt lên đạo thương. Cây đạo thươn
 
 Chung quanh đạo thương hình thành một xoáy nước đáng sợ, gào rít xoay chuyển.
 
-Công tử Lăng Tiêu hờ hững nói: "Ngọc Kinh Thành là do thầy luyện chế để chở chúng sinh vượt qua kiếp Phá Diệt và kiếp Sáng Sinh. Tòa thần thành này có thể nói là loại vật chất bất dịch thứ ba trong mười bảy vũ trụ từ xưa tới nay."
+Công tử Lăng Tiêu hờ hững nói: "Ngọc Kinh Thành là do sư phụ luyện chế để chở chúng sinh vượt qua kiếp Phá Diệt và kiếp Sáng Sinh. Tòa thần thành này có thể nói là loại vật chất bất dịch thứ ba trong mười bảy vũ trụ từ xưa tới nay."
 
 Hắn đột nhiên xoay đạo thương. Tường thành, lầu thành đã sụp đổ của Ngọc Kinh Thành bỗng khôi phục toàn bộ!
 

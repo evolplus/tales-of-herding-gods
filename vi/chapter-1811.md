@@ -68,11 +68,11 @@ Linh Dục Tú nói: "Phu quân ta tới Tổ Đình Ngọc Kinh Thành, bàn b�
 
 Khai Hoàng Tần Nghiệp hỏi: "Nương nương, Mục Thiên Tôn tới Tổ Đình Ngọc Kinh Thành bàn chuyện gì?"
 
-Linh Dục Tú nói: "Phu quân ta nói, chàng chuẩn bị trừ bỏ Nhị công tử và Vô Nhai, mời Tổ Đình Ngọc Kinh Thành đứng ngoài quan sát. Đợi đến khi Vô Nhai và Vô Cực bị trừ bỏ, lại quyết chiến với Tổ Đình Ngọc Kinh Thành."
+Linh Dục Tú nói: "Phu quân ta nói, chàng chuẩn bị trừ khử Nhị công tử và Vô Nhai, mời Tổ Đình Ngọc Kinh Thành đứng ngoài quan sát. Đợi đến khi Vô Nhai và Vô Cực bị trừ khử, lại quyết chiến với Tổ Đình Ngọc Kinh Thành."
 
 Lời vừa ra, mọi người đều ngẩn ra.
 
-Hư Sinh Hoa lắc đầu nói: "Công tử Lăng Tiêu, công tử Tử Tiêu sao có thể đồng ý? Huống hồ, chúng ta thật sự có thực lực trừ bỏ Vô Nhai lão nhân và công tử Vô Cực sao?"
+Hư Sinh Hoa lắc đầu nói: "Công tử Lăng Tiêu, công tử Tử Tiêu sao có thể đồng ý? Huống hồ, chúng ta thật sự có thực lực trừ khử Vô Nhai lão nhân và công tử Vô Cực sao?"
 
 Linh Dục Tú nói: "Chuyện đó thì không biết."
 
@@ -108,15 +108,15 @@ Tần Mục mỉm cười cúi đầu: "Đúng."
 
 Công tử Tử Tiêu nhìn chằm chằm hắn. Qua rất lâu, hắn nói: "Nụ cười của ngươi khiến ta lạnh cả người. Ngươi tự tin đến vậy, rằng chỉ dựa vào ngươi và những người biến pháp của ngươi, có thể đối kháng tích lũy của mười sáu vũ trụ Di La Cung?"
 
-Tần Mục ngẩng đầu, mỉm cười nói: "Thầy thành lập Di La Cung, tạo ra một vật khổng lồ. Đến cuối cùng, vật khổng lồ này đã gần như không nghe thầy điều khiển. Ta cũng từng tạo ra một vật khổng lồ, gọi là Thiên Minh, về sau chính tay ta phá hủy nó. Đường của thầy đi sai rồi, thầy không nỡ phá hủy Di La Cung. Là đệ tử cuối cùng của thầy, vậy hãy để ta phá hủy nó. Biến pháp Diên Khang chính là muốn lật đổ tất cả mục ruỗng. Hai vị sư huynh, chư vị đạo hữu, các ngươi đều đã mục ruỗng rồi."
+Tần Mục ngẩng đầu, mỉm cười nói: "Sư phụ thành lập Di La Cung, tạo ra một vật khổng lồ. Đến cuối cùng, vật khổng lồ này đã gần như không nghe sư phụ điều khiển. Ta cũng từng tạo ra một vật khổng lồ, gọi là Thiên Minh, về sau chính tay ta phá hủy nó. Đường của sư phụ đi sai rồi, sư phụ không nỡ phá hủy Di La Cung. Là đệ tử cuối cùng của sư phụ, vậy hãy để ta phá hủy nó. Biến pháp Diên Khang chính là muốn lật đổ tất cả mục ruỗng. Hai vị sư huynh, chư vị đạo hữu, các ngươi đều đã mục ruỗng rồi."
 
 Công tử Tử Tiêu nhìn hắn chòng chọc.
 
 Các điện chủ và bậc thành đạo Di La Cung khác cũng nhìn hắn chòng chọc.
 
-Nụ cười trên mặt Tần Mục không đổi, khẽ nói: "Ở thời đại này, sau khi giải quyết các ngươi, ta sẽ trở về quá khứ gặp thầy, trở thành đệ tử của thầy. Ta còn sẽ gặp các vị, cùng các vị uống rượu trò chuyện, làm bằng hữu. Nếu trận này ta thua, ta sẽ giết các ngươi ngay trong quá khứ. Không giết được các ngươi, ta cũng sẽ để lại trùng trùng hậu thủ."
+Nụ cười trên mặt Tần Mục không đổi, khẽ nói: "Ở thời đại này, sau khi giải quyết các ngươi, ta sẽ trở về quá khứ gặp sư phụ, trở thành đệ tử của sư phụ. Ta còn sẽ gặp các vị, cùng các vị uống rượu trò chuyện, làm bằng hữu. Nếu trận này ta thua, ta sẽ giết các ngươi ngay trong quá khứ. Không giết được các ngươi, ta cũng sẽ để lại trùng trùng hậu thủ."
 
-Hắn bật cười: "Nếu trận này ta thắng, các ngươi sẽ bình an sống tới hiện tại, bởi vì ta đã không còn hứng thú đối phó các ngươi. Nếu các ngươi sợ, chúng ta có thể tiếp tục kéo dài, cứ kéo dài tới khi đại Lãnh Tịch đại Hư Không mà thầy nói xuất hiện, tất cả đạo pháp thần thông phân giải thành hư không mới thôi."
+Hắn bật cười: "Nếu trận này ta thắng, các ngươi sẽ bình an sống tới hiện tại, bởi vì ta đã không còn hứng thú đối phó các ngươi. Nếu các ngươi sợ, chúng ta có thể tiếp tục kéo dài, cứ kéo dài tới khi đại Lãnh Tịch đại Hư Không mà sư phụ nói xuất hiện, tất cả đạo pháp thần thông phân giải thành hư không mới thôi."
 
 Đồng tử công tử Tử Tiêu đột nhiên co lại.
 
@@ -132,11 +132,11 @@ Bốn phía im lặng.
 
 "Lão Thất, trận này là nội đấu của Di La Cung chúng ta."
 
-Đột nhiên, công tử Lăng Tiêu mở miệng nói: "Là nội đấu sinh ra vì con đường khác nhau giữa các đệ tử của thầy chúng ta. Nhưng lý niệm của thầy, chúng ta đều có sự kiên trì riêng. Đúng không?"
+Đột nhiên, công tử Lăng Tiêu mở miệng nói: "Là nội đấu sinh ra vì con đường khác nhau giữa các đệ tử của sư phụ chúng ta. Nhưng lý niệm của sư phụ, chúng ta đều có sự kiên trì riêng. Đúng không?"
 
 Ánh mắt Tần Mục rơi lên người hắn, nhẹ nhàng gật đầu.
 
-Công tử Lăng Tiêu nhắm mắt lại, nói: "Được. Ta đồng ý với ngươi. Ngươi có thể đi diệt trừ Vô Nhai và Nhị tỷ rồi. Chúng ta mang thế của mười sáu kỷ quá khứ, ngươi hướng mắt về tương lai. Thế giằng co này không thể kéo dài. Đã là nội đấu, bất kể ai thắng, cuối cùng người thắng đều là thầy. Ngươi có thể đi."
+Công tử Lăng Tiêu nhắm mắt lại, nói: "Được. Ta đồng ý với ngươi. Ngươi có thể đi diệt trừ Vô Nhai và Nhị tỷ rồi. Chúng ta mang thế của mười sáu kỷ quá khứ, ngươi hướng mắt về tương lai. Thế giằng co này không thể kéo dài. Đã là nội đấu, bất kể ai thắng, cuối cùng người thắng đều là sư phụ. Ngươi có thể đi."
 
 Tần Mục đứng dậy, nghiêm nghị nói: "Hai vị sư huynh, chư vị đạo hữu, ta đi diệt Vô Nhai trước. Sau khi Vô Nhai chết, các ngươi không cần lo ai có thể đánh cắp năng lượng huyết tế nữa, các ngươi có thể thỏa sức giáng lâm!"
 

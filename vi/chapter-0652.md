@@ -10,7 +10,7 @@ Tần Mục gật đầu: "Vị Xích Minh Thần Tử này tuy ẩn cư lánh �
 
 Những đứa trẻ trong tư thục vẫn đang lắc lư đầu đọc: "... Trong động mới bảy ngày, bảy bảy bốn mươi..."
 
-Bọn họ còn muốn tiếp tục lắng nghe, lại bị thầy trong tư thục phát hiện. Vị thầy kia bảo đám trẻ dừng đọc sách, đi ra xem xét, thấy mấy người bọn họ không phải ba đầu sáu tay, hỏi một phen rồi đuổi bọn họ đi.
+Bọn họ còn muốn tiếp tục lắng nghe, lại bị tiên sinh trong tư thục phát hiện. Vị tiên sinh kia bảo đám trẻ dừng đọc sách, đi ra xem xét, thấy mấy người bọn họ không phải ba đầu sáu tay, hỏi một phen rồi đuổi bọn họ đi.
 
 Tần Mục suy tư nói: "Trong động mới bảy ngày là ý gì?"
 

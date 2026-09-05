@@ -4,7 +4,7 @@ Tần Mục chậm rãi thở ra một ngụm trọc khí. Tin tức này thật
 
 Chức quan Quốc tử Đại tế tửu tuy là tòng tam phẩm, nhìn qua không quá cao, nhưng thật sự quá quan trọng. Thái Học Viện nắm giữ công pháp thần thông trong thiên hạ, biên chép thành quyển, có thể nói là thánh địa trong thánh địa của võ học thần thông thiên hạ, chí cao vô thượng.
 
-Hơn nữa quan viên của Diên Khang quốc cũng thường xuất thân từ Thái Học Viện. Mỗi một người đi ra từ nơi này đều có thể nói là môn sinh của thiếu niên Tổ sư, có tình nghĩa thầy trò.
+Hơn nữa quan viên của Diên Khang quốc cũng thường xuất thân từ Thái Học Viện. Mỗi một người đi ra từ nơi này đều có thể nói là môn sinh của thiếu niên Tổ sư, có tình nghĩa sư đồ.
 
 Chức quan này không lớn, nhưng sức hiệu triệu quá mạnh!
 

@@ -16,7 +16,7 @@ Sắc mặt hai vị công tử nghiêm trọng. Từ quá trình Tần Mục di
 
 Muốn dựa vào thực lực của hắn và Diên Khang để tiêu diệt Ngọc Kinh Thành, gần như là chuyện không thể!
 
-"Khí phách của lão Thất đã có vài phần phong phạm của thầy. Nhưng dù thế nào, trận này tuyệt đối không thể thua, cũng tuyệt đối không có khả năng thua!"
+"Khí phách của lão Thất đã có vài phần phong phạm của sư phụ. Nhưng dù thế nào, trận này tuyệt đối không thể thua, cũng tuyệt đối không có khả năng thua!"
 
 Huyết tế của Ngọc Kinh Thành hoàn toàn triển khai, hấp thu năng lượng bàng bạc do cái chết của Vô Nhai và Vô Cực mang đến, thực hiện hoán đổi vật chất và năng lượng với quá khứ. Trong Ngọc Kinh Thành, từng đạo ánh sáng sáng lên, không ngừng có bậc thành đạo và điện chủ giáng lâm!
 
@@ -82,7 +82,7 @@ Diên Phong Đế đã không còn là Thiên Đế, Giang Bạch Khuê cũng kh
 
 Tinh thần Diên Phong Đế chấn động, đang định hỏi thì Ngụy Tùy Phong đã ghé tới, thì thầm: "Thiên Đồ Họa Thánh nói thế nào?"
 
-Thiên Đồ Họa Thánh chính là thầy họa đạo của Tần Mục, Lão điếc của Tàn Lão Thôn. Họa đạo của Tần Mục so với ông vẫn còn non nớt hơn đôi chút.
+Thiên Đồ Họa Thánh chính là sư phụ họa đạo của Tần Mục, Lão điếc của Tàn Lão Thôn. Họa đạo của Tần Mục so với ông vẫn còn non nớt hơn đôi chút.
 
 Có điều, Tần Mục viết tình hoài vào trong họa đạo, khí phách rộng lớn, đó lại không phải điều Họa Thánh có thể sánh được.
 

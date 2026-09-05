@@ -122,7 +122,7 @@ Diên Phong Đế nói với Quốc sư Diên Khang: "Đại hôn của Mục Th
 
 "Bệ hạ không thể quá lạc quan."
 
-Quốc sư Diên Khang nói: "Ngọc Thần Tử dẫn theo những người Diên Khang khéo ăn nói, giỏi khuấy nước đục đi đàm phán với Thiên Đình. Theo kế hoạch ban đầu, đúng là có thể kéo dài vài năm. Nhưng bây giờ Hạo Thiên Đế đã trừ bỏ Hỏa Thiên Tôn, Thái Sơ không dám ló đầu, không dám tranh đoạt lợi ích với hắn. Tổ Thần Vương, Hư Thiên Tôn, Thái Cực cổ thần lại càng không cần nói! Hiện nay Thiên Đình chỉ có một thế lực, đó chính là Hạo Thiên Đế! Sách lược kéo dài của Ngọc Thần Tử e là không còn hữu hiệu."
+Quốc sư Diên Khang nói: "Ngọc Thần Tử dẫn theo những người Diên Khang khéo ăn nói, giỏi khuấy nước đục đi đàm phán với Thiên Đình. Theo kế hoạch ban đầu, đúng là có thể kéo dài vài năm. Nhưng bây giờ Hạo Thiên Đế đã trừ khử Hỏa Thiên Tôn, Thái Sơ không dám ló đầu, không dám tranh đoạt lợi ích với hắn. Tổ Thần Vương, Hư Thiên Tôn, Thái Cực cổ thần lại càng không cần nói! Hiện nay Thiên Đình chỉ có một thế lực, đó chính là Hạo Thiên Đế! Sách lược kéo dài của Ngọc Thần Tử e là không còn hữu hiệu."
 
 Diên Phong Đế nhíu mày, nói: "Vì vậy Mục Thiên Tôn và Dục Tú mới thoái vị, thành hôn, để chúng ta bước ra trước đài, mong có thể kéo dài vài năm."
 

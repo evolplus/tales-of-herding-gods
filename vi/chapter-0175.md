@@ -194,7 +194,7 @@ Linh Ngọc Thư cười như không cười:
 
 Tần Mục nghĩ một lát, nói:
 
-"Ta nghe Cố Li Noãn nói ông ta là Thái tử Thiếu bảo. Thái tử Thiếu bảo hẳn là thầy thuở nhỏ của Thái tử nhỉ? Nhị hoàng tử, huynh cảm thấy Cố Li Noãn sẽ nể mặt huynh sao?"
+"Ta nghe Cố Li Noãn nói ông ta là Thái tử Thiếu bảo. Thái tử Thiếu bảo hẳn là sư trưởng thuở nhỏ của Thái tử nhỉ? Nhị hoàng tử, huynh cảm thấy Cố Li Noãn sẽ nể mặt huynh sao?"
 
 Trong lòng Linh Ngọc Thư chấn động nhẹ.
 

@@ -66,7 +66,7 @@ Vẻ mặt Thôn trưởng cứng đờ, ông cười khan hai tiếng, tiếp t
 
 Ông không biết phải nói thế nào. Lão què cười nói: "Quá khó tin!"
 
-Thôn trưởng gật đầu, có chút dở khóc dở cười: "Đúng là quá khó tin! Tiểu tử Mục nhi này, ta vốn nghĩ nó không thể thức tỉnh Linh Thai, nó lại cứ thức tỉnh. Ta vốn nghĩ tu vi của nó đến cảnh giới Linh Thai sẽ dừng bước, nó lại tìm được Bá Thể... Ừm, công pháp nối tiếp của Bá Thể Tam Đan Công. Ta vốn nghĩ nó sẽ chìm lẫn giữa người thường, nó lại một mạch đánh bại ba trăm sáu mươi đường chủ của Thiên Thánh giáo, trở thành thiếu niên giáo chủ. Ta vốn nghĩ nó học không nổi những thứ chúng ta dạy, nó lại học rất tốt, rất có thế trò giỏi hơn thầy."
+Thôn trưởng gật đầu, có chút dở khóc dở cười: "Đúng là quá khó tin! Tiểu tử Mục nhi này, ta vốn nghĩ nó không thể thức tỉnh Linh Thai, nó lại cứ thức tỉnh. Ta vốn nghĩ tu vi của nó đến cảnh giới Linh Thai sẽ dừng bước, nó lại tìm được Bá Thể... Ừm, công pháp nối tiếp của Bá Thể Tam Đan Công. Ta vốn nghĩ nó sẽ chìm lẫn giữa người thường, nó lại một mạch đánh bại ba trăm sáu mươi đường chủ của Thiên Thánh giáo, trở thành thiếu niên giáo chủ. Ta vốn nghĩ nó học không nổi những thứ chúng ta dạy, nó lại học rất tốt, rất có thế đệ tử vượt sư phụ."
 
 Ông cười khổ: "Ta vốn nghĩ ta sẽ không thừa nhận nó, sẽ không truyền y bát cho nó, vậy mà ta lại công nhận nó. Không chỉ truyền y bát cho nó, ta còn truyền cả gánh nặng và trách nhiệm của mình cho nó."
 
@@ -120,7 +120,7 @@ Quốc sư Diên Khang nghiêm nghị, bước lên trước, ngồi xổm xuố
 
 "Ông có nắm chắc đánh bại hắn không?" Thôn trưởng hỏi.
 
-Sắc mặt Quốc sư Diên Khang nặng nề: "Hiện giờ thì chưa. Sau này có lẽ sẽ có! Ông truyền kiếm đạo cho ta, lại là người khai sáng kiếm pháp cho ta, chính là thầy ta. Gánh nặng trên người ông, có thể giao cho ta không?"
+Sắc mặt Quốc sư Diên Khang nặng nề: "Hiện giờ thì chưa. Sau này có lẽ sẽ có! Ông truyền kiếm đạo cho ta, lại là người khai sáng kiếm pháp cho ta, chính là sư phụ ta. Gánh nặng trên người ông, có thể giao cho ta không?"
 
 Thôn trưởng lắc đầu cười: "Không cần giao cho ông nữa, ta đã giao cho người khác rồi."
 

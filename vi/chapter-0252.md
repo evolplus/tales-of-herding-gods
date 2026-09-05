@@ -86,7 +86,7 @@ Một vị viện chủ hòa thượng khác nói: "Như Lai muốn giữ hắn,
 
 Kính Minh lão hòa thượng nói: "Các ông không cần đoán bừa. Ý của Như Lai là muốn dùng Phật pháp hun đúc hắn, để hắn biết Phật pháp rộng lớn, bỏ ác theo thiện, quy y Phật môn. Như Lai vốn nhìn trúng hắn, muốn thu hắn làm đệ tử, không ngờ bị Tổ sư Thiên Ma giáo nhanh chân đến trước, cướp hắn đi."
 
-Mấy lão hòa thượng kinh ngạc, biết ông và lão Như Lai tình thầy trò sâu nặng, rất nhiều chuyện đều không giấu ông, vội nói: "Còn có chuyện này?"
+Mấy lão hòa thượng kinh ngạc, biết ông và lão Như Lai tình sư đồ sâu nặng, rất nhiều chuyện đều không giấu ông, vội nói: "Còn có chuyện này?"
 
 Kính Minh lão hòa thượng nói: "Cây Khích Khí La kia chính là tín vật. Ai ngờ bị hắn tiện tay tặng cho một con khỉ, Như Lai liền cho rằng duyên phận đã đứt, nên không đi tìm hắn. Thật ra Như Lai giữ hắn lại còn có tầng ý thứ hai. Thiên Ma giáo có vị Tần giáo chủ này, thế là có dấu hiệu trung hưng. Thiên Ma giáo chủ và Quốc sư Diên Khang quan hệ mật thiết. Lần tuyết tai này, Thiên Ma giáo chủ có tầm nhìn xa, lệnh trên dưới Ma giáo trợ hoàng đế cứu nạn. Thiên Ma giáo có hoàng đế và Quốc sư Diên Khang làm cánh tay, tất sẽ đại hưng trong thiên hạ."
 

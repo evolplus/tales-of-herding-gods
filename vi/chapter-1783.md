@@ -26,7 +26,7 @@ Tần Mục trước kia chỉ là không thể bị giết chết, còn hiện 
 
 "Vô Nhai quá tự phụ."
 
-Tam công tử Lăng Tiêu thản nhiên nói: "Trước kia ông ta cho rằng mình có thể khống chế thầy, về sau lại cho rằng mình có thể khống chế công tử của Di La Cung, nhưng nhiều lần vấp tường. Hiện giờ ông ta thử khống chế ngươi, kết quả ăn thiệt lớn. Chỉ e đến nay ông ta còn không biết mình đã dạy ngươi tốt đến mức nào."
+Tam công tử Lăng Tiêu thản nhiên nói: "Trước kia ông ta cho rằng mình có thể khống chế sư phụ, về sau lại cho rằng mình có thể khống chế công tử của Di La Cung, nhưng nhiều lần vấp tường. Hiện giờ ông ta thử khống chế ngươi, kết quả ăn thiệt lớn. Chỉ e đến nay ông ta còn không biết mình đã dạy ngươi tốt đến mức nào."
 
 Trong lời hắn khó tránh có vài phần hâm mộ.
 
@@ -48,7 +48,7 @@ Hai người ánh mắt chạm nhau, đều lộ vẻ chán ghét, không hề c
 
 Giờ khắc này, cả hai đều cảm thấy dáng vẻ tự phụ không ai bì nổi của đối phương cực kỳ đáng ghét.
 
-"Ngươi đến gặp thầy, ta không nên cản ngươi. Nhưng lão Thất, ngươi không nên để con mình đến."
+"Ngươi đến gặp sư phụ, ta không nên cản ngươi. Nhưng lão Thất, ngươi không nên để con mình đến."
 
 Tam công tử Lăng Tiêu dời ánh mắt, nhìn từng luồng đạo quang trên hoa sen Quy Khư và Thế Giới Thụ bay về tòa kim điện của Kim Thuyền, khóe mắt giật giật, nói: "Con của ngươi không gánh nổi phúc báo lớn như vậy. Ngươi đã nhận được không ít lợi ích, hiện giờ quay về, ta mặc cho ngươi rời đi, dù sao chúng ta cũng là sư huynh đệ. Nếu ngươi khăng khăng làm theo ý mình, Hỗn Độn Trường Hà này chính là nơi thê nhi ngươi vẫn lạc, cũng là nơi ngươi trở về quá khứ."
 

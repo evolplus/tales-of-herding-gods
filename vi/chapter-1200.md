@@ -4,7 +4,7 @@ Ngụy Tùy Phong nhìn vị sư đệ của mình hưng phấn như vậy, như
 
 “Đệ ấy chắc chắn đã quyết định một chủ ý tồi tệ nào đó, hơn nữa còn quyết định khăng khăng làm tới cùng, loại mà một vạn con Quỳ Long cũng không kéo về được.”
 
-Ngụy Tùy Phong thầm thở dài: “Thầy còn nói tính ta bướng, nói trong đầu ta không mọc não, bên trong là một đống gân cố chấp, hành xử cực đoan. Nhưng ta sao sánh được với nhị sư đệ? Đệ ấy đâu chỉ là trong đầu toàn gân cố chấp, cả người đệ ấy chính là một sợi gân cố chấp!”
+Ngụy Tùy Phong thầm thở dài: “Sư phụ còn nói tính ta bướng, nói trong đầu ta không mọc não, bên trong là một đống gân cố chấp, hành xử cực đoan. Nhưng ta sao sánh được với nhị sư đệ? Đệ ấy đâu chỉ là trong đầu toàn gân cố chấp, cả người đệ ấy chính là một sợi gân cố chấp!”
 
 Tần Mục lập tức bắt tay thực hiện kế hoạch của mình. Có điều lần này cải tạo bản thân là một công trình cực kỳ to lớn.
 

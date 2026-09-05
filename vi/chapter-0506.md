@@ -4,7 +4,7 @@ Trong Văn Nguyên điện, Tần Mục nhìn quanh bốn phía. Tòa Văn Nguy�
 
 Nhưng trong mắt Tần Mục, cũng chính vì Thiếu niên tổ sư chưa từng làm giáo chủ Thánh sư của Thiên Ma giáo, trái lại mới có thể buông gánh nặng, làm ra những thành tựu mà các giáo chủ kia cũng chưa từng làm.
 
-Thiếu niên tổ sư và Quốc sư Diên Khang nửa thầy nửa bạn. Khi Quốc sư Diên Khang tới thăm ông, ông chủ động đưa Đại Dục Thiên Ma Kinh cho Quốc sư xem, lại nói cho Quốc sư biết tổng cương giáo nghĩa đạo của thánh nhân của Thiên Thánh giáo. Sau đó, ông đích thân viết thư, tiến cử Quốc sư Diên Khang cho Đạo môn và Đại Lôi Âm Tự.
+Thiếu niên tổ sư và Quốc sư Diên Khang nửa sư phụ nửa bằng hữu. Khi Quốc sư Diên Khang tới thăm ông, ông chủ động đưa Đại Dục Thiên Ma Kinh cho Quốc sư xem, lại nói cho Quốc sư biết tổng cương giáo nghĩa đạo của thánh nhân của Thiên Thánh giáo. Sau đó, ông đích thân viết thư, tiến cử Quốc sư Diên Khang cho Đạo môn và Đại Lôi Âm Tự.
 
 Quốc sư Diên Khang có được thành tựu lớn như vậy, có quan hệ rất lớn với ông.
 
@@ -68,7 +68,7 @@ Thiếu niên tổ sư chần chờ một chút, nói:
 
 Tần Mục nói:
 
-"Thánh giáo vốn không có thứ tự trưởng ấu, người đạt đạo làm thầy. Tuy họ là tiền giáo chủ, nhưng giáo chủ cũng có khí phách giáo chủ. Không đánh họ, họ còn nói vị trí giáo chủ của con lai lịch bất chính. Đánh qua rồi, họ sẽ không còn lời nào để nói. Hơn nữa, Thánh giáo ở trong tay họ chẳng có thành tựu, tác phong lại bại hoại, vốn nên bị đánh."
+"Thánh giáo vốn không có thứ tự trưởng ấu, người đạt đạo làm sư phụ. Tuy họ là tiền giáo chủ, nhưng giáo chủ cũng có khí phách giáo chủ. Không đánh họ, họ còn nói vị trí giáo chủ của con lai lịch bất chính. Đánh qua rồi, họ sẽ không còn lời nào để nói. Hơn nữa, Thánh giáo ở trong tay họ chẳng có thành tựu, tác phong lại bại hoại, vốn nên bị đánh."
 
 Thiếu niên tổ sư thở dài, tò mò hỏi:
 
@@ -176,7 +176,7 @@ Thiếu niên tổ sư lúc này mới chú ý tới họ, không khỏi luống
 
 Tần Mục chân thành vô cùng:
 
-"Thánh sư là thầy của thánh nhân. Các đời giáo chủ đều hổ thẹn với danh xưng Thánh sư, chỉ có Tổ Sư xứng với danh hiệu này, đáng để các đời giáo chủ cúi đầu bái!"
+"Thánh sư là sư phụ của thánh nhân. Các đời giáo chủ đều hổ thẹn với danh xưng Thánh sư, chỉ có Tổ Sư xứng với danh hiệu này, đáng để các đời giáo chủ cúi đầu bái!"
 
 Trong lòng Thiếu niên tổ sư hoảng loạn, đột nhiên lại từ đáy lòng dâng lên cảm động, không khỏi nước mắt giàn giụa.
 

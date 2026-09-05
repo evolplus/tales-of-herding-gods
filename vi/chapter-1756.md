@@ -42,13 +42,13 @@ Hoan Hỉ điện chủ liếc hắn, cười như không cười: "Thiên Đế
 
 Giọng Hạo Thiên Đế khàn khàn: "Bọn họ chưa từng trải qua thất bại như ta! Đời này ta từng trải qua hai lần lên voi xuống chó, sau mỗi lần đều mạnh hơn trước kia, nhưng lần đại bại thứ ba thì khác. Trước lần đại bại này, ta bước lên đỉnh quyền lực, cục diện tốt đẹp, vậy mà lại bị Vân Thiên Tôn, Mục Thiên Tôn tan rã tất cả, mọi thứ đều hóa thành hư không! Thiên Đình của ta, quyền thế của ta, thậm chí ngay cả tu vi cảnh giới của ta cũng không giữ được! Trong mắt tất cả mọi người, ta chỉ là một trò cười, một trò cười mà thôi!"
 
-Hoan Hỉ điện chủ nhìn thần thái vừa suy sụp vừa hơi điên cuồng của hắn, không khỏi lắc đầu, nói: "Đây chính là tệ hại của tu đạo mà không tu tâm. Thiên Đế, trong lòng ngươi chỉ có sức mạnh, còn tạo nghệ đạo tâm lại không cao như vậy. Nếu ngươi tu luyện đạo tâm, dù trải qua thất bại dữ dội gấp trăm lần hiện tại, ngươi cũng có thể Đông Sơn tái khởi. Trên đời này, người gặp thất bại lớn nhất thật ra chính là thầy, Chủ nhân Di La Cung."
+Hoan Hỉ điện chủ nhìn thần thái vừa suy sụp vừa hơi điên cuồng của hắn, không khỏi lắc đầu, nói: "Đây chính là tệ hại của tu đạo mà không tu tâm. Thiên Đế, trong lòng ngươi chỉ có sức mạnh, còn tạo nghệ đạo tâm lại không cao như vậy. Nếu ngươi tu luyện đạo tâm, dù trải qua thất bại dữ dội gấp trăm lần hiện tại, ngươi cũng có thể Đông Sơn tái khởi. Trên đời này, người gặp thất bại lớn nhất thật ra chính là sư phụ, Chủ nhân Di La Cung."
 
 Hạo Thiên Đế hơi ngẩn ra, lắc đầu nói: "Chủ nhân Di La Cung là cường giả mạnh nhất mười bảy vũ trụ kỷ, ông ấy có thể chịu thất bại gì?"
 
-"Thầy lòng mang thiên hạ, muốn cứu vớt chúng sinh. Luận võ lực, đã không ai là đối thủ của thầy, nhưng mỗi lần kiếp Phá Diệt tới, đối với thầy đều là một thất bại cực lớn."
+"Sư phụ lòng mang thiên hạ, muốn cứu vớt chúng sinh. Luận võ lực, đã không ai là đối thủ của sư phụ, nhưng mỗi lần kiếp Phá Diệt tới, đối với sư phụ đều là một thất bại cực lớn."
 
-Hoan Hỉ điện chủ ân cần dạy bảo: "Mỗi lần đại kiếp, thầy muốn cứu người đời, thế nhưng mỗi lần đều thất bại. Thầy có sức mạnh vô biên, nhưng chỉ có thể trơ mắt nhìn người đời chết trước mặt mình, khiến sức mạnh của thầy không có chỗ dùng. Nỗi đau ấy không phải ngươi có thể tưởng tượng. Còn thầy sau mỗi lần thất bại, đạo tâm trải kiếp tái sinh, lại thắp lên đấu chí. Đây mới là việc cường giả đạo tâm làm."
+Hoan Hỉ điện chủ ân cần dạy bảo: "Mỗi lần đại kiếp, sư phụ muốn cứu người đời, thế nhưng mỗi lần đều thất bại. Sư phụ có sức mạnh vô biên, nhưng chỉ có thể trơ mắt nhìn người đời chết trước mặt mình, khiến sức mạnh của sư phụ không có chỗ dùng. Nỗi đau ấy không phải ngươi có thể tưởng tượng. Còn sư phụ sau mỗi lần thất bại, đạo tâm trải kiếp tái sinh, lại thắp lên đấu chí. Đây mới là việc cường giả đạo tâm làm."
 
 Hạo Thiên Đế nói: "Mà nay Chủ nhân Di La Cung ở đâu?"
 
@@ -56,7 +56,7 @@ Hoan Hỉ điện chủ im lặng.
 
 Sau khi trải qua mười sáu lần thất bại, cuối cùng Chủ nhân Di La Cung cũng không gượng dậy nổi, đạo tâm tử vong.
 
-"Nếu có thầy ở đây, Kỷ thứ mười bảy cũng sẽ không xảy ra nhiều chuyện như vậy, Di La Cung cũng sẽ không bị ngăn tới tận bây giờ vẫn không thể giáng lâm Kỷ thứ mười bảy."
+"Nếu có sư phụ ở đây, Kỷ thứ mười bảy cũng sẽ không xảy ra nhiều chuyện như vậy, Di La Cung cũng sẽ không bị ngăn tới tận bây giờ vẫn không thể giáng lâm Kỷ thứ mười bảy."
 
 Ả thầm thở dài, cùng Hạo Thiên Đế đi tới Hỗn Độn Trường Hà.
 
@@ -100,7 +100,7 @@ Ngoài sen Quy Khư, bọn họ còn nhìn thấy dị tượng Thế Giới Th�
 
 "Người tranh phong với lão Thất chính là lão quái vật dưới Thế Giới Thụ, Vô Nhai lão nhân."
 
-Tam công tử nói: "Ông ta do Thế Giới Thụ hóa thành, thực lực cực mạnh, tri thức nền tảng sâu dày nhất. Năm xưa thầy cũng rất kính trọng ông ta, nhưng về sau đường ai nấy đi. Lần này huyết tế của chúng ta bị quấy nhiễu, chính là ông ta giở trò."
+Tam công tử nói: "Ông ta do Thế Giới Thụ hóa thành, thực lực cực mạnh, tri thức nền tảng sâu dày nhất. Năm xưa sư phụ cũng rất kính trọng ông ta, nhưng về sau đường ai nấy đi. Lần này huyết tế của chúng ta bị quấy nhiễu, chính là ông ta giở trò."
 
 Hắn xoay người, xóa đi chung cực sát ý nơi vết thương và sát đạo còn sót lại của Thương Quân cho Hoan Hỉ điện chủ, thản nhiên nói: "Ông ta chết mà không cứng, đánh cắp năng lượng huyết tế để mình sử dụng, đến mức sáu tỷ năm huyết tế của Kỷ thứ mười bảy, phần lớn đều bị ông ta chặn lấy. Bậc thành đạo của Di La Cung giáng lâm sở dĩ khó khăn như vậy chính vì nguyên nhân này. Hiện tại ông ta đã sống lại, Thế Giới Thụ tái sinh. Theo số lượng bậc thành đạo của Kỷ thứ mười bảy tăng lên, thực lực của ông ta cũng sẽ dần khôi phục."
 
@@ -144,7 +144,7 @@ Trán hắn mồ hôi lạnh rịn ra. Hắn đã bị trói chặt triệt đ�
 
 "Nhưng sức mạnh của lão Thất cũng không thể xem thường."
 
-Sắc mặt Tam công tử Lăng Tiêu bình tĩnh, nói: "Dư nghiệt Thiên Đô Thái Dịch từng chặt đứt Thế Giới Thụ, trấn áp Vô Nhai lão nhân, một mình chặn kẻ vượt lậu, ngăn đại kế giáng lâm của Di La Cung sáu tỷ năm. Sau khi lão Thất trưởng thành, ông ta mới rời khỏi Thế Giới Thụ, đi khiêu khích thầy, bị thầy đánh rơi xuống Kỷ thứ tư. Đến Kỷ thứ mười sáu, ông ta bị Thái Thượng sư huynh trấn áp. Thái Thượng sư huynh thần long thấy đầu không thấy đuôi, sau khi trấn áp Thái Dịch liền biến mất không còn tăm tích. Mà không lâu trước đây, Thái Thượng sư huynh đã trở lại."
+Sắc mặt Tam công tử Lăng Tiêu bình tĩnh, nói: "Dư nghiệt Thiên Đô Thái Dịch từng chặt đứt Thế Giới Thụ, trấn áp Vô Nhai lão nhân, một mình chặn kẻ vượt lậu, ngăn đại kế giáng lâm của Di La Cung sáu tỷ năm. Sau khi lão Thất trưởng thành, ông ta mới rời khỏi Thế Giới Thụ, đi khiêu khích sư phụ, bị sư phụ đánh rơi xuống Kỷ thứ tư. Đến Kỷ thứ mười sáu, ông ta bị Thái Thượng sư huynh trấn áp. Thái Thượng sư huynh thần long thấy đầu không thấy đuôi, sau khi trấn áp Thái Dịch liền biến mất không còn tăm tích. Mà không lâu trước đây, Thái Thượng sư huynh đã trở lại."
 
 Sắc mặt các điện chủ khác đại biến, mỗi người nhìn nhau, trong lòng mơ hồ lo lắng.
 

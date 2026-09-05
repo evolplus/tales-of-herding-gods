@@ -96,7 +96,7 @@ Bạch Ngọc Quỳnh sởn tóc gáy, đờ đẫn nhìn những lâu thuyền 
 
 Đã có lâu thuyền chất đầy nô lệ, bắt đầu khởi hành, lái về phía Thiên Hà.
 
-“Bệ hạ phái ta tới, việc quan trọng nhất không phải trừ bỏ tên phản nghịch Mạnh Vân Quy, mà là giữ kho lương của Thiên Đình. Dĩ nhiên, có thể trừ bỏ phản tặc Mạnh Vân Quy cũng là công lớn!”
+“Bệ hạ phái ta tới, việc quan trọng nhất không phải trừ khử tên phản nghịch Mạnh Vân Quy, mà là giữ kho lương của Thiên Đình. Dĩ nhiên, có thể trừ khử phản tặc Mạnh Vân Quy cũng là công lớn!”
 
 Dực La Thiên Vương cười nói: “Mấu chốt hơn nữa là Mạnh Vân Quy để tâm tới tính mạng của đám tiện dân này. Hắn phản là vì những tiện dân Nam Thiên ấy. Mạnh Vân Quy trốn đi, chạy khắp nơi, ta rất khó bắt được bọn họ. Nhưng ta bắt đám tiện dân này tới, Mạnh Vân Quy không thể không đi đoạt thuyền! Hắn biết rõ là cạm bẫy, cũng không thể không chui vào.”
 

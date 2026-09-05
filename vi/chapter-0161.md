@@ -198,7 +198,7 @@ Tần Mục kinh ngạc, vội nói:
 
 "Thao Thiết là thần thú, một loài rồng. Loại thần thú này chỉ ăn không thải, không gian trong bụng rộng lắm. Da dùng luyện Túi Thao Thiết, xương dùng xây nhà, đều rất hữu dụng. Chỉ là thuần huyết quá ít."
 
-Tần Mục canh bên ông, hai thầy trò ngồi chuyện với nhau. Bất giác, Tần Mục ngồi ngủ thiếp đi.
+Tần Mục canh bên ông, sư đồ hai người ngồi chuyện với nhau. Bất giác, Tần Mục ngồi ngủ thiếp đi.
 
 Đợi hắn tỉnh lại, chỉ thấy lửa dưới đỉnh đã tắt, đang định thêm lửa thì giọng Đồ phu bên cạnh truyền tới:
 

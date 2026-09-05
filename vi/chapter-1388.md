@@ -6,7 +6,7 @@ Trong lòng Tần Mục kinh hãi. Thiên Công sắp chết?
 
 Theo tính toán của chính Thiên Công, muốn phân giải hoàn toàn Thiên Đạo của ông, ít nhất cũng cần trăm năm, mà hiện tại mới qua hơn hai mươi năm!
 
-Vì sao Thập Thiên Tôn muốn trừ bỏ Thiên Công nhanh như vậy?
+Vì sao Thập Thiên Tôn muốn trừ khử Thiên Công nhanh như vậy?
 
 "Trong chuyện này chắc chắn có chính Thiên Công ngấm ngầm thúc đẩy!"
 
@@ -64,7 +64,7 @@ Là minh hữu, ông không chủ động trao đổi tin tức với Tần Mụ
 
 "Thiên Công quá gấp, quá cấp thiết, không nghĩ đến ta, cũng không nghĩ đến Diên Khang. Lúc trước Lang Hiên Thần Hoàng từng trêu ta, nói ta đã đến tuổi già, còn ba mươi năm thọ mệnh. Hê hê, xem ra không phải nói vu vơ!"
 
-Nếu Thập Thiên Tôn trừ bỏ Thiên Công, trừ bỏ Thổ Bá, tru cổ thần, phế Thiên Đế, san bằng Vô Ưu Hương, vậy kẻ tiếp theo chính là Tần Mục.
+Nếu Thập Thiên Tôn trừ khử Thiên Công, trừ khử Thổ Bá, tru cổ thần, phế Thiên Đế, san bằng Vô Ưu Hương, vậy kẻ tiếp theo chính là Tần Mục.
 
 Mà làm xong những chuyện này, tính căng ra cũng cần ba mươi năm.
 

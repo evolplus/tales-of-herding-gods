@@ -6,7 +6,7 @@ Tần Mục cười nói: "Con tinh thông tạo hóa chi thuật, muốn không
 
 Tiều Phu Thánh Nhân tức nghẹn: "Thần nhân Vực Ngoại Thiên Đình xuất hiện lớp lớp, người có tài nhiều vô số, tu luyện đủ loại Thần Nhãn lại càng không ít. Ngươi thật sự cho rằng không ai nhìn thấu tạo hóa chi thuật của ngươi?"
 
-Tần Mục khuyên giải: "Thầy yên tâm, cho dù bị nhận ra, con không thừa nhận thì bọn họ làm gì được? Cãi cọ là được. Hơn nữa lần này con đi là để đánh đám loạn đảng các thầy, sẽ không làm bừa. Thiên Đình Mục Thiên Tôn nghĩa bạc vân thiên, tuổi tuy nhỏ nhưng dũng cảm xông vào tiền tuyến, lực khắc các nghịch tặc như Tần Nghiệp, Lãng Uyển."
+Tần Mục khuyên giải: "Sư phụ yên tâm, cho dù bị nhận ra, con không thừa nhận thì bọn họ làm gì được? Cãi cọ là được. Hơn nữa lần này con đi là để đánh đám loạn đảng các người, sẽ không làm bừa. Thiên Đình Mục Thiên Tôn nghĩa bạc vân thiên, tuổi tuy nhỏ nhưng dũng cảm xông vào tiền tuyến, lực khắc các nghịch tặc như Tần Nghiệp, Lãng Uyển."
 
 Tiều Phu Thánh Nhân trừng to mắt. Qua một lát, ông bất đắc dĩ nói: "Ngươi học được cãi cọ rồi? Thôi vậy, ta quản không nổi ngươi."
 

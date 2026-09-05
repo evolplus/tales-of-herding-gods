@@ -74,7 +74,7 @@ Những bóng đen trong sương lần lượt ẩn đi, ánh đỏ cũng lần 
 
 Hai con toan nghê mọc lại máu thịt trên thân, chỉ cảm thấy bảo liễn cũng không còn nặng nề, vội vàng phát lực dưới chân, kéo bảo liễn lên không trung. Bốn thiếu nữ trên xe thấy máu thịt trên người mình khôi phục, không khỏi đều thở phào nhẹ nhõm.
 
-Thân thể Kiều Tinh Quân cũng khôi phục như thường, thản nhiên nói: "Phong Đô không chịu sự quản giáo của U Đô, ngay cả Thượng Thương cũng dám va chạm, sớm muộn phải trừ bỏ."
+Thân thể Kiều Tinh Quân cũng khôi phục như thường, thản nhiên nói: "Phong Đô không chịu sự quản giáo của U Đô, ngay cả Thượng Thương cũng dám va chạm, sớm muộn phải trừ khử."
 
 Bảo liễn tiếp tục chạy dọc theo Dũng Giang. Đợi trời sáng hẳn, lúc này mới thấy được rìa tận cùng của Đại Khư, cách bọn họ chỉ hơn một nghìn dặm.
 

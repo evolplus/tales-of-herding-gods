@@ -106,7 +106,7 @@ Tần Mục thả lỏng, ánh mắt dao động, cười nói: "Nhị tỷ, ý 
 
 Họ đã sớm đoán được vị Nhị công tử Di La Cung này có thể không có ý tốt, nhưng nghe chính bà nói ra, vẫn có chút sợ hãi.
 
-Gương mặt nữ tử dưới mặt biển tiếp tục nói: "Bảy vị công tử Di La Cung, một thân bản lĩnh đều đến từ tham ngộ Hồng Mông phù văn. Bảy người chúng ta đều xem như đệ tử của chủ nhân Di La Cung. Chúng ta gọi ông là thầy, chỉ là ông chưa từng thừa nhận chúng ta. Mỗi người chúng ta lĩnh ngộ những thứ khác nhau từ phù văn của ông, thành tựu cũng khác nhau. Nhưng là truyền nhân của ông, tất nhiên rất hiểu đạo liên của ông."
+Gương mặt nữ tử dưới mặt biển tiếp tục nói: "Bảy vị công tử Di La Cung, một thân bản lĩnh đều đến từ tham ngộ Hồng Mông phù văn. Bảy người chúng ta đều xem như đệ tử của chủ nhân Di La Cung. Chúng ta gọi ông là sư phụ, chỉ là ông chưa từng thừa nhận chúng ta. Mỗi người chúng ta lĩnh ngộ những thứ khác nhau từ phù văn của ông, thành tựu cũng khác nhau. Nhưng là truyền nhân của ông, tất nhiên rất hiểu đạo liên của ông."
 
 Trong lòng Tần Mục khẽ động. Bảy vị công tử của Di La Cung đều là truyền nhân của chủ nhân Di La Cung?
 
@@ -118,7 +118,7 @@ Tóc trắng của nữ tử dưới mặt biển phất phơ. Gương mặt ch�
 
 Tần Mục ngẩng đầu nhìn lên. Từng đạo liên Di La Cung thô lớn rủ xuống từ bóng tối mênh mang không thể lường, bóng tối xoay chuyển, vặn vẹo, phá hủy tất cả.
 
-"Nhị tỷ, tỷ nói thầy trấn áp tỷ, vậy vì sao thầy lại trấn áp tỷ?"
+"Nhị tỷ, tỷ nói sư phụ trấn áp tỷ, vậy vì sao sư phụ lại trấn áp tỷ?"
 
 Hắn đột nhiên hỏi: "Chủ nhân Di La Cung có thể nói là người mạnh nhất thế gian. Ông trấn áp tỷ, nhất định có nguyên nhân của ông."
 

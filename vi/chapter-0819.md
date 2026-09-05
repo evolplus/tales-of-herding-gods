@@ -48,7 +48,7 @@ Triết Hoa Lê hơi ngẩn ra.
 
 Tần Mục nói:
 
-"Ta tuy là đứa trẻ bị bỏ rơi trong Đại Khư, nhưng bên cạnh có chín lão nhân Tàn Lão Thôn dạy dỗ, chín vị thầy xuất sắc nhất. Hơn nữa ta còn là U Đô Thần Tử, hậu nhân Khai Hoàng. Tuy chẳng giúp được gì, chỉ là bối cảnh, nhưng địa vị ở đó. Hơn nữa ta còn là Bá Thể."
+"Ta tuy là đứa trẻ bị bỏ rơi trong Đại Khư, nhưng bên cạnh có chín lão nhân Tàn Lão Thôn dạy dỗ, chín vị sư phụ xuất sắc nhất. Hơn nữa ta còn là U Đô Thần Tử, hậu nhân Khai Hoàng. Tuy chẳng giúp được gì, chỉ là bối cảnh, nhưng địa vị ở đó. Hơn nữa ta còn là Bá Thể."
 
 Hắn lắc đầu:
 

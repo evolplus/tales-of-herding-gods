@@ -78,9 +78,9 @@ Trong lòng Tần Mục mừng rỡ, xoay người lại, chỉ thấy Quốc s�
 
 "Sư đệ xuất quan rồi? Ngươi không chết ở La Phù Thiên?"
 
-Tần Mục nhìn thấy ông, cơn hoảng loạn trong lòng bỗng tan biến không còn. Hắn vội lấy Sinh Tử Bộ ra, hỏi: "Thầy đâu? Sao thầy không xuất hiện? Nếu thầy ở đây, thầy hẳn có thể thúc động uy năng của Sinh Tử Bộ..."
+Tần Mục nhìn thấy ông, cơn hoảng loạn trong lòng bỗng tan biến không còn. Hắn vội lấy Sinh Tử Bộ ra, hỏi: "Sư phụ đâu? Sao sư phụ không xuất hiện? Nếu sư phụ ở đây, người hẳn có thể thúc động uy năng của Sinh Tử Bộ..."
 
-Quốc sư Diên Khang nhận lấy Sinh Tử Bộ, thản nhiên nói: "Thầy còn chuyện quan trọng khác. Nhưng thúc động Sinh Tử Bộ thế nào, ta cũng hiểu."
+Quốc sư Diên Khang nhận lấy Sinh Tử Bộ, thản nhiên nói: "Sư phụ còn chuyện quan trọng khác. Nhưng thúc động Sinh Tử Bộ thế nào, ta cũng hiểu."
 
 Pháp lực của ông bùng phát. Sinh Tử Bộ đột nhiên xoạt một tiếng mở ra, ánh sáng chói lọi, treo cao trên không. Một màn sáng chiếu xuống, phủ lên đám thần ma xương trắng Uất Liêu. Ông nói: "Sư đệ có thể bảo mọi người rút gương đi rồi."
 
@@ -92,9 +92,9 @@ Thế nhưng Sinh Tử Bộ là bảo vật do Hắc Đế Minh Đô luyện ch�
 
 Vậy Quốc sư Diên Khang học công pháp thần thông Minh Đô từ lúc nào?
 
-"Thầy học thức uyên bác, biết cách khống chế Sinh Tử Bộ."
+"Sư phụ học thức uyên bác, biết cách khống chế Sinh Tử Bộ."
 
-Quốc sư Diên Khang thong thả nói: "Ta theo thầy tu hành hai năm, thông hiểu đủ loại học thức, ngộ một hiểu trăm, thông một thấu vạn. Khống chế Sinh Tử Bộ không khó."
+Quốc sư Diên Khang thong thả nói: "Ta theo sư phụ tu hành hai năm, thông hiểu đủ loại học thức, ngộ một hiểu trăm, thông một thấu vạn. Khống chế Sinh Tử Bộ không khó."
 
 Trên không, một bàn tay lớn đột nhiên xuất hiện, chộp về phía Sinh Tử Bộ!
 
@@ -118,7 +118,7 @@ Một kiếm kia của Quốc sư Diên Khang rõ ràng không phải pháp thu�
 
 "Hai năm thôi, ngươi đã tham ngộ tới bước này..."
 
-Tần Mục lộ vẻ khâm phục, lẩm bẩm: "Rốt cuộc thầy uyên bác đến mức nào mới có thể khiến ngươi tiến bộ thần tốc như vậy?"
+Tần Mục lộ vẻ khâm phục, lẩm bẩm: "Rốt cuộc sư phụ uyên bác đến mức nào mới có thể khiến ngươi tiến bộ thần tốc như vậy?"
 
 Thôn trưởng bay lên phía trước, nghiêm nghị nói: "Quốc sư, tạo nghệ kiếm pháp của ngươi đã vượt qua ta."
 

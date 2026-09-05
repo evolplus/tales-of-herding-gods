@@ -98,7 +98,7 @@ Tần Mục và Ban Công Thố không khỏi kinh thán. Thần thông và lạ
 
 Hai người đều vô cùng động tâm, nhưng không thể không thu tâm thần về. Kẻ địch ở ngay bên cạnh. Nếu bọn họ chìm vào tham ngộ, chắc chắn sẽ bị tên xấu xa cạnh mình nhân cơ hội giết chết.
 
-Tuy cả hai đều rất muốn trừ bỏ tử địch bên cạnh, độc chiếm nơi đây, nhưng ấn ký trên vách tường rất không ổn định. Nếu không cẩn thận chạm phải, uy năng ẩn chứa trong đó bộc phát, đủ khiến bọn họ chết cả nghìn trăm lần!
+Tuy cả hai đều rất muốn trừ khử tử địch bên cạnh, độc chiếm nơi đây, nhưng ấn ký trên vách tường rất không ổn định. Nếu không cẩn thận chạm phải, uy năng ẩn chứa trong đó bộc phát, đủ khiến bọn họ chết cả nghìn trăm lần!
 
 Ông lão trong tranh vẫn đang dẫn đường phía trước. Hành lang này sâu hun hút, dường như không có điểm cuối. Xét theo con đường bọn họ đã đi qua, hiện giờ bọn họ sớm đã đi ra khỏi con thuyền này, nhưng hành lang vẫn chưa đến cuối.
 

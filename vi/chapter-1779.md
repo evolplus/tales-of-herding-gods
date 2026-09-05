@@ -10,7 +10,7 @@ Cửa điện ầm ầm khép lại. Trong điện, kiếm đạo bày ra san s�
 
 Khai Hoàng Tần Nghiệp thu kiếm, đi lên phía trước.
 
-Đột nhiên tiếng cười của Nhị công tử Vô Cực truyền tới: "Lão Thất, quả nhiên ngươi lòng dạ ác độc, hạ sát thủ với người nhà mình, lại trừ bỏ ba điện chủ. Năm xưa thầy trấn áp ta chính là vì ta hạ tử thủ với người Di La Cung. Xem ra ngươi và ta là người cùng đường! Quy Khư thành đạo đều có lý niệm giống nhau. Ngươi tán đồng lý niệm của ta, khiến ta rất vui mừng!"
+Đột nhiên tiếng cười của Nhị công tử Vô Cực truyền tới: "Lão Thất, quả nhiên ngươi lòng dạ ác độc, hạ sát thủ với người nhà mình, lại trừ khử ba điện chủ. Năm xưa sư phụ trấn áp ta chính là vì ta hạ tử thủ với người Di La Cung. Xem ra ngươi và ta là người cùng đường! Quy Khư thành đạo đều có lý niệm giống nhau. Ngươi tán đồng lý niệm của ta, khiến ta rất vui mừng!"
 
 Khí tức Tần Mục uể oải, nghe vậy cười nói: "Nhị tỷ, tỷ và ta tuyệt đối không phải người cùng đường. Tỷ chỉ muốn diệt hết thảy, khiến hết thảy rơi vào Quy Khư. Trên thế gian này chỉ còn lại Quy Khư, sinh linh duy nhất còn sống là chính tỷ. Đây là lý niệm của tỷ. Lý niệm của ta không phải như vậy."
 
@@ -32,11 +32,11 @@ Kết ấn dây đỏ lập tức bắt đầu phát uy, cưỡng ép trói bu�
 
 Nhị công tử Vô Cực tóc trắng tung bay, chống đỡ kết ấn dây đỏ. Hai tay bà ta đặt lên mạn Độ Thế Kim Thuyền, cằm đặt trên mu bàn tay mình, lộ ra gương mặt xinh đẹp, tò mò quan sát mọi người trên thuyền.
 
-"Thầy tôn sùng không can dự vào vũ trụ kế tiếp. Ông ấy muốn tìm ra một cách hoàn mỹ để giải quyết đại phá diệt. Ban đầu ta rất tin cậy ông ấy, cho rằng ông ấy có thể tìm ra cách này. Ông ấy thất bại lần này đến lần khác, cuối cùng ta thất vọng."
+"Sư phụ tôn sùng không can dự vào vũ trụ kế tiếp. Ông ấy muốn tìm ra một cách hoàn mỹ để giải quyết đại phá diệt. Ban đầu ta rất tin cậy ông ấy, cho rằng ông ấy có thể tìm ra cách này. Ông ấy thất bại lần này đến lần khác, cuối cùng ta thất vọng."
 
 Ánh mắt Vô Cực lần lượt quét qua mặt mọi người. Trong lòng mọi người lạnh đi, chỉ cảm thấy bị ánh mắt bà ta quét qua giống như rơi vào bóng tối vô biên, thân thể và nguyên thần dường như cũng sắp phá diệt.
 
-Nhị công tử Vô Cực chống hai tay lên mạn thuyền, thân hình bơi theo kim thuyền, cười nói: "Về sau ta Quy Khư thành đạo, cuối cùng hiểu rõ thầy sai ở đâu. Ông ấy cảm thấy Chủ nhân Thiên Đô khai thiên là sai, chỉ sẽ nuôi ra một đám Khai Thiên chúng cao cao tại thượng, tác oai tác phúc. Nhưng không can dự của ông ấy cũng sai. Bậc thành đạo chính là kẻ phá hoại của vũ trụ này, là sâu mọt. Muốn tạo ra một thế giới hoàn mỹ, chỉ có một con đường, đó là hủy diệt tất cả bậc thành đạo! Lão Thất, nhất định ngươi tán đồng ta đúng không?"
+Nhị công tử Vô Cực chống hai tay lên mạn thuyền, thân hình bơi theo kim thuyền, cười nói: "Về sau ta Quy Khư thành đạo, cuối cùng hiểu rõ sư phụ sai ở đâu. Ông ấy cảm thấy Chủ nhân Thiên Đô khai thiên là sai, chỉ sẽ nuôi ra một đám Khai Thiên chúng cao cao tại thượng, tác oai tác phúc. Nhưng không can dự của ông ấy cũng sai. Bậc thành đạo chính là kẻ phá hoại của vũ trụ này, là sâu mọt. Muốn tạo ra một thế giới hoàn mỹ, chỉ có một con đường, đó là hủy diệt tất cả bậc thành đạo! Lão Thất, nhất định ngươi tán đồng ta đúng không?"
 
 Tần Mục được Linh Dục Tú đỡ, lảo đảo đứng lên, lắc đầu nói: "Nhị tỷ, đạo bất đồng bất tương vi mưu. Lý niệm của tỷ và ta không nhất trí."
 
@@ -46,13 +46,13 @@ Nhị công tử Vô Cực hất tóc, hất năm xiềng xích kết ấn dây 
 
 Bà ta một tay chống trên mạn thuyền, ngửa người bơi trong Hỗn Độn Hải, ung dung nói: "Mục đích của ngươi là diệt hết tất cả bậc thành đạo, khiến năng lượng vũ trụ mà đám sâu mọt này nuốt chửng quay về vũ trụ. Mục đích của ta cũng là như vậy. Những bậc thành đạo này chính là một đám cường đạo, đánh cắp huyền cơ trời đất, lại không có chút cống hiến nào với vũ trụ, chết chưa hết tội!"
 
-Bà ta buông tay ra, nằm ngửa dưới mặt biển, bơi quanh Độ Thế Kim Thuyền. Giọng bà ta lúc xa lúc gần, lúc trước lúc sau: "Mục đích của ta là sau khi trừ bỏ họ, sẽ sáng thế lần nữa. Ta sẽ không can thiệp thế giới mới giống Thiên Đô. Ta chỉ để thế giới mới này phát triển tự nhiên. Chẳng phải điều này giống lý niệm của ngươi sao?"
+Bà ta buông tay ra, nằm ngửa dưới mặt biển, bơi quanh Độ Thế Kim Thuyền. Giọng bà ta lúc xa lúc gần, lúc trước lúc sau: "Mục đích của ta là sau khi trừ khử họ, sẽ sáng thế lần nữa. Ta sẽ không can thiệp thế giới mới giống Thiên Đô. Ta chỉ để thế giới mới này phát triển tự nhiên. Chẳng phải điều này giống lý niệm của ngươi sao?"
 
 Bỗng nhiên, thân hình bà ta xuất hiện bên trái kim thuyền, muốn lên thuyền.
 
 Sắc mặt Tần Mục khẽ biến, năm ngón tay phải xòe ra, kết thành ấn kết ấn dây đỏ.
 
-Nhị công tử Vô Cực cười khúc khích, ngửa mặt ngã về sau, rơi vào trong biển: "Chỉ dựa vào sức của ngươi và vài con cá thối tôm nát này thì không thể chống lại Di La Cung. Ngươi không trở về quá khứ thì không giết được lão Tam, lão Tứ, còn ngươi thả ta ra, ta sẽ giúp ngươi trừ bỏ họ!"
+Nhị công tử Vô Cực cười khúc khích, ngửa mặt ngã về sau, rơi vào trong biển: "Chỉ dựa vào sức của ngươi và vài con cá thối tôm nát này thì không thể chống lại Di La Cung. Ngươi không trở về quá khứ thì không giết được lão Tam, lão Tứ, còn ngươi thả ta ra, ta sẽ giúp ngươi trừ khử họ!"
 
 Ào!
 

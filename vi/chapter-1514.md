@@ -36,7 +36,7 @@ Chỉ riêng Tần Mục sắc mặt như thường, Kiếp Kiếm trong tay nga
 
 Tường Thiên Phi lập tức đoán ra Tần Mục có thể nhìn xuyên Hỗn Độn, cố ý để thuyền nhỏ lướt tới gần Hỏa Thiên Tôn. Hỏa Thiên Tôn và Mục Thiên Tôn xưa nay bất hòa, hai người như nước với lửa. Chỉ cần có cơ hội, Hỏa Thiên Tôn sẽ thử xử lý Tần Mục. Mà bây giờ, cơ hội phản kích của Tần Mục đã tới.
 
-“Tên này bụng đầy nước xấu, xấu tới tận xương tủy, định mượn sức ta một lần trừ bỏ Hỏa Thiên Tôn!”
+“Tên này bụng đầy nước xấu, xấu tới tận xương tủy, định mượn sức ta một lần trừ khử Hỏa Thiên Tôn!”
 
 Nhưng đối với Tường Thiên Phi mà nói, đây cũng là cơ hội hiếm có để trọng thương Hỏa Thiên Tôn!
 

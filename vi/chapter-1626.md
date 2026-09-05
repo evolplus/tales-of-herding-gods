@@ -48,9 +48,9 @@ Hắn ý khí tiêu trầm, phất phất tay, xoay người đi về Đông C�
 
 Hạo Thiên Đế đại thắng, chí khí hừng hực.
 
-Độ Thế Kim Thuyền đi trong hư không. Đột nhiên Tần Phượng Thanh và Thái Thủy từ trong hư không bay tới, nhảy lên thuyền. Thái Thủy lắc đầu nói: "Không có cơ hội trừ khử Hư Thiên Tôn và Tổ Thần Vương, hai vị Thái Cực cổ thần đã tới. Thực lực của bọn họ rất mạnh, ta và đầu to khó thừa cơ trừ bỏ bọn họ."
+Độ Thế Kim Thuyền đi trong hư không. Đột nhiên Tần Phượng Thanh và Thái Thủy từ trong hư không bay tới, nhảy lên thuyền. Thái Thủy lắc đầu nói: "Không có cơ hội trừ khử Hư Thiên Tôn và Tổ Thần Vương, hai vị Thái Cực cổ thần đã tới. Thực lực của bọn họ rất mạnh, ta và đầu to khó thừa cơ trừ khử bọn họ."
 
-Tần Mục gật đầu, nói: "Không thể trừ bỏ bọn họ cũng là bình thường. Hai người này, một người nắm giữ Huyền Đô, một người nắm giữ nửa U Đô. Bây giờ Âm Thiên Tử hẳn đã chết, Hư Thiên Tôn nắm giữ toàn bộ U Đô chắc cũng không phải việc khó. Hai người này đối với Diên Khang, thậm chí đối với Nguyên giới, đều là uy hiếp trí mạng!"
+Tần Mục gật đầu, nói: "Không thể trừ khử bọn họ cũng là bình thường. Hai người này, một người nắm giữ Huyền Đô, một người nắm giữ nửa U Đô. Bây giờ Âm Thiên Tử hẳn đã chết, Hư Thiên Tôn nắm giữ toàn bộ U Đô chắc cũng không phải việc khó. Hai người này đối với Diên Khang, thậm chí đối với Nguyên giới, đều là uy hiếp trí mạng!"
 
 Hắn hơi nhíu mày.
 
@@ -144,7 +144,7 @@ Theo hồn phách Cô Độc Dị tiêu tán, chấm đỏ đại diện cho Cô
 
 "Ngươi là Lam Ngự Điền?"
 
-Thiếu niên còn lại nhìn hắn, lộ vẻ kinh ngạc, ngay sau đó lắc đầu cười nói: "Ngươi không phải Lam Ngự Điền. Thân thể này của ngươi giống Lam Ngự Điền, nhưng hẳn là do thần khí tạo hóa chế tạo ra. Không cần nhìn nữa, Hỏa Thiên Tôn đã bị trẫm trừ bỏ rồi, ngươi cũng có thể trở về báo cáo với hoàng đế Diên Khang."
+Thiếu niên còn lại nhìn hắn, lộ vẻ kinh ngạc, ngay sau đó lắc đầu cười nói: "Ngươi không phải Lam Ngự Điền. Thân thể này của ngươi giống Lam Ngự Điền, nhưng hẳn là do thần khí tạo hóa chế tạo ra. Không cần nhìn nữa, Hỏa Thiên Tôn đã bị trẫm trừ khử rồi, ngươi cũng có thể trở về báo cáo với hoàng đế Diên Khang."
 
 Tinh Ngạn đứng dậy, nghiêng đầu quan sát hắn, hai mắt sáng lên: "Thân thể của ngươi, ta rất thích."
 

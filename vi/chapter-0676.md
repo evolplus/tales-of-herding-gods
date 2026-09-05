@@ -26,13 +26,13 @@ Tộc trưởng Mục Nhật đi tới, ho khan liên tục: "Khụ khụ, Thái
 
 Viêm Tinh Tinh vội buông váy, mặt hơi đỏ. Tần Mục cuống quýt đứng lên, lúc này mới chú ý phía sau tộc trưởng Mục Nhật còn có Tiều Phu Thánh Nhân. Chỉ vì thân hình tộc trưởng Mục Nhật khôi ngô, cao vượt người thường, nên hắn mới không nhìn thấy ông.
 
-Tiều Phu Thánh Nhân nhìn hắn như cười mà không cười. Sắc mặt Tần Mục không đổi, nói: "Sao thầy lại tới đây?"
+Tiều Phu Thánh Nhân nhìn hắn như cười mà không cười. Sắc mặt Tần Mục không đổi, nói: "Sao sư phụ lại tới đây?"
 
 "Thuyền Mặt Trời là ta thiết kế."
 
 Tiều Phu Thánh Nhân cười nói: "Lần này ta tới là định lấy lại bản vẽ Thuyền Mặt Trời để ở đây, giao cho Diên Khang, để thiên công của Diên Khang chế tạo vài chiếc Thuyền Mặt Trời và Thuyền Mặt Trăng."
 
-Tần Mục cười nói: "Lần này con tới vốn cũng định tháo Thuyền Mặt Trời của Mục Nhật tộc ra, vẽ bản vẽ chi tiết, chế tạo lại vài chiếc Thuyền Mặt Trời. May mà thầy tới nhanh, nếu không con tới trước một bước thì Thuyền Mặt Trời đã bị con tháo rồi."
+Tần Mục cười nói: "Lần này con tới vốn cũng định tháo Thuyền Mặt Trời của Mục Nhật tộc ra, vẽ bản vẽ chi tiết, chế tạo lại vài chiếc Thuyền Mặt Trời. May mà sư phụ tới nhanh, nếu không con tới trước một bước thì Thuyền Mặt Trời đã bị con tháo rồi."
 
 Gương mặt đỏ rực của tộc trưởng Mục Nhật nháy mắt tối sầm, như mặt trời tắt lửa. Ông thầm nghĩ: "Tháo thuyền? Lần trước ngươi tới đã tháo mặt trời của chúng ta! May mà lại vớt được một viên về, bây giờ còn muốn tháo thuyền của chúng ta..."
 

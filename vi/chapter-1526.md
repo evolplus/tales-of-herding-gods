@@ -18,7 +18,7 @@ Tần Mục mím chặt miệng, bờ môi mỏng mím lại, không nói gì.
 
 So với Thái Dịch, hắn quả thật rất yếu. Chủ nhân Di La Cung quả thật không cần lừa hắn.
 
-Nếu có ác ý, trực tiếp trừ bỏ hắn là được!
+Nếu có ác ý, trực tiếp trừ khử hắn là được!
 
 “Ngươi muốn chứng cứ, vậy hãy đến khu mỏ ngoài cùng của Thế Giới Thụ mà tìm. Bậc thành đạo lợi dụng Thế Giới Thụ lén vượt qua sẽ để lại một hố mỏ. Ngươi đến vòng ngoài cùng của Thế Giới Thụ, nơi đó còn hố mỏ hắn lên bờ.”
 
@@ -54,7 +54,7 @@ Tần Mục lại im lặng.
 
 Nhìn từ các góc độ này, Thái Dịch quả thật đã can dự việc đời, cũng không siêu nhiên đến vậy.
 
-Thái Dịch khiến cổ thần thời thái cổ lầm tưởng đại đạo muốn trừ bỏ tộc Tạo Vật Chủ, vì vậy Thái Sơ Thiên Đế phát động chiến tranh nhằm vào tộc Tạo Vật Chủ, khiến tộc Tạo Vật Chủ diệt vong.
+Thái Dịch khiến cổ thần thời thái cổ lầm tưởng đại đạo muốn diệt trừ tộc Tạo Vật Chủ, vì vậy Thái Sơ Thiên Đế phát động chiến tranh nhằm vào tộc Tạo Vật Chủ, khiến tộc Tạo Vật Chủ diệt vong.
 
 Chủng tộc từng huy hoàng vô cùng ấy chỉ còn một phần nhỏ người trốn đến Thái Hư kéo dài hơi tàn.
 

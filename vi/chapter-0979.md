@@ -16,7 +16,7 @@ Tần Mục gật đầu.
 
 "Thúc Quân Thần Vương đã già, lỗi thời rồi, hơn nữa còn cố chấp tự phụ, không cần thiết cứu hắn."
 
-Lãng Uyển Thần Vương nói: "Nếu ngươi không nỡ ra tay, ta giúp ngươi trừ bỏ hắn. Luyện chết hắn vẫn rất dễ."
+Lãng Uyển Thần Vương nói: "Nếu ngươi không nỡ ra tay, ta giúp ngươi trừ khử hắn. Luyện chết hắn vẫn rất dễ."
 
 Trong Nguyên Thạch, Thúc Quân nổi trận lôi đình, mắng Lãng Uyển Thần Vương lòng dạ độc ác, không nhớ tình đồng tộc.
 

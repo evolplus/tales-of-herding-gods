@@ -100,7 +100,7 @@ Hỏa Thiên Tôn liếc nàng một cái. Hư Thiên Tôn không nói chuyện 
 
 Nhưng Hư Thiên Tôn không nói, hắn cũng giữ lại đôi điều.
 
-Mười vị Thiên Tôn từng người im lặng, bầu không khí hơi ngưng trọng. Theo lý mà nói, đã tìm được tung tích Vô Ưu Hương thì hẳn phải lập tức đề binh đánh tới đó, dù tổn thất nặng nề cũng nhất định phải diệt trừ Vô Ưu Hương, trừ bỏ Khai Hoàng.
+Mười vị Thiên Tôn từng người im lặng, bầu không khí hơi ngưng trọng. Theo lý mà nói, đã tìm được tung tích Vô Ưu Hương thì hẳn phải lập tức đề binh đánh tới đó, dù tổn thất nặng nề cũng nhất định phải diệt trừ Vô Ưu Hương, trừ khử Khai Hoàng.
 
 Nhưng hiện giờ, họ đều không còn tâm tư ấy.
 

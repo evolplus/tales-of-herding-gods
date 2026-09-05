@@ -130,13 +130,13 @@ Hắn khó nhọc hoạt động eo lưng. Xương sống vang lên lách tách,
 
 Thái Thượng liếc hắn một cái, nói: "Cho nên ngươi sẽ để lại bậc thành đạo và điện chủ của Di La Cung, dùng để khích lệ và thúc giục bọn họ tiếp tục tiến về phía trước."
 
-Sắc mặt Tần Mục bình tĩnh, nói: "Ta cần để lại một khả năng khác cho tương lai. Biết đâu lý niệm của thầy là đúng thì sao?"
+Sắc mặt Tần Mục bình tĩnh, nói: "Ta cần để lại một khả năng khác cho tương lai. Biết đâu lý niệm của sư phụ là đúng thì sao?"
 
 Ánh mắt hắn sâu thẳm: "Ta cũng không giết Vô Nhai lão nhân, không giết Nhị tỷ Vô Cực. Lỡ như toàn bộ vũ trụ sinh trưởng vô hạn, có lẽ bọn họ có thủ đoạn ngăn xu thế hư không hóa."
 
 Thái Thượng nhìn hắn, đột nhiên nói: "Ngươi chuẩn bị trở về rồi?"
 
-Tần Mục gật đầu, lộ ra nụ cười: "Ta chuẩn bị trở về, đi gặp thầy, đi trở thành lão Thất của Di La Cung, đi tìm con gái ta. Ta còn sẽ làm rất rất nhiều chuyện trong quá khứ, thậm chí còn nhiều hơn những gì ta làm ở kỷ thứ mười bảy. Ta đi tìm khả năng tránh được đại tịch diệt trong tương lai."
+Tần Mục gật đầu, lộ ra nụ cười: "Ta chuẩn bị trở về, đi gặp sư phụ, đi trở thành lão Thất của Di La Cung, đi tìm con gái ta. Ta còn sẽ làm rất rất nhiều chuyện trong quá khứ, thậm chí còn nhiều hơn những gì ta làm ở kỷ thứ mười bảy. Ta đi tìm khả năng tránh được đại tịch diệt trong tương lai."
 
 Sắc mặt công tử Thái Thượng cổ quái, nói: "Ngươi trở về quá khứ, quả thật sẽ làm rất rất nhiều chuyện. Những chuyện ngươi làm khiến người ta xem không hiểu. Ít nhất, ta chưa từng xem hiểu. Danh tiếng của ngươi sẽ không tốt."
 
@@ -144,7 +144,7 @@ Sắc mặt công tử Thái Thượng cổ quái, nói: "Ngươi trở về qu�
 
 Tần Mục lảo đảo đứng dậy, vươn vai, cười nói: "Thất công tử Hỗn Độn mà bị người ta nhìn thấu ngay từ đầu, còn xứng với danh hiệu Hỗn Độn sao?"
 
-Công tử Thái Thượng đứng dậy, nói: "Ngươi nói ta học thầy, học thế nào cũng không giống. Học thầy nhập diệt hóa đạo mà chết cũng học chẳng ra gì. Ta nghĩ đại khái là ta không tuyệt vọng với tương lai như thầy. Ta không biết hy vọng này đến từ đâu, bây giờ ta biết rồi, tia hy vọng này hẳn bắt nguồn từ ngươi."
+Công tử Thái Thượng đứng dậy, nói: "Ngươi nói ta học sư phụ, học thế nào cũng không giống. Học sư phụ nhập diệt hóa đạo mà chết cũng học chẳng ra gì. Ta nghĩ đại khái là ta không tuyệt vọng với tương lai như sư phụ. Ta không biết hy vọng này đến từ đâu, bây giờ ta biết rồi, tia hy vọng này hẳn bắt nguồn từ ngươi."
 
 Ánh mắt ông sâu thẳm, nói: "Sau khi ngươi trở về quá khứ, ta sẽ tới kỷ thứ mười bảy hóa đạo, trả lại linh năng linh lực đã đoạt từ vũ trụ cho vũ trụ. Nhưng ta sẽ không chết. Ta sẽ chuyển thế, chờ ngươi ở kỷ thứ mười bảy."
 

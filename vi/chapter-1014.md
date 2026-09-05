@@ -30,7 +30,7 @@ Còn bây giờ, Tần Mục lại quay về Đọa Thần Cốc, định triệ
 
 Dù là vặt lông cừu cũng không thể cứ bắt một con mà vặt mãi. Tiểu tử này dường như quyết tâm đối nghịch với hắn, cứ nhắm vào hắn mà vặt, không hề có ý dừng tay!
 
-Hắn không thể nhịn tiểu tử này thêm nữa. Hôm nay bất luận thế nào cũng phải trừ bỏ Tần Mục!
+Hắn không thể nhịn tiểu tử này thêm nữa. Hôm nay bất luận thế nào cũng phải trừ khử Tần Mục!
 
 "Sinh linh nhỏ bé ngu muội, ta tung hoành hoàn vũ, từng thấy vô số thiên tài như sao trời, bọn họ đều ngã xuống, chỉ mình ta còn lại!"
 

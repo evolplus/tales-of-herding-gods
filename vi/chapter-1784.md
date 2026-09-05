@@ -50,7 +50,7 @@ Chủ nhân Di La Cung chính là trấn áp nàng trong Quy Khư Đại Uyên c
 
 "Ta đến nói cho sư tỷ biết, con của lão Thất sắp ra đời."
 
-Tam công tử nói: "Con của lão Thất lúc này còn trong thai mẹ. Lão Thất đưa thê tử đi xuyên qua mười sáu đạo Hỗn Độn Trường Hà, định tới Di La Cung gặp thầy. Dọc đường, hắn dùng sen Quy Khư và Thế Giới Thụ luyện hóa sức mạnh kiếp Phá Diệt, nuôi dưỡng đứa trẻ trong bụng mẹ."
+Tam công tử nói: "Con của lão Thất lúc này còn trong thai mẹ. Lão Thất đưa thê tử đi xuyên qua mười sáu đạo Hỗn Độn Trường Hà, định tới Di La Cung gặp sư phụ. Dọc đường, hắn dùng sen Quy Khư và Thế Giới Thụ luyện hóa sức mạnh kiếp Phá Diệt, nuôi dưỡng đứa trẻ trong bụng mẹ."
 
 Quy Khư Đại Uyên rơi vào yên lặng.
 
@@ -62,7 +62,7 @@ Tam công tử nói: "Sư tỷ, đứa trẻ này giáng thế, vậy tất nhi�
 
 Tam công tử chém đinh chặt sắt nói: "Giết đứa trẻ này, hoặc cướp đứa trẻ này! Không thể để nó rơi vào tay người khác!"
 
-Nhị công tử cười khẩy một tiếng: "Ta bị trấn áp ở đây, làm sao mới giết được nó? Lão Tam, ngươi cởi phong ấn của thầy ra, ta đi giết nó!"
+Nhị công tử cười khẩy một tiếng: "Ta bị trấn áp ở đây, làm sao mới giết được nó? Lão Tam, ngươi cởi phong ấn của sư phụ ra, ta đi giết nó!"
 
 Tam công tử lắc đầu nói: "Chuyện này liên quan sinh tử của Di La Cung..."
 
@@ -74,7 +74,7 @@ Sắc mặt Tam công tử Lăng Tiêu khẽ đổi, kiên nhẫn nói: "Điều
 
 Sắc mặt Tam công tử đại biến, trầm giọng nói: "Việc sư tỷ cần làm rất đơn giản, đó là thúc động sức mạnh Quy Khư, khiến lão Thất không thể điều động Hỗn Độn Trường Hà. Ta đi mấy đạo Hỗn Độn Trường Hà phía sau chặn hắn, nhất định phải xóa bỏ đứa trẻ kia! Để báo đáp..."
 
-Hắn do dự một thoáng, nghiến răng nói: "Ta giúp sư tỷ giải một phù văn trong phong ấn của thầy, để sức mạnh của tỷ có thể rò rỉ ra."
+Hắn do dự một thoáng, nghiến răng nói: "Ta giúp sư tỷ giải một phù văn trong phong ấn của sư phụ, để sức mạnh của tỷ có thể rò rỉ ra."
 
 Trong Quy Khư Đại Uyên yên lặng.
 

@@ -60,7 +60,7 @@ Tam công tử và Tứ công tử đều không trực tiếp ra tay. Tuy bọn
 
 Thất công tử Di La Cung thành đạo bằng Hỗn Độn, tu thành Hỗn Độn Điện!
 
-Ngay cả thầy của bọn họ là Chủ nhân Di La Cung cũng khen ngợi Tần Mục rất nhiều!
+Ngay cả sư phụ của bọn họ là Chủ nhân Di La Cung cũng khen ngợi Tần Mục rất nhiều!
 
 Bọn họ chỉ mượn thân xác Hạo Thiên Đế và Thái Sơ để có thể giao phong với Tần Mục. Khống chế thân xác của người khác rốt cuộc không tiện bằng tự mình giáng lâm, hơn nữa bọn họ còn phải đối phó Thất công tử trong vũ trụ quá khứ. Vì vậy lần này là cơ hội hiếm có, có thể nhìn trộm Hỗn Độn Điện của Thất công tử rốt cuộc có đạo diệu gì, có thần thông gì.
 

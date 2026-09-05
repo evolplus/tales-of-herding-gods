@@ -2,7 +2,7 @@
 
 Nếu Quốc sư Diên Khang biết lai lịch của chín vị lão nhân này, ông sẽ hiểu vì sao Tần Mục lại có ánh mắt và lòng dạ mà người cùng tuổi không có.
 
-Chín vị "lão nhân" của Tàn Lão Thôn vừa là người thân chí thân của Tần Mục, vừa là thầy của cậu.
+Chín vị "lão nhân" của Tàn Lão Thôn vừa là người thân chí thân của Tần Mục, vừa là sư phụ của cậu.
 
 Trong chín người này có Như Lai đương thời, có Thần Thương năm xưa, có Lão câm luyện bảo thiên hạ đệ nhất nhưng tính tình cũng thật hỏng, có Ngọc Diện Độc Vương Dược sư từng tuấn mỹ vô song mà lòng dạ tàn nhẫn, có Thánh nữ Thiên Ma giáo khiến cả hai phía thần ma trong thiên hạ đều xao động.
 

@@ -44,7 +44,7 @@ Hư Sinh Hoa xoay người.
 
 Cổ thần Linh Quan xoay người lại, trong cơ thể cũng truyền ra một tiếng trầm đục. Đó là một chiêu thần thông của Hư Sinh Hoa đã phá thủng phòng ngự thần thông, đánh trúng hắn, rồi bộc phát trong cơ thể hắn.
 
-Cổ thần Linh Quan nhìn vết thương nhỏ bé xuất hiện trên ngực, không khỏi tán thán: “Thần thông của ngươi biến hóa rất nhiều, thật sự ngoài dự liệu của ta. Ta theo học Di La Cung, tuy Chủ nhân Di La Cung chưa từng nhận ta làm đệ tử, nhưng tất cả mọi người đều sẽ gọi ông ấy một tiếng thầy. Đạo pháp thần thông của Di La Cung sâu rộng đến nhường nào? Tinh thâm đến nhường nào? Mỗi loại thần thông đều đã trải qua rèn giũa của từng vũ trụ kỷ. Vậy mà ngươi lại có thể chống đỡ được, khiến ta kinh ngạc!”
+Cổ thần Linh Quan nhìn vết thương nhỏ bé xuất hiện trên ngực, không khỏi tán thán: “Thần thông của ngươi biến hóa rất nhiều, thật sự ngoài dự liệu của ta. Ta theo học Di La Cung, tuy Chủ nhân Di La Cung chưa từng nhận ta làm đệ tử, nhưng tất cả mọi người đều sẽ gọi ông ấy một tiếng sư phụ. Đạo pháp thần thông của Di La Cung sâu rộng đến nhường nào? Tinh thâm đến nhường nào? Mỗi loại thần thông đều đã trải qua rèn giũa của từng vũ trụ kỷ. Vậy mà ngươi lại có thể chống đỡ được, khiến ta kinh ngạc!”
 
 Hắn thúc động công pháp, vết thương rất nhanh lành lại.
 

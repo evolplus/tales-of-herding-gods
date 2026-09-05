@@ -72,11 +72,11 @@ Thần thông Bất Dịch của Lăng Thiên Tôn chính là một bí ẩn khi
 
 Vì không biết nên sợ hãi.
 
-Thập Thiên Tôn gần như dốc hết cao thủ xuất động, nhất định phải trừ bỏ Lăng Thiên Tôn, nhưng bị Minh Phương Vũ đoạt trước một bước. Nguyên thần của Minh Phương Vũ nhập chủ nhục thân Thiên Đế, giết Lăng Thiên Tôn trên Thiên Hà, đến mức nguyên thần Minh Phương Vũ cùng nhục thân Thiên Đế biến mất không dấu vết.
+Thập Thiên Tôn gần như dốc hết cao thủ xuất động, nhất định phải trừ khử Lăng Thiên Tôn, nhưng bị Minh Phương Vũ đoạt trước một bước. Nguyên thần của Minh Phương Vũ nhập chủ nhục thân Thiên Đế, giết Lăng Thiên Tôn trên Thiên Hà, đến mức nguyên thần Minh Phương Vũ cùng nhục thân Thiên Đế biến mất không dấu vết.
 
 "Thần Hoàng, vị cường giả tiền sử này là nhân vật ở trên Đại La Thiên. Thực lực của hắn vượt lên trên Thập Thiên Tôn, thậm chí bất cứ Thiên Tôn nào. Nếu hắn tiến vào Tổ Đình, sự thống trị của Thập Thiên Tôn sẽ tan rã, hắn sẽ trở thành một kẻ cao cao tại thượng."
 
-Tần Mục khéo léo dẫn dụ: "Vì quyền thế của mình, hắn hoặc sẽ trừ bỏ Thập Thiên Tôn, hoặc sẽ hàng phục các ngươi. Là Thập Thiên Tôn, là kẻ thống trị thời đại này, ngươi nên làm gì?"
+Tần Mục khéo léo dẫn dụ: "Vì quyền thế của mình, hắn hoặc sẽ trừ khử Thập Thiên Tôn, hoặc sẽ hàng phục các ngươi. Là Thập Thiên Tôn, là kẻ thống trị thời đại này, ngươi nên làm gì?"
 
 Lang Hiên Thần Hoàng hồi thần, ánh mắt chớp động, cười nói: "Nhưng ta sẽ không để hắn tiến vào Tổ Đình, tiến vào Dao Trì, càng không để hắn đánh cắp sức mạnh Dao Trì!"
 

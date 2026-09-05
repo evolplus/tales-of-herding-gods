@@ -110,7 +110,7 @@ Sắc mặt Diên Phong Đế tái xanh, bực bội nói: "Ngọc Diện Độc
 
 Ông là hoàng đế, Thái hậu nương nương là mẹ ruột của ông. Nhưng Ngọc Diện Độc Vương lại có quan hệ không rõ ràng với Thái hậu nương nương. Khi chân diện mục của Dược sư chưa bị lật ra, ông được gọi là Ngọc Diện Lang Quân, tình nhân khắp thiên hạ, thậm chí có vài đạo cô, sư thái danh tiếng lẫy lừng trong giang hồ cũng có dây mơ rễ má không nói rõ được với ông.
 
-Diên Phong Đế đương nhiên biết chuyện này, chỉ là không tiện nói gì. Ông từng sai người ám sát Ngọc Diện Độc Vương, trừ bỏ diện thủ của Thái hậu nương nương. Dược sư bị ép trốn vào Đại Khư, trong đó cũng có công của ông.
+Diên Phong Đế đương nhiên biết chuyện này, chỉ là không tiện nói gì. Ông từng sai người ám sát Ngọc Diện Độc Vương, trừ khử diện thủ của Thái hậu nương nương. Dược sư bị ép trốn vào Đại Khư, trong đó cũng có công của ông.
 
 Bảo ông đi gặp Ngọc Diện Độc Vương, trong lòng ông có một nghìn lần không vui.
 

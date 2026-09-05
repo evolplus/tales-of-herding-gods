@@ -58,7 +58,7 @@ Lão Đạo Chủ Thiên Đình khen: "Có điều, ta đã để hắn biết l
 
 "Không cần đến mức ấy."
 
-Đạo Tổ nhìn chằm chằm bàn cờ, đợi ông ta hạ quân, cười nói: "Hắn biết lợi hại, sẽ không báo lên Thập Thiên Tôn. Hơn nữa, Thập Thiên Tôn quả thật có lòng mưu nghịch. Họ sắp tu thành Thiên Đình, lại luyện thành thần khí Ngự Thiên Tôn, chắc chắn sẽ không tiếp tục đẩy Thiên Đế ra. Họ muốn trở thành Thiên Đế chân chính, cũng cần một lý do để trừ bỏ Thiên Đế, dù Thiên Đế này chỉ là một vật phỏng tạo."
+Đạo Tổ nhìn chằm chằm bàn cờ, đợi ông ta hạ quân, cười nói: "Hắn biết lợi hại, sẽ không báo lên Thập Thiên Tôn. Hơn nữa, Thập Thiên Tôn quả thật có lòng mưu nghịch. Họ sắp tu thành Thiên Đình, lại luyện thành thần khí Ngự Thiên Tôn, chắc chắn sẽ không tiếp tục đẩy Thiên Đế ra. Họ muốn trở thành Thiên Đế chân chính, cũng cần một lý do để trừ khử Thiên Đế, dù Thiên Đế này chỉ là một vật phỏng tạo."
 
 Đại Phạn Thiên Vương Phật nhìn chằm chằm bàn cờ. Một lát sau, ông phất tay áo: "Thua rồi, thua rồi! Thuật số của ông quá mạnh, ta đánh không lại!"
 

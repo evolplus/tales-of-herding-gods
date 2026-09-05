@@ -130,7 +130,7 @@ Tần Mục và Tần Linh Quân phất áo rời đi.
 
 Qua mấy ngày, Thái Thượng nói với Chủ nhân Di La Cung:
 
-"Thưa thầy, lão thất xông vào rừng bia nhọn của con, cứu kẻ độc đạo Lăng đi rồi."
+"Thưa sư phụ, lão thất xông vào rừng bia nhọn của con, cứu kẻ độc đạo Lăng đi rồi."
 
 Chủ nhân Di La Cung nói:
 
@@ -138,7 +138,7 @@ Chủ nhân Di La Cung nói:
 
 Thái Thượng có chút không cam lòng:
 
-"Thưa thầy, kẻ độc đạo Lăng là do chính người trấn áp!"
+"Thưa sư phụ, kẻ độc đạo Lăng là do chính người trấn áp!"
 
 Chủ nhân Di La Cung nói:
 
@@ -254,7 +254,7 @@ Lần này, Tần Mục lại đến chắn tầm mắt hắn. Chủ nhân Di La
 
 "Hỗn Độn, trước đây con luôn ngăn ta nhìn tương lai, nhưng lần này, con không cản được tầm mắt của ta nữa. Ta sẽ nhìn khắp mọi tương lai của Đệ Thập Thất Kỷ, con không cản nổi. Tương lai thế nào, ta muốn tận mắt nhìn."
 
-"Thưa thầy, từ Đệ Nhất Kỷ đến nay, không ai là đối thủ của người. Nhưng đệ tử đã thành đạo, con muốn thử một lần."
+"Thưa sư phụ, từ Đệ Nhất Kỷ đến nay, không ai là đối thủ của người. Nhưng đệ tử đã thành đạo, con muốn thử một lần."
 
 Tần Mục buông tay Tần Linh Quân:
 
@@ -268,12 +268,12 @@ Hắn đã mơ hồ tìm đến trình độ vượt qua Đạo Cảnh tầng tr
 
 Phù văn Nguyên của hắn đã hoàn toàn siêu thoát khỏi Hồng Mông phù văn. Hắn có niềm tin tuyệt đối để đấu một trận với Chủ nhân Di La Cung!
 
-"Thầy từng nói đạo pháp của con là Trung tâm Nguyên Thủy Tạo Huyền Công. Con đã rất gần với cảnh giới mà thầy nói."
+"Sư phụ từng nói đạo pháp của con là Trung tâm Nguyên Thủy Tạo Huyền Công. Con đã rất gần với cảnh giới mà sư phụ nói."
 
 Trong lòng Tần Mục dâng lên niềm tin mạnh mẽ vô cùng, hắn trầm giọng:
 
 "Con sẽ không để người nhìn thấy tương lai!"
 
-Vạn ức năm qua, hắn chưa từng thử thay đổi quá khứ, nhưng giờ đây, hắn muốn thay đổi một chút, thay đổi vận mệnh nhập diệt của thầy mình, Chủ nhân Di La Cung!
+Vạn ức năm qua, hắn chưa từng thử thay đổi quá khứ, nhưng giờ đây, hắn muốn thay đổi một chút, thay đổi vận mệnh nhập diệt của sư phụ mình, Chủ nhân Di La Cung!
 
 [Xem chương tiếp theo](chapter-1833.md)

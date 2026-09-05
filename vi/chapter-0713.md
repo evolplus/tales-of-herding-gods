@@ -50,7 +50,7 @@ Tần Mục nghe những lời đồn này, suy đoán: "Thần thông Khiên H�
 
 Tiều Phu Thánh Nhân sa sầm mặt: "Con giỏi, sao con không lên?"
 
-Tần Mục thật thà nói: "Con tưởng lão sư làm được, thật sự không ngờ lão sư còn kém một chút xíu. Nếu thầy nắm được hàm nghĩa và ý cảnh chuẩn xác của U Đô ngữ, đạo pháp thần thông trong đó sẽ tự nhiên sáng tỏ, như vậy sẽ không sai."
+Tần Mục thật thà nói: "Con tưởng lão sư làm được, thật sự không ngờ lão sư còn kém một chút xíu. Nếu người nắm được hàm nghĩa và ý cảnh chuẩn xác của U Đô ngữ, đạo pháp thần thông trong đó sẽ tự nhiên sáng tỏ, như vậy sẽ không sai."
 
 Tiều phu nghẹn lời, run run không nói được.
 

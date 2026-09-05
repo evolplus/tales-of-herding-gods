@@ -10,7 +10,7 @@ Tần Mục ngẩn ngơ xuất thần, lại lắc đầu.
 
 Đồ phu cười nói: "Lần ngộ đạo này, con lĩnh ngộ ra Lưỡi đao pháp độ, rõ ràng là muốn làm giảm uy phong của ta, nói ta cậy dũng thất phu. Nhưng ta cầm đao mà đi, khoái ý giang hồ, không có mấy thứ khuôn phép trói buộc như con. Lưỡi đao pháp độ của con chưa chắc tốt hơn đao đạo của ta."
 
-Tần Mục im lặng. Một lát sau, hắn nói: "Đồ gia gia hẳn đã biết Vệ Thanh Hà từ lâu, vì sao không dùng đao thất phu trừ bỏ hắn, ngược lại giữ hắn chờ con tự tay trừ đi?"
+Tần Mục im lặng. Một lát sau, hắn nói: "Đồ gia gia hẳn đã biết Vệ Thanh Hà từ lâu, vì sao không dùng đao thất phu trừ khử hắn, ngược lại giữ hắn chờ con tự tay trừ đi?"
 
 "Ta làm thì rốt cuộc vẫn là cậy dũng thất phu. Con làm thì đại diện cho chiều gió của Diên Khang."
 
@@ -158,7 +158,7 @@ Có người thở dốc, hai chân run lẩy bẩy, căng thẳng đến xanh m
 
 "Lát nữa theo ta là được."
 
-Một lão binh trên mặt có vết sẹo cười nói: "Còn nhớ trên lớp thầy dạy các ngươi không? Thấy trên trời có người phất cờ thì đứng dậy. Nghe tiếng trống, trống đánh liên tiếp thì tiến lên. Tiếng trống dồn dập thì chạy xung phong. Nghe tiếng chuông nhỏ thì dừng lại. Nghe trống đánh và nao vang thì lui. Hơn nữa còn có người tinh thông thần thức truyền đạt vào đầu chúng ta, không sai được."
+Một lão binh trên mặt có vết sẹo cười nói: "Còn nhớ trên lớp tiên sinh dạy các ngươi không? Thấy trên trời có người phất cờ thì đứng dậy. Nghe tiếng trống, trống đánh liên tiếp thì tiến lên. Tiếng trống dồn dập thì chạy xung phong. Nghe tiếng chuông nhỏ thì dừng lại. Nghe trống đánh và nao vang thì lui. Hơn nữa còn có người tinh thông thần thức truyền đạt vào đầu chúng ta, không sai được."
 
 Lão binh mặt sẹo kia lại nhìn Tần Mục, đưa tới ống thuốc nước, cười nói: "Thấy ngươi không căng thẳng, chẳng lẽ là lão binh lão luyện? Hút cái này đi, vị ngon lắm."
 

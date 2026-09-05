@@ -26,7 +26,7 @@ Tần Mục cứu hắn khỏi Chiêu Dương Điện, nhưng bên ngoài chẳn
 
 Hơn nữa, cường giả vũ trụ trước chạy ra, chẳng lẽ mình thật sự có thể đứng ngoài chuyện này?
 
-Đám cường giả tiền sử kia, chỉ sợ sẽ là kẻ đầu tiên trừ bỏ Tiên Thiên Ngũ Thái, rồi mới trừ bỏ các cổ thần khác!
+Đám cường giả tiền sử kia, chỉ sợ sẽ là kẻ đầu tiên trừ khử Tiên Thiên Ngũ Thái, rồi mới trừ khử các cổ thần khác!
 
 “Thái Dịch đã siêu thoát, nhưng vẫn ở lại đây, hẳn là nhận ra chức trách của Tiên Thiên Ngũ Thái chúng ta...”
 

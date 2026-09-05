@@ -100,7 +100,7 @@ Trong lòng Tần Mục kinh hãi: "Đại Hồng chết rồi?"
 
 "Không biết chết trong tay Thiên Công hay trong tay Địa Mẫu, ngay cả thần thức cũng bị nghiền diệt. Nhưng hắn chết mà chưa hết. Thần thức của hắn sẽ từ Chung Cực Hư Không chiếu xuống, một lần nữa phục sinh, chỉ là ký ức của Đại Hồng e rằng không còn. Người ra tay kia vô cùng lợi hại."
 
-Cung Vân Thần Vương nhanh chóng nói: "Ngươi có ân với ta, ta tự sẽ báo đáp. Chỉ là bây giờ Thái Sơ chưa chết, đợi ta giúp họ trừ bỏ Thái Sơ, ta lại đến tìm ngươi!"
+Cung Vân Thần Vương nhanh chóng nói: "Ngươi có ân với ta, ta tự sẽ báo đáp. Chỉ là bây giờ Thái Sơ chưa chết, đợi ta giúp họ trừ khử Thái Sơ, ta lại đến tìm ngươi!"
 
 Thần thức của Cung Vân nhanh chóng rời đi: "Các ngươi cẩn thận Thái Đế. Nếu không hủy ấn ký thần thức trong Chung Cực Hư Không, hắn sẽ vĩnh sinh bất diệt. Ta cảm ứng được hắn đang ẩn nấp ở gần đây!"
 

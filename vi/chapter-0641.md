@@ -100,7 +100,7 @@ Ban Công Thố bái phục, thành tâm nói: "Lão sư dạy rất đúng. Bu�
 
 Xích Khê cười nói: "Đó là vì tầm mắt kiến thức của hắn không cao, nên không thấy được nơi xa. Nhưng Diên Phong Đế là đại đế của thời đại Diên Khang, không ngờ cũng thiển cận như chuột, chỉ có thế mà thôi, khiến ta khinh thường. Đế hoàng như vậy không xứng thống trị vùng đất này. Đi, theo ta vào gặp Diên Phong Đế, ta có việc tìm hắn."
 
-Hai thầy trò vào cung cầu kiến. Nhạn Tri Khuê vội vàng ra đón, nói: "Bệ hạ đang ở Ngự hoa viên xem Tần đại nhân thử bảo. Hai vị xin đi theo ta."
+Sư đồ hai người vào cung cầu kiến. Nhạn Tri Khuê vội vàng ra đón, nói: "Bệ hạ đang ở Ngự hoa viên xem Tần đại nhân thử bảo. Hai vị xin đi theo ta."
 
 Xích Khê theo hắn tới Ngự hoa viên, từ xa đã thấy Tạo Hóa Thần Luân khổng lồ sừng sững trên một hòn giả sơn, bốn phía có từng bức tường cao che chắn, nghiêm cấm người ngoài tiến vào.
 

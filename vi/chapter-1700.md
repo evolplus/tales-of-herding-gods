@@ -2,7 +2,7 @@
 
 “Thời gian gấp gáp, đừng uống nữa.”
 
-Bên cạnh Vân Thiên Tôn và Tần Mục chất đầy vò rượu đã cạn, còn lại vò rượu cuối cùng chưa động đến. Vân Thiên Tôn cười nói: “Những người như ngươi và ta đã rất khó uống say. Ngươi cần đi ngăn Chủ điện Linh Quan, dù sao hắn một chia thành ba mươi, muốn trừ bỏ hắn cũng không dễ. Vò rượu mừng công này cứ để lại đây. Ngươi và ta, ai về trước thì người đó uống vò rượu mừng công này!”
+Bên cạnh Vân Thiên Tôn và Tần Mục chất đầy vò rượu đã cạn, còn lại vò rượu cuối cùng chưa động đến. Vân Thiên Tôn cười nói: “Những người như ngươi và ta đã rất khó uống say. Ngươi cần đi ngăn Chủ điện Linh Quan, dù sao hắn một chia thành ba mươi, muốn trừ khử hắn cũng không dễ. Vò rượu mừng công này cứ để lại đây. Ngươi và ta, ai về trước thì người đó uống vò rượu mừng công này!”
 
 “Được!”
 

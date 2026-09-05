@@ -1,6 +1,6 @@
 # Chương 1781: Tin tức cố nhân
 
-"Một đứa trẻ, từ khi thụ thai đến lúc chào đời, trải qua mười sáu vũ trụ kỷ, lại còn để đích thân thầy ban tên."
+"Một đứa trẻ, từ khi thụ thai đến lúc chào đời, trải qua mười sáu vũ trụ kỷ, lại còn để đích thân sư phụ ban tên."
 
 Nam Tương Nguyên Quân liếc nhìn phu phụ Tần Mục, nói: "Thất công tử, hiền phu phụ định làm gì? Con của hai người gánh nổi phúc báo này sao?"
 

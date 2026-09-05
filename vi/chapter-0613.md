@@ -8,9 +8,9 @@ Có lẽ trong mắt người cùng tuổi, người cùng thời đại hoặc 
 
 Thế nhưng thứ thúc đẩy lịch sử, thúc đẩy thời đại, chính là những người có tín niệm kiên định, có lý tưởng thoạt nhìn buồn cười ấy.
 
-Quốc sư Diên Khang bái sư trên tế đàn. Tiều Phu Thánh Nhân duỗi hai tay đỡ khuỷu tay ông, dìu ông đứng dậy, cười nói: "Có lẽ tương lai thành tựu của ngươi sẽ lớn hơn ta, cao hơn ta. Đợi đến tương lai nhìn lại ta của hôm nay, ngươi sẽ là thầy của ta."
+Quốc sư Diên Khang bái sư trên tế đàn. Tiều Phu Thánh Nhân duỗi hai tay đỡ khuỷu tay ông, dìu ông đứng dậy, cười nói: "Có lẽ tương lai thành tựu của ngươi sẽ lớn hơn ta, cao hơn ta. Đợi đến tương lai nhìn lại ta của hôm nay, ngươi sẽ là sư phụ của ta."
 
-Tần Mục bước lên tế đàn, thấy Quốc sư Diên Khang giữ lễ đệ tử đứng bên cạnh Tiều Phu Thánh Nhân, liền cười nói: "Thầy, sư đệ, con tới chậm một bước."
+Tần Mục bước lên tế đàn, thấy Quốc sư Diên Khang giữ lễ đệ tử đứng bên cạnh Tiều Phu Thánh Nhân, liền cười nói: "Sư phụ, sư đệ, con tới chậm một bước."
 
 Quốc sư Diên Khang ngạc nhiên, rồi giãn mặt cười nói: "Nhị sư huynh."
 
@@ -46,11 +46,11 @@ Tiều Phu Thánh Nhân nói: "Mục Đồ La mặc y phục của nữ tử kia
 
 "Quả nhiên giống như ta nghĩ." Tần Mục lộ nụ cười.
 
-Tiều Phu Thánh Nhân mở thông đạo đi tới Thái Hoàng Thiên cho hắn. Tần Mục cứ chần chừ không muốn vào, nói: "Thầy, con đứng bên cạnh nghe, con không nói gì đâu. Con là sư huynh, nếu sư đệ có chỗ nào không hiểu, con cũng có thể chỉ điểm sư đệ một chút. Thầy nói có đúng không? Sư..."
+Tiều Phu Thánh Nhân mở thông đạo đi tới Thái Hoàng Thiên cho hắn. Tần Mục cứ chần chừ không muốn vào, nói: "Sư phụ, con đứng bên cạnh nghe, con không nói gì đâu. Con là sư huynh, nếu sư đệ có chỗ nào không hiểu, con cũng có thể chỉ điểm sư đệ một chút. Sư phụ nói có đúng không? Sư..."
 
 Tiều Phu Thánh Nhân xách cổ áo hắn, nhét hắn vào thông đạo. Tần Mục định chạy về nghe giảng, thông đạo đã khép lại.
 
-Quốc sư Diên Khang cười nói: "Thầy, vì sao không cho Tần sư huynh nghe giảng?"
+Quốc sư Diên Khang cười nói: "Sư phụ, vì sao không cho Tần sư huynh nghe giảng?"
 
 "Hắn không thích hợp."
 

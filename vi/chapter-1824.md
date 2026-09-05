@@ -62,7 +62,7 @@ Hắn nhìn con thuyền này, lại không nhớ nổi lai lịch của nó.
 
 Hắn nhớ lúc mình chỉ còn đầu lâu, trên thuyền nát có xương khô của bậc thành đạo tranh đoạt máu thịt với hắn, xé một mảng máu thịt Thái Sơ lớn trên mặt hắn rồi đắp lên xương khô. Nhưng tu vi của xương khô bậc thành đạo kia rõ ràng thấp hơn hắn rất nhiều, không thể giữ được máu thịt.
 
-"Con thuyền này không phải Độ Thế Kim Thuyền của thầy. Các bậc thành đạo trên thuyền cũng có thực lực cực mạnh. Bọn họ rốt cuộc có lai lịch gì?"
+"Con thuyền này không phải Độ Thế Kim Thuyền của sư phụ. Các bậc thành đạo trên thuyền cũng có thực lực cực mạnh. Bọn họ rốt cuộc có lai lịch gì?"
 
 Công tử Lăng Tiêu nhíu mày. Con thuyền này cho hắn một cảm giác quen thuộc. Trong khoang thuyền giấu rất nhiều xương khô của bậc thành đạo, bị người khóa bên trong. Thực lực khi còn sống của bọn họ cực kỳ ngang tàng, tuy không bằng công tử, nhưng bản lĩnh cũng sâu không lường được.
 
@@ -108,15 +108,15 @@ Phía sau hắn, thân ảnh Tần Mục chậm rãi hiện lên, cất bước 
 
 Công tử Lăng Tiêu chỉ cảm thấy mình bị khí cơ của Tần Mục khóa chặt, không dám có bất kỳ động tác nào.
 
-Tần Mục đi tới bên cạnh hắn, sóng vai cùng hắn nhìn vùng đất Khai Thiên trong di tích Thiên Đô thành, nói: "Khai Thiên chúng sẽ được thả ra, Thái Dịch sẽ biến thành Thiên Đô, ma đầu bị Thái Thượng trấn áp sẽ tràn ra hết. Toàn bộ vũ trụ kỷ thứ mười bảy sẽ sinh linh đồ thán, thậm chí có thể vì vậy mà diệt vong! Tam sư huynh, đây chính là lý niệm của thầy mà huynh vâng theo? Hay là nói, vì chiến thắng, huynh đã không từ thủ đoạn?"
+Tần Mục đi tới bên cạnh hắn, sóng vai cùng hắn nhìn vùng đất Khai Thiên trong di tích Thiên Đô thành, nói: "Khai Thiên chúng sẽ được thả ra, Thái Dịch sẽ biến thành Thiên Đô, ma đầu bị Thái Thượng trấn áp sẽ tràn ra hết. Toàn bộ vũ trụ kỷ thứ mười bảy sẽ sinh linh đồ thán, thậm chí có thể vì vậy mà diệt vong! Tam sư huynh, đây chính là lý niệm của sư phụ mà huynh vâng theo? Hay là nói, vì chiến thắng, huynh đã không từ thủ đoạn?"
 
-Bàn tay nắm đạo thương của công tử Lăng Tiêu siết ngày càng chặt. Hắn lạnh lùng nói: "Chuyện thầy không làm được, ta có thể làm được! Vì đạt thành lý niệm của thầy, nhất định phải có hy sinh!"
+Bàn tay nắm đạo thương của công tử Lăng Tiêu siết ngày càng chặt. Hắn lạnh lùng nói: "Chuyện sư phụ không làm được, ta có thể làm được! Vì đạt thành lý niệm của sư phụ, nhất định phải có hy sinh!"
 
-Tần Mục quay đầu lại, đối diện với hắn, cười nhạt: "Hy sinh? Tế phẩm trên tế đàn là hy sinh, nhưng người làm tế phẩm chưa bao giờ là huynh. Khi huynh không từ thủ đoạn, huynh đã vứt bỏ hoàn toàn lý niệm của thầy. Huynh thông qua huyết tế để khiến chúng nhân Di La Cung giáng lâm, huynh và Khai Thiên chúng có gì khác nhau?"
+Tần Mục quay đầu lại, đối diện với hắn, cười nhạt: "Hy sinh? Tế phẩm trên tế đàn là hy sinh, nhưng người làm tế phẩm chưa bao giờ là huynh. Khi huynh không từ thủ đoạn, huynh đã vứt bỏ hoàn toàn lý niệm của sư phụ. Huynh thông qua huyết tế để khiến chúng nhân Di La Cung giáng lâm, huynh và Khai Thiên chúng có gì khác nhau?"
 
 Công tử Lăng Tiêu chấn động đạo thương. Dư uy của đạo thương bộc phát, cắt đứt khí cơ Tần Mục khóa chặt hắn!
 
-Công tử Lăng Tiêu lập tức lùi lại một bước, khí thế tăng vọt, cười lạnh nói: "Tiểu sư đệ, sau khi đạo tâm thầy chết đi, nhập diệt, Di La Cung đã sụp đổ! Thái Thượng không hỏi thế sự, Vô Cực làm ác bị trấn áp, lão Tứ si mê tình ái cá nhân, lão Ngũ lão Lục không biết tung tích, còn ngươi thì bốn phía khuấy đục nước! Chỉ có ta làm chủ tâm cốt của Di La Cung, chỉ có ta mới có thể chống đỡ Di La Cung, kế thừa lý niệm của thầy! Ngươi có tư cách gì chỉ trích ta?"
+Công tử Lăng Tiêu lập tức lùi lại một bước, khí thế tăng vọt, cười lạnh nói: "Tiểu sư đệ, sau khi đạo tâm sư phụ chết đi, nhập diệt, Di La Cung đã sụp đổ! Thái Thượng không hỏi thế sự, Vô Cực làm ác bị trấn áp, lão Tứ si mê tình ái cá nhân, lão Ngũ lão Lục không biết tung tích, còn ngươi thì bốn phía khuấy đục nước! Chỉ có ta làm chủ tâm cốt của Di La Cung, chỉ có ta mới có thể chống đỡ Di La Cung, kế thừa lý niệm của sư phụ! Ngươi có tư cách gì chỉ trích ta?"
 
 Khí thế của hắn ngày càng mạnh. Đại đạo tự thân nhanh chóng thức tỉnh, hắn lạnh lẽo nói: "Không có ta, Di La Cung đã sớm tro bay khói tắt! Các bậc thành đạo của Di La Cung một khi rời Di La Cung, chỉ gây thêm càng nhiều nghiệp nghiệt lớn hơn!"
 
@@ -124,11 +124,11 @@ Khí thế của hắn ngày càng mạnh. Đại đạo tự thân nhanh chóng
 
 Tần Mục bước tới trước một bước, lạnh lùng nói: "Di La Cung là vì cứu vớt chúng sinh. Không cứu được chúng sinh, thì không nên tiếp tục lưu lại trên đời!"
 
-Công tử Lăng Tiêu nổi giận: "Cho nên ngươi nhất định phải diệt Di La Cung, diệt đạo thống của thầy?"
+Công tử Lăng Tiêu nổi giận: "Cho nên ngươi nhất định phải diệt Di La Cung, diệt đạo thống của sư phụ?"
 
 "Không sai!"
 
-Sát khí Tần Mục ngất trời: "Ta chính là muốn diệt Di La Cung, diệt đạo thống của thầy! Sai lầm ông phạm phải, quan môn đệ tử của ông sẽ sửa lại! Nếu huynh chấp mê bất ngộ, vậy huynh cũng là sai lầm, cũng cần được sửa lại!"
+Sát khí Tần Mục ngất trời: "Ta chính là muốn diệt Di La Cung, diệt đạo thống của sư phụ! Sai lầm ông phạm phải, quan môn đệ tử của ông sẽ sửa lại! Nếu huynh chấp mê bất ngộ, vậy huynh cũng là sai lầm, cũng cần được sửa lại!"
 
 Đạo thương của công tử Lăng Tiêu đột nhiên cắm xuống dưới di tích Thiên Đô thành. Chỉ cần hắn phát lực, hắn có thể dùng thương bẩy cả di tích này lên, nện về phía rừng bia phương tiêm!
 

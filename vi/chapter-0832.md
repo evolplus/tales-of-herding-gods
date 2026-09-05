@@ -70,7 +70,7 @@ Nhưng bất kể Đạo Kiếm thập tứ thiên hay Tiên Thiên Thái Huyề
 
 Dù vậy, Lâm Hiên Đạo Chủ cũng có thể nói là thiên tài xuất sắc bậc nhất Diên Khang. Trong thế hệ trẻ, chỉ lác đác vài người có thể sánh với thực lực của hắn.
 
-Còn thứ Tiêu Thuần Phong học lại là công pháp chính thống nhất của Đạo môn Thiên Đình, thuật số hoàn chỉnh, thêm vào đó có người thầy tốt nhất, bản thân lại là con của Thái Âm Tinh Quân, bán thần có huyết mạch cực cao. Thực lực của hắn trong đồng lứa ở Thiên Đình cũng là xuất chúng, còn vượt hơn đệ tử Tứ Đế.
+Còn thứ Tiêu Thuần Phong học lại là công pháp chính thống nhất của Đạo môn Thiên Đình, thuật số hoàn chỉnh, thêm vào đó có vị sư phụ tốt nhất, bản thân lại là con của Thái Âm Tinh Quân, bán thần có huyết mạch cực cao. Thực lực của hắn trong đồng lứa ở Thiên Đình cũng là xuất chúng, còn vượt hơn đệ tử Tứ Đế.
 
 Hai người xê dịch trên bầu trời. Công pháp Tiêu Thuần Phong thi triển khiến Tần Mục rất hứng thú. Sau lưng thiếu niên đạo sĩ này có một cây cầu thần vắt ngang, nối vào hư không, nguyên thần của hắn đứng trên Thần Kiều.
 

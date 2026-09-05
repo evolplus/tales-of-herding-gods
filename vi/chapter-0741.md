@@ -50,7 +50,7 @@ Khai Hoàng thấp giọng nói:
 
 Điều Tần Mục nghĩ lại là chuyện khác, hắn trầm tư:
 
-"Vì sao lại giết ông ấy trước khi Ngự Thiên Tôn công bố pháp thành thần? Giết ông ấy không phải để trừ bỏ ông ấy, mà là để trừ bỏ pháp thành thần!"
+"Vì sao lại giết ông ấy trước khi Ngự Thiên Tôn công bố pháp thành thần? Giết ông ấy không phải để trừ khử ông ấy, mà là để trừ bỏ pháp thành thần!"
 
 Lão Ngưu khẽ nói:
 

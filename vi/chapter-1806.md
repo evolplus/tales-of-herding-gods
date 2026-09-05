@@ -18,7 +18,7 @@ Chủ nhân Di La Cung là người đứng đầu mười sáu vũ trụ kỷ k
 
 Rất khó tưởng tượng khi còn sống, ông mạnh đến mức nào!
 
-Ánh mắt công tử Tử Tiêu và công tử Lăng Tiêu rơi lên người Vô Cực, mắt sáng lên. Cơ hội của bọn họ cuối cùng đã tới. Trừ bỏ công tử Vô Cực và Vô Nhai lão nhân đủ để hai người họ đều giáng lâm!
+Ánh mắt công tử Tử Tiêu và công tử Lăng Tiêu rơi lên người Vô Cực, mắt sáng lên. Cơ hội của bọn họ cuối cùng đã tới. Trừ khử công tử Vô Cực và Vô Nhai lão nhân đủ để hai người họ đều giáng lâm!
 
 Nếu còn có thể giữ Tần Mục lại đây, vậy bọn họ sẽ không còn bất kỳ trở lực nào!
 
@@ -48,7 +48,7 @@ Nhưng Tần Mục và những người khác không động, lão cũng không 
 
 Lúc này, ai động trước đều có khả năng bị những người khác vây công.
 
-Công tử Vô Cực áp chế thương thế, nhìn quanh một vòng, cười lạnh nói: "Thầy không giết được ta, các ngươi càng đừng mơ. Các ngươi cho rằng thầy đã trọng thương ta, lại thêm hiến tế lão phế vật Vô Nhai này là có thể trừ bỏ ta, đúng là mơ mộng hão huyền, quá xem thường ta rồi."
+Công tử Vô Cực áp chế thương thế, nhìn quanh một vòng, cười lạnh nói: "Sư phụ không giết được ta, các ngươi càng đừng mơ. Các ngươi cho rằng sư phụ đã trọng thương ta, lại thêm hiến tế lão phế vật Vô Nhai này là có thể trừ khử ta, đúng là mơ mộng hão huyền, quá xem thường ta rồi."
 
 Dưới chân nàng, liên đài vỡ nát lại xuất hiện, không ngừng xoay tròn, tự tái tạo. Trên mặt biển, từng phiến lá sen tan nát cũng lại khôi phục.
 

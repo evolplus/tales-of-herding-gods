@@ -60,7 +60,7 @@ Tần Mục cười khẩy một tiếng, cất bước đi vào trong thành: "
 
 Đồ phu nhìn bóng lưng hắn, lắc đầu, theo bước hắn.
 
-Điền Thục kéo khăn đen xuống, nói: "Lãnh tụ Huyền Đô trấn thủ Thiên Phương thành, ta có thể quen. Phần lớn là cha của Đế Dịch Nguyệt, Đế Thanh. Nghe nói ông ta là hậu duệ Thiên Công. Năm xưa thời Khai Hoàng, ông ta là Thái Dương Thủ của Nguyên giới, phụng mệnh Thiên Công hạ giới giúp Khai Hoàng. Sau đó Đế Dịch Nguyệt ra đời, bộc lộ tư chất kinh người, ông ta giao Đế Dịch Nguyệt cho Khai Hoàng. Các ngươi, một người là Mục Thiên Tôn, hai người là Linh Tú quân Thiên Đình, còn một người là thầy của Mục Thiên Tôn, đều không tiện lộ mặt. Ta có giao tình cũ với ông ta, theo ta đi gặp ông ta."
+Điền Thục kéo khăn đen xuống, nói: "Lãnh tụ Huyền Đô trấn thủ Thiên Phương thành, ta có thể quen. Phần lớn là cha của Đế Dịch Nguyệt, Đế Thanh. Nghe nói ông ta là hậu duệ Thiên Công. Năm xưa thời Khai Hoàng, ông ta là Thái Dương Thủ của Nguyên giới, phụng mệnh Thiên Công hạ giới giúp Khai Hoàng. Sau đó Đế Dịch Nguyệt ra đời, bộc lộ tư chất kinh người, ông ta giao Đế Dịch Nguyệt cho Khai Hoàng. Các ngươi, một người là Mục Thiên Tôn, hai người là Linh Tú quân Thiên Đình, còn một người là sư phụ của Mục Thiên Tôn, đều không tiện lộ mặt. Ta có giao tình cũ với ông ta, theo ta đi gặp ông ta."
 
 Mọi người đáp phải, theo bước chân ông.
 

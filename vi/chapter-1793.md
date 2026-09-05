@@ -46,7 +46,7 @@ Thái Dịch im lặng. Ánh mắt của ba mươi lăm Khai Thiên chúng cũng
 
 Thái Dịch thở dài, nói: "Mục đạo hữu, ngươi sẽ để ta biến thành Chủ nhân Thiên Đô sao?"
 
-Tần Mục lắc đầu: "Không. Lần đầu tiên ta vào Di La Cung, gặp Chủ nhân Di La Cung, thầy bảo ta phải cẩn thận Thái Dịch. Ta từng nghi ngờ lời của thầy, cho rằng thầy nói dối. Nhưng sau này ta nghĩ thông, người mà thầy bảo ta cẩn thận không phải là người, mà là Chủ nhân Thiên Đô. Đối với đạo huynh, trong lòng ta chỉ có khâm phục kính ngưỡng. Khi người là Thái Dịch, người chính là vị cao nhân thế ngoại bảo vệ kỷ thứ mười bảy suốt sáu tỷ năm. Nhưng nếu người biến thành Chủ nhân Thiên Đô, người có thể trở thành kẻ hủy diệt kỷ thứ mười bảy."
+Tần Mục lắc đầu: "Không. Lần đầu tiên ta vào Di La Cung, gặp Chủ nhân Di La Cung, sư phụ bảo ta phải cẩn thận Thái Dịch. Ta từng nghi ngờ lời của sư phụ, cho rằng sư phụ nói dối. Nhưng sau này ta nghĩ thông, người mà sư phụ bảo ta cẩn thận không phải là người, mà là Chủ nhân Thiên Đô. Đối với đạo huynh, trong lòng ta chỉ có khâm phục kính ngưỡng. Khi người là Thái Dịch, người chính là vị cao nhân thế ngoại bảo vệ kỷ thứ mười bảy suốt sáu tỷ năm. Nhưng nếu người biến thành Chủ nhân Thiên Đô, người có thể trở thành kẻ hủy diệt kỷ thứ mười bảy."
 
 Thái Dịch trầm mặc.
 

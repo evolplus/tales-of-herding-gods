@@ -28,7 +28,7 @@ Giọng nói của Vô Nhai lão nhân không truyền tới từ một đại u
 
 Sự áp chế của Tần Mục và Di La Cung đối với Vô Nhai lão nhân khiến lão có chút nôn nóng. Ba nghìn năm nay lão bị hai bên trăm bề chèn ép. Cộng thêm Tần Mục phong ấn Tổ Đình, khiến cường giả dưới trướng lão không ai có thể thành đạo, tu vi thực lực của lão cũng mãi không thể khôi phục tới trạng thái đỉnh phong. Vì vậy lão mới chủ động tìm tới công tử Vô Cực, mưu cầu biến số.
 
-"Vô Nhai, ngươi từng nói xấu ta trước mặt thầy, bảo ta là kẻ báng đạo. Bây giờ ngươi lại tới tìm ta, mong có thể liên thủ với ta. Lão quỷ, sao lại vô sỉ đến thế?" Công tử Vô Cực ngửa đầu trêu chọc.
+"Vô Nhai, ngươi từng nói xấu ta trước mặt sư phụ, bảo ta là kẻ báng đạo. Bây giờ ngươi lại tới tìm ta, mong có thể liên thủ với ta. Lão quỷ, sao lại vô sỉ đến thế?" Công tử Vô Cực ngửa đầu trêu chọc.
 
 Vô Nhai lão nhân hừ một tiếng. Công tử Vô Cực luôn có cái nhìn không tốt về lão, từ lần đầu gặp đã không có bất kỳ kính xưng nào, lúc nào cũng gọi lão là lão quỷ.
 

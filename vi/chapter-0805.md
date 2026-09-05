@@ -194,7 +194,7 @@ Thư sinh khẽ nói:
 
 Tiều Phu Thánh Nhân lộ nụ cười:
 
-"Ta đã già rồi, hơn nữa ta là Thiên Sư của Khai Hoàng, không thể mãi giúp Diên Khang. Làm thầy là truyền đạo, trao nghiệp, giải hoặc. Hiện giờ đạo của ta đã truyền, nghiệp đã trao, hoặc đã giải, lúc này ta mới thật sự là lão sư."
+"Ta đã già rồi, hơn nữa ta là Thiên Sư của Khai Hoàng, không thể mãi giúp Diên Khang. Làm sư phụ là truyền đạo, trao nghiệp, giải hoặc. Hiện giờ đạo của ta đã truyền, nghiệp đã trao, hoặc đã giải, lúc này ta mới thật sự là lão sư."
 
 Thư sinh hất cằm về phía Tần Mục, thấp giọng nói:
 

@@ -34,7 +34,7 @@ Nhị Tổ nói: "Mười chín... Một người trẻ tuổi tràn trề sinh 
 
 Tam Tổ nghĩ một lát, nói: "Lão già, khi ông thu ta làm đồ đệ, ta mười hai tuổi. Năm hai mươi tuổi, ta khai sáng hình thức ban đầu của Âm Dương Phiên Thiên Thủ. Công pháp Âm Dương Đại Cửu Thừa Quyết của ta cũng có ý tưởng vào lúc ấy. Mấy trăm năm sau đó, ta mới hoàn thiện Âm Dương Phiên Thiên Thủ và Âm Dương Đại Cửu Thừa Quyết."
 
-Tứ Tổ nói: "Ta không tu luyện công pháp và ấn pháp của thầy. Ông ấy là một kẻ thất bại, học ông ấy ta chỉ càng thất bại hơn, cho nên ta tự sáng tạo công pháp và thần thông. Ta lợi hại hơn lão già. Năm mười bảy tuổi, Pháp Đạo Thập Độ Công của ta đã có ý tưởng. Trung niên đại thành, ta đánh lão già một trận."
+Tứ Tổ nói: "Ta không tu luyện công pháp và ấn pháp của sư phụ. Ông ấy là một kẻ thất bại, học ông ấy ta chỉ càng thất bại hơn, cho nên ta tự sáng tạo công pháp và thần thông. Ta lợi hại hơn lão già. Năm mười bảy tuổi, Pháp Đạo Thập Độ Công của ta đã có ý tưởng. Trung niên đại thành, ta đánh lão già một trận."
 
 Tam Tổ trợn mắt thổi râu, cười lạnh nói: "Có bản lĩnh đánh thắng ta thì ghê gớm lắm à?"
 
@@ -78,7 +78,7 @@ Ngoài Tương Long thành, Tần Mục cưỡi mây đạp gió, thúc giục N
 
 Hắn chân trước vừa đi, trong Tương Long thành liền có một vị thần ma ba đầu sáu tay cùng một thiếu niên đến nơi, chính là Xích Khê và Ban Công Thố.
 
-"Vì sao thầy muốn xem phong thổ nhân tình của Diên Khang?"
+"Vì sao sư phụ muốn xem phong thổ nhân tình của Diên Khang?"
 
 Ban Công Thố không hiểu, nói: "Chúng ta vất vả lắm mới từ Thái Hoàng Thiên trở về, vì sao không trực tiếp đến Nam Thổ?"
 
@@ -86,7 +86,7 @@ Ban Công Thố không hiểu, nói: "Chúng ta vất vả lắm mới từ Thá
 
 Ba cái đầu của Xích Khê nhìn đông ngó tây, chậm rãi nói: "Ta xem phong thổ nhân tình của Diên Khang là muốn xem tiềm lực của thời đại này ra sao, có vốn liếng để tranh đấu với Thiên Đình hay không."
 
-"Thầy nhìn ra được gì?" Ban Công Thố hỏi.
+"Sư phụ nhìn ra được gì?" Ban Công Thố hỏi.
 
 "Có tướng đại hưng, nhưng vẫn chưa đủ."
 

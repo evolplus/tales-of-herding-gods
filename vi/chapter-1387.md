@@ -50,7 +50,7 @@ Tần Mục bất đắc dĩ nói: "Đạo huynh, hiện tại phong mang của 
 
 Tường Thiên Phi nhìn chằm chằm hắn.
 
-Sắc mặt Tần Mục không đổi: "Ta đang suy nghĩ cho đạo huynh. Ngươi thử nghĩ xem, nếu không có Thú giới, Cung Thiên Tôn và Lang Hiên Thần Hoàng, mẹ con họ mới là người được lợi lớn nhất. Nếu họ trừ bỏ ngươi, chắc chắn là họ độc chiếm tất cả cự thú. Ngươi cần gì làm áo cưới cho người khác?"
+Sắc mặt Tần Mục không đổi: "Ta đang suy nghĩ cho đạo huynh. Ngươi thử nghĩ xem, nếu không có Thú giới, Cung Thiên Tôn và Lang Hiên Thần Hoàng, mẹ con họ mới là người được lợi lớn nhất. Nếu họ trừ khử ngươi, chắc chắn là họ độc chiếm tất cả cự thú. Ngươi cần gì làm áo cưới cho người khác?"
 
 Tường Thiên Phi phì cười, quyến rũ động lòng người, nói: "Ta cũng biết đạo lý trong đó, chỉ là bị ngươi gài một vố, trong lòng rất không cam. Nhục thân của ta cũng vì ngươi mà gần như hoàn toàn phế bỏ, vậy mà ngươi lại muốn đứng ngoài chuyện, trong lòng ta không thoải mái."
 

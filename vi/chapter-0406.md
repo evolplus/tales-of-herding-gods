@@ -90,7 +90,7 @@ Lão cảm nhận được sự vặn vẹo trong tâm linh mình, không khỏi
 
 Đạo tâm tan rã, vặn vẹo biến dạng khiến lão có phần kinh sợ. Để cứu vãn đạo tâm của mình, cuối cùng lão nghĩ ra một đối sách.
 
-Nếu đã có quy củ lằn ranh nghiêm ngặt giữa thầy và trò, hạn chế lão nảy sinh tình cảm với đồ đệ của mình, vậy lão có thể trở thành Tư Ấu U, có thể sở hữu thân thể xinh đẹp này để sống tiếp.
+Nếu đã có quy củ lằn ranh nghiêm ngặt giữa sư phụ và đệ tử, hạn chế lão nảy sinh tình cảm với đồ đệ của mình, vậy lão có thể trở thành Tư Ấu U, có thể sở hữu thân thể xinh đẹp này để sống tiếp.
 
 Lão quyết định dùng quyền lực và uy vọng của mình để làm thành một chuyện. Những kẻ phản đối lão trong giáo đều bị lão đuổi đi lưu đày, hoặc hạ sát, giam cầm. Cuối cùng lão được như nguyện, ruồng bỏ chính thê, cưới đồ đệ của mình.
 

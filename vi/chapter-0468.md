@@ -8,7 +8,7 @@ Dù Chân Thiên Lão Mẫu không giết được Quốc sư Diên Khang, cũng
 
 "Mục tiêu của Chân Thiên Lão Mẫu rốt cuộc là Quốc sư Diên Khang hay ta?"
 
-Tần Mục chớp mắt. Uy hiếp của Quốc sư Diên Khang lớn hơn, Quốc sư tu thành Thần Kiều, trừ bỏ Ba Cẩu và giả thân của ả ta. Theo lý mà nói, mục tiêu của ả ta hẳn là Quốc sư.
+Tần Mục chớp mắt. Uy hiếp của Quốc sư Diên Khang lớn hơn, Quốc sư tu thành Thần Kiều, trừ khử Ba Cẩu và giả thân của ả ta. Theo lý mà nói, mục tiêu của ả ta hẳn là Quốc sư.
 
 Thế nhưng trong sa mạc lửa, thần tượng của Chân Thiên Lão Mẫu đã nhiều lần ra tay với Tần Mục. Hơn nữa lần công phá Chân Thiên Cung này, Tần Mục lập công rất lớn. So với Quốc sư, hận ý của Chân Thiên Lão Mẫu đối với Tần Mục chắc chắn sâu hơn!
 

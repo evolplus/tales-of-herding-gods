@@ -122,7 +122,7 @@ Tạo Vật Chủ La Tiêu đi ra ngoài xe, đến sau lưng Tần Mục, ngử
 
 Hắn còn chưa nói xong, thân hình Tần Mục đã bạo phát bay lên. Kiếm quang trong tay đột nhiên bùng nổ, còn đáng sợ hơn một kiếm vừa rồi diệt vạn ngàn thần ma. Một kiếm bay ra, biển máu mênh mông xông thẳng lên trời!
 
-"Vậy thì trước khi sao Ngũ Diệu hoàn toàn giáng lâm, trừ bỏ họ! Yên Nhi!"
+"Vậy thì trước khi sao Ngũ Diệu hoàn toàn giáng lâm, trừ khử họ! Yên Nhi!"
 
 Tần Mục quát lớn. Kiếm quang trong tay lao thẳng đến Trấn Tinh Quân, nghiêm giọng nói: "Cho cô ăn tùy thích! Long béo, thả Thiên Long ra, dùng Hoạn Long Kinh!"
 

@@ -66,7 +66,7 @@ Giang Miểu ngẩn ra: “Ông nhận ra ta?”
 
 Thân thể thần long duỗi ra, dường như muốn mở khỏi trạng thái cuộn tròn, chỉ là bị xích xuyên vào nhục thân nên không thể duỗi thân. Nhưng dù vậy, ông ta vẫn làm tòa cung điện này rung lắc không thôi.
 
-“Nói ra thì ngươi vẫn là cháu ngoại của ta. Khi ngươi vừa sinh ra, ta còn từng bế ngươi. Ngươi tè lên người ta, ta còn búng lên chim nhỏ của ngươi một cái.”
+“Nói ra thì ngươi vẫn là cháu trai của ta. Khi ngươi vừa sinh ra, ta còn từng bế ngươi. Ngươi tè lên người ta, ta còn búng lên chim nhỏ của ngươi một cái.”
 
 Mặt Giang Miểu đỏ bừng. Hắn quay đầu nhìn Tần Mục, lộ vẻ khó xử, thấp giọng nói: “Giáo chủ, chuyện này đừng kể với người khác...”
 
@@ -86,7 +86,7 @@ Vị thần long kia đột nhiên nổi giận, âm trầm nói: “Các ngươ
 
 Tần Mục bước ra xa hơn một chút, mỉm cười nói: “Cậu của ngươi nổi giận rồi. Chúng ta vẫn nên thôi nói chuyện phiếm, bàn chính sự đi. Đây là việc nhà của các ngươi, ta ở bên cạnh nghe là được.”
 
-Lồng ngực vị thần long kia phập phồng dữ dội. Qua một lát, ông ta ổn định tâm trạng, trầm giọng nói: “Giang Miểu, tiểu tử này là sư đệ của đại ác nhân, không phải hạng tốt lành. Ngươi phải cách xa hắn một chút. Ngươi là cháu ngoại ta, ta là cậu ngươi, xét tình xét lý, ngươi đều nên cứu ta thoát khốn.”
+Lồng ngực vị thần long kia phập phồng dữ dội. Qua một lát, ông ta ổn định tâm trạng, trầm giọng nói: “Giang Miểu, tiểu tử này là sư đệ của đại ác nhân, không phải hạng tốt lành. Ngươi phải cách xa hắn một chút. Ngươi là cháu trai ta, ta là cậu ngươi, xét tình xét lý, ngươi đều nên cứu ta thoát khốn.”
 
 Giang Miểu do dự, nhìn ông ta, lại nhìn Tần Mục, lộ vẻ khó xử.
 

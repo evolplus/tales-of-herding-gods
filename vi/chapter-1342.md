@@ -26,7 +26,7 @@ Hiểu Sơ Giác tuy là thiên tài tuyệt đỉnh trong thế hệ trẻ Diê
 
 Nhất là kiếm đạo.
 
-Kiếm pháp thần thông của Diên Khang há chỉ ức vạn? Tạo nghệ trên kiếm đạo cũng kinh người vô cùng. Trong đó người lợi hại nhất chính là viện trưởng Văn Đạo Viện Tô Mạc Già, thầy khai tâm kiếm đạo năm xưa của Mục Thiên Tôn.
+Kiếm pháp thần thông của Diên Khang há chỉ ức vạn? Tạo nghệ trên kiếm đạo cũng kinh người vô cùng. Trong đó người lợi hại nhất chính là viện trưởng Văn Đạo Viện Tô Mạc Già, sư phụ khai tâm kiếm đạo năm xưa của Mục Thiên Tôn.
 
 Sau khi Khai Hoàng du lịch Diên Khang, đem Kiếm nhị thập thức trả ngược lại cho Diên Khang, kiếm đạo của Thôn trưởng Tô Mạc Già đạt tới một độ cao chưa từng có. Đặc biệt sau khi Đạo Cảnh cũng lưu truyền tới Diên Khang, sự nâng cao đối với ông càng lớn.
 

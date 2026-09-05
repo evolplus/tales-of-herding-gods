@@ -158,7 +158,7 @@ Nhược Biều đại sư cũng xuất thân Phật môn, pháp hiệu Nhược
 
 Vân Bạc Sơn, Thôi Minh Chí, hai người này đều là cường giả cấp giáo chủ xuất thân Đạo gia. Đình Yên Tụ và Hạ Thiên Thu xuất thân thế gia, là các đại phiệt thế gia theo Thái Tổ hoàng đế đánh thiên hạ.
 
-Năm người này, cộng thêm Tôn Nan Đà đã chết, đều là hệ phái Thái tử, từng làm thầy Thái tử.
+Năm người này, cộng thêm Tôn Nan Đà đã chết, đều là hệ phái Thái tử, từng làm sư trưởng của Thái tử.
 
 Trong triều có mười sáu nhất phẩm đại viên, hệ phái Thái tử chiếm sáu người.
 

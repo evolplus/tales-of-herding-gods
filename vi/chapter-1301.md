@@ -34,7 +34,7 @@ Mà con Hư Không Thú không đầu kia vậy mà cũng chưa chết, cũng ch
 
 “Thần Vương, đối với ngươi, ta vẫn luôn nhìn không hiểu, nhìn không thấu.”
 
-Nghiên Thiên Phi vừa cùng Tổ Thần Vương tìm kiếm tung tích Địa Mẫu Nguyên Quân, vừa chuyện trò vui vẻ. Ánh mắt bà dao động, nói: “Ngươi là Thần Vương cổ xưa nhất, là thủ lĩnh bán thần, có ý nghĩ trừ bỏ Thiên Công rồi thay vào đó cũng là lẽ đương nhiên. Nhưng Thiên Công dù sao cũng là cha ngươi, ngươi thật sự có thể nhẫn tâm hạ sát ông ấy sao? Không chỉ ta nhìn không hiểu, nhìn không thấu, e rằng Hạo Thiên Tôn cũng nhìn không hiểu, nhìn không thấu ngươi.”
+Nghiên Thiên Phi vừa cùng Tổ Thần Vương tìm kiếm tung tích Địa Mẫu Nguyên Quân, vừa chuyện trò vui vẻ. Ánh mắt bà dao động, nói: “Ngươi là Thần Vương cổ xưa nhất, là thủ lĩnh bán thần, có ý nghĩ trừ khử Thiên Công rồi thay vào đó cũng là lẽ đương nhiên. Nhưng Thiên Công dù sao cũng là cha ngươi, ngươi thật sự có thể nhẫn tâm hạ sát ông ấy sao? Không chỉ ta nhìn không hiểu, nhìn không thấu, e rằng Hạo Thiên Tôn cũng nhìn không hiểu, nhìn không thấu ngươi.”
 
 Tổ Thần Vương phất tay. Quần tinh trên bầu trời lóe sáng, như vô số con mắt giúp hắn quan sát động tĩnh trong Tổ Đình. Hắn thản nhiên nói: “Hạo Thiên Tôn? Hắn đã trọng thương, giờ tự lo thân còn chưa xong.”
 
@@ -46,13 +46,13 @@ Bà cười như không cười: “Ngươi đừng nói là cho rằng Hạo Th
 
 “Đương nhiên không. Đối với Hạo Thiên Tôn, ta tâm phục khẩu phục.”
 
-Tổ Thần Vương cảm khái muôn phần: “Điều ta khâm phục nhất ở hắn chính là hắn dám liên thủ với Vân Thiên Tôn, trừ bỏ cha mình. Không giấu gì ngươi, nguyên nhân năm xưa ta rời khỏi Huyền Đô chính là cha ta quá nhu nhược. Ông ấy rõ ràng nhìn thấy tương lai hậu thiên sinh linh vùng lên, tất sẽ ra tay với cổ thần và bán thần, hủy diệt vinh quang của bán thần cùng cổ thần, vậy mà lại thờ ơ, chẳng hề can thiệp.”
+Tổ Thần Vương cảm khái muôn phần: “Điều ta khâm phục nhất ở hắn chính là hắn dám liên thủ với Vân Thiên Tôn, trừ khử cha mình. Không giấu gì ngươi, nguyên nhân năm xưa ta rời khỏi Huyền Đô chính là cha ta quá nhu nhược. Ông ấy rõ ràng nhìn thấy tương lai hậu thiên sinh linh vùng lên, tất sẽ ra tay với cổ thần và bán thần, hủy diệt vinh quang của bán thần cùng cổ thần, vậy mà lại thờ ơ, chẳng hề can thiệp.”
 
 “Phụ thần của ta đã già rồi. Ông ấy thân là Thiên Công, không can thiệp vào bất cứ việc gì trong thế gian, cố gắng làm được công bằng công chính. Hắc hắc, thế gian này lấy đâu ra công bằng công chính? Ta muốn thay đổi tất cả!”
 
-Hắn ngẩng đầu nhìn trời, ánh mắt sâu thẳm: “Năm xưa, kể từ lúc Mục Thiên Tôn sát hại vị cổ thần đầu tiên, ta đã hạ quyết tâm phải thay đổi tất cả, tuyệt đối không để đám hèn mọn kia chiếm đoạt chính thống thiên địa! Ban đầu ta tưởng cổ thần có thể liên thủ với bán thần, cùng trừ bỏ đám sâu mọt ấy. Nhưng điều khiến ta thất vọng là trong cổ thần, những kẻ chịu liên thủ với ta đều là hạng chẳng làm nên việc lớn, còn những cổ thần hùng mạnh lại đều giống phụ thần. Từ khi đó ta đã biết...”
+Hắn ngẩng đầu nhìn trời, ánh mắt sâu thẳm: “Năm xưa, kể từ lúc Mục Thiên Tôn sát hại vị cổ thần đầu tiên, ta đã hạ quyết tâm phải thay đổi tất cả, tuyệt đối không để đám hèn mọn kia chiếm đoạt chính thống thiên địa! Ban đầu ta tưởng cổ thần có thể liên thủ với bán thần, cùng thanh trừ đám sâu mọt ấy. Nhưng điều khiến ta thất vọng là trong cổ thần, những kẻ chịu liên thủ với ta đều là hạng chẳng làm nên việc lớn, còn những cổ thần hùng mạnh lại đều giống phụ thần. Từ khi đó ta đã biết...”
 
-Hắn cười lạnh: “Cổ thần và bán thần không cùng một đường! Bán thần tuy do cổ thần sinh ra, nhưng không phải cùng một chủng tộc. Trái lại cổ thần sẽ trở thành chướng ngại của bán thần! Năm xưa bán thần chúng ta liên thủ với cổ thần, diệt trừ Tạo Vật Chủ, đoạt lấy chính thống thiên hạ. Vinh quang ấy không chỉ thuộc về cổ thần! Nếu cổ thần không tranh, vậy hãy để quyền lực thuộc về bán thần! Vì vậy ta đã quyết tâm, chỉ cần cản đường ta, cho dù là phụ thần của ta cũng nhất định phải bị trừ bỏ!”
+Hắn cười lạnh: “Cổ thần và bán thần không cùng một đường! Bán thần tuy do cổ thần sinh ra, nhưng không phải cùng một chủng tộc. Trái lại cổ thần sẽ trở thành chướng ngại của bán thần! Năm xưa bán thần chúng ta liên thủ với cổ thần, diệt trừ Tạo Vật Chủ, đoạt lấy chính thống thiên hạ. Vinh quang ấy không chỉ thuộc về cổ thần! Nếu cổ thần không tranh, vậy hãy để quyền lực thuộc về bán thần! Vì vậy ta đã quyết tâm, chỉ cần cản đường ta, cho dù là phụ thần của ta cũng nhất định phải bị trừ khử!”
 
 Hắn mỉm cười: “Phụ thần đã già, ông ấy nên thoái vị nhường hiền. Nếu ông ấy không chịu nhường, vậy đành để ông ấy chết trên ngôi vị!”
 

@@ -74,7 +74,7 @@ Bên ngoài bọn họ, kiếm quang càng lúc càng nhiều, chém thần quan
 
 “Nhiều Mục Thiên Tôn như vậy...”
 
-Mọi người nghiến răng. Một Tâm Ma Mục Thiên Tôn đơn lẻ không phải đối thủ của bọn họ, rất dễ trừ bỏ. Nhưng năng lực học tập của những Tâm Ma Mục Thiên Tôn này cực kỳ mạnh, hơn nữa giỏi ứng biến.
+Mọi người nghiến răng. Một Tâm Ma Mục Thiên Tôn đơn lẻ không phải đối thủ của bọn họ, rất dễ trừ khử. Nhưng năng lực học tập của những Tâm Ma Mục Thiên Tôn này cực kỳ mạnh, hơn nữa giỏi ứng biến.
 
 Chiêu thức bọn họ từng thi triển, đến lần thứ hai sử dụng, liền sẽ phát hiện chiêu pháp thần thông của mình đã bị Tâm Ma Mục Thiên Tôn phá giải!
 

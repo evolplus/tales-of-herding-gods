@@ -94,7 +94,7 @@ Tây Đế Bạch Hổ ở trong lãnh địa của nàng cũng là bậc cấp 
 
 Ba sư ở đây chỉ Thần Sư, Địa Sư và Thủy Sư!
 
-Hai phân thân cổ thần của Chủ điện Linh Quan có thể dễ dàng trừ bỏ hai người, nhưng chỉ phái tới một phân thân thì có phần tự phụ khinh suất.
+Hai phân thân cổ thần của Chủ điện Linh Quan có thể dễ dàng trừ khử hai người, nhưng chỉ phái tới một phân thân thì có phần tự phụ khinh suất.
 
 “Nếu Linh Quan không đi Nam Thiên, vậy trong ba phân thân còn lại, một phân thân nhất định phải đi Thế Giới Thụ Tổ Đình! Mà hai phân thân còn lại hẳn cũng đi Thế Giới Thụ!”
 

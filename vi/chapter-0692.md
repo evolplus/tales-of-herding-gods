@@ -152,12 +152,12 @@ Sơ Tổ Nhân Hoàng ngẩng đầu nhìn viên kiếm hoàn cao hơn ba mươi
 
 "Bị người ta đánh nát rồi."
 
-Tần Mục cười nói: "Thầy, con đã tìm được cội nguồn bóng tối rồi."
+Tần Mục cười nói: "Sư phụ, con đã tìm được cội nguồn bóng tối rồi."
 
 Mọi người trong lòng chấn động. Tiều Phu Thánh Nhân cũng không khỏi biến sắc, thất thanh nói: "Ngươi tìm được Thiên Âm giới? Ngươi đã gặp Thiên Âm nương nương?"
 
 "Lần này con mời chư vị đến chính là để giải quyết nan đề cuối cùng của Thiên Âm giới và Thiên Âm nương nương."
 
-Tần Mục lấy túi da của Khai Hoàng Thần Nhân ra, trải vị thần nhân này ra, nói: "Thầy còn nhận ra ông ấy chứ?"
+Tần Mục lấy túi da của Khai Hoàng Thần Nhân ra, trải vị thần nhân này ra, nói: "Sư phụ còn nhận ra ông ấy chứ?"
 
 [Xem chương tiếp theo](chapter-0693.md)

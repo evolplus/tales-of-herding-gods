@@ -126,7 +126,7 @@ Tần Mục tò mò hỏi:
 
 Quốc sư Diên Khang nghiêm túc nói:
 
-"Xem họ có thể làm được tri hành hợp nhất hay không. Nếu họ có thể quán triệt lý niệm của mình, làm được tri hành hợp nhất, ta sẽ dốc hết mọi sức mạnh và thủ đoạn để trừ bỏ họ. Nếu họ không làm được, muốn sống sót cũng không khó."
+"Xem họ có thể làm được tri hành hợp nhất hay không. Nếu họ có thể quán triệt lý niệm của mình, làm được tri hành hợp nhất, ta sẽ dốc hết mọi sức mạnh và thủ đoạn để trừ khử họ. Nếu họ không làm được, muốn sống sót cũng không khó."
 
 Trong lòng Tần Mục chấn động nhẹ, hỏi:
 

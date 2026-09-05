@@ -52,7 +52,7 @@ Những kẻ phô trương, như chuyển thế thân của Hiểu Thiên Tôn, 
 
 Học biến pháp Diên Khang thì được, nhưng nhất định không được chạm vào vảy ngược của Tần Mục.
 
-Nếu thử tiến vào trung tâm quyền lực của Diên Khang, tu hú chiếm tổ, vậy nhất định sẽ bị Tần Mục bất chấp mọi giá trừ bỏ!
+Nếu thử tiến vào trung tâm quyền lực của Diên Khang, tu hú chiếm tổ, vậy nhất định sẽ bị Tần Mục bất chấp mọi giá trừ khử!
 
 Thái Đế cũng hiểu điểm này, nhưng hắn càng cẩn thận hơn, chỉ lo học đạo pháp thần thông của Diên Khang, chưa từng lộ núi hiện nước. Dù ở vùng xa xôi như Sóc Phương, hắn cũng chẳng có bao nhiêu danh tiếng.
 

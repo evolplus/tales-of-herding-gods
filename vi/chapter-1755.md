@@ -144,7 +144,7 @@ Cuối cùng Tần Mục có được cơ hội thở dốc. Vừa rồi trong t
 
 Vô Nhai lão nhân nhìn chằm chằm đại uyên. Trong đại uyên, Tần Mục đứng trên liên đài hai tầng, đạo Quy Khư vặn xoắn tất cả, hóa thành dưỡng chất của Quy Khư.
 
-"Đạo pháp thần thông của Vô Cực đã sắp bước lên con đường kẻ báng đạo, cho nên cô ta mới bị thầy ngươi phong ấn."
+"Đạo pháp thần thông của Vô Cực đã sắp bước lên con đường kẻ báng đạo, cho nên cô ta mới bị sư phụ ngươi phong ấn."
 
 Vô Nhai lão nhân thở dài liên tục, lộ vẻ tiếc nuối: "Hỗn Độn, ngươi cũng sắp bước lên lối rẽ rồi."
 
@@ -154,7 +154,7 @@ Tần Mục cười ha hả, đột nhiên trong cổ dâng lên một ngụm m�
 
 Hắn phun máu bầm ra, thở một hơi, châm chọc nói: "Ai là kẻ báng đạo, chẳng phải đều do đạo huynh ngươi phong sao? Ngươi nói ai phải thì kẻ ấy phải. Đạo huynh, Thế Giới Thụ và sen Quy Khư đối lập mà sinh. Chỉ cần ta đứng trên liên đài, ngươi không làm gì được ta. Trận chiến này đối với ngươi và ta đều không có lợi, ngươi thả ta rời đi, ta vẫn nhận tờ giấy nợ kia."
 
-Vô Nhai lão nhân cười như không cười: "Lão Thất Di La Cung, ngươi thật sự đơn thuần. Lão Nhị Vô Cực của Di La Cung có thập lục phẩm liên đài, chẳng phải vẫn bị thầy ngươi trấn áp đến ngoan ngoãn? Ngươi chỉ tu luyện ra nhị phẩm, hỏa hầu còn kém xa. Thần thông ngươi vừa thi triển có thần thông trấn áp Vô Cực, loại thần thông này đối với ta cũng không khó. Huống chi..."
+Vô Nhai lão nhân cười như không cười: "Lão Thất Di La Cung, ngươi thật sự đơn thuần. Lão Nhị Vô Cực của Di La Cung có thập lục phẩm liên đài, chẳng phải vẫn bị sư phụ ngươi trấn áp đến ngoan ngoãn? Ngươi chỉ tu luyện ra nhị phẩm, hỏa hầu còn kém xa. Thần thông ngươi vừa thi triển có thần thông trấn áp Vô Cực, loại thần thông này đối với ta cũng không khó. Huống chi..."
 
 Ông ta thản nhiên nói: "Thế Giới Thụ và sen Quy Khư khắc chế nhau. Đã là khắc chế lẫn nhau, vậy ta khắc chế luyện hóa sen Quy Khư của ngươi, dường như cũng không phải không thể."
 

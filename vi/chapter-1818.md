@@ -50,7 +50,7 @@ Công tử Tử Tiêu búng ngón tay lên kiếm, thản nhiên nói: "Lão Th�
 
 Tiếng kiếm ngân trong trẻo, sắc mặt Tần Mục đại biến.
 
-"Vì vậy ta dùng Hồng Mông phù văn để bù đắp điểm yếu của kiếm đạo. Nền tảng mỗi kiếm của ta đều là Hồng Mông phù văn. Ta dung hợp kiếm đạo với đạo Hồng Mông của thầy, hóa thành Hồng Mông kiếm đạo."
+"Vì vậy ta dùng Hồng Mông phù văn để bù đắp điểm yếu của kiếm đạo. Nền tảng mỗi kiếm của ta đều là Hồng Mông phù văn. Ta dung hợp kiếm đạo với đạo Hồng Mông của sư phụ, hóa thành Hồng Mông kiếm đạo."
 
 Công tử Tử Tiêu nhìn chăm chú vào mũi đạo kiếm của mình. Nơi mũi kiếm có một điểm sáng tím. Đạo kiếm rung động, ánh tím cũng chập chờn bất định.
 
@@ -96,7 +96,7 @@ Sắc mặt công tử Tử Tiêu khẽ biến. Hắn rút đạo kiếm, trong 
 
 Nhưng từng đạo kiếm quang đâm vào khí hỗn độn lại như đá chìm biển cả, không còn tăm hơi!
 
-Luồng khí hỗn độn kia dần tản đi, thân hình Tần Mục trở nên rõ ràng: "Thầy chưa làm được thành tựu của bảy vị công tử, nhưng lĩnh ngộ của ông về đạo Hồng Mông lại ở trên chúng ta. Đó là nguyên nhân chúng ta không thể vượt qua ông. Nhị công tử Vô Cực muốn đi khỏi cái bóng của ông, lựa chọn Quy Khư thành đạo. Nhưng nền tảng Quy Khư thành đạo của nàng vẫn là Hồng Mông phù văn. Ta thì khác. Trên nền tảng Hồng Mông phù văn, ta phát triển ra Hỗn Độn phù văn. Ta gọi loại Hỗn Độn phù văn này là..."
+Luồng khí hỗn độn kia dần tản đi, thân hình Tần Mục trở nên rõ ràng: "Sư phụ chưa làm được thành tựu của bảy vị công tử, nhưng lĩnh ngộ của ông về đạo Hồng Mông lại ở trên chúng ta. Đó là nguyên nhân chúng ta không thể vượt qua ông. Nhị công tử Vô Cực muốn đi khỏi cái bóng của ông, lựa chọn Quy Khư thành đạo. Nhưng nền tảng Quy Khư thành đạo của nàng vẫn là Hồng Mông phù văn. Ta thì khác. Trên nền tảng Hồng Mông phù văn, ta phát triển ra Hỗn Độn phù văn. Ta gọi loại Hỗn Độn phù văn này là..."
 
 Thân hình hắn hiện ra, đón mặt đã là kiếm thành đạo của công tử Tử Tiêu đâm tới.
 
@@ -106,7 +106,7 @@ Hai ngón tay của hắn kẹp lấy đạo kiếm của công tử Tử Tiêu.
 
 "Nguyên là tên của Hỗn Độn phù văn."
 
-Sau lưng Tần Mục, Thế Giới Thụ tái hiện, sen Quy Khư tái hiện, Tổ Đình mênh mông vô ngần. Hắn giơ tay chỉ một cái, điểm lên mũi kiếm Đạo Thụ, trầm giọng nói: "Hồng Mông phù văn chỉ có một phù văn, thầy dùng một để diễn hóa vạn vật. Nhưng Nguyên khác. Nguyên nằm giữa có và không, có thể là Hồng Mông phù văn, cũng có thể hóa thành mọi phù văn khác, mênh mang mờ mịt, hỗn hỗn độn độn, không thể nắm bắt."
+Sau lưng Tần Mục, Thế Giới Thụ tái hiện, sen Quy Khư tái hiện, Tổ Đình mênh mông vô ngần. Hắn giơ tay chỉ một cái, điểm lên mũi kiếm Đạo Thụ, trầm giọng nói: "Hồng Mông phù văn chỉ có một phù văn, sư phụ dùng một để diễn hóa vạn vật. Nhưng Nguyên khác. Nguyên nằm giữa có và không, có thể là Hồng Mông phù văn, cũng có thể hóa thành mọi phù văn khác, mênh mang mờ mịt, hỗn hỗn độn độn, không thể nắm bắt."
 
 Trong tay hắn đột nhiên có thêm một thanh Hỗn Độn Kiếm, nghênh đón kiếm Đạo Hoa của công tử Tử Tiêu, chính là thiên Khai Thiên của Thiên Đô!
 

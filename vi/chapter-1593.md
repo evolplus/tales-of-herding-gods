@@ -12,7 +12,7 @@ Từ điểm này có thể nhìn ra chỗ tư chất phi phàm của Hỏa Thi�
 
 Vân Thiên Tôn lại như hoàn toàn không cảm nhận được đạo uy khủng bố của hắn. Pháp lực Hỏa Thiên Tôn hùng hồn vô cùng, hùng hồn hơn nhục thân này của Vân Thiên Tôn nhiều, nhưng Vân Thiên Tôn vẫn thản nhiên ung dung, thậm chí trong ánh mắt nhìn Hỏa Thiên Tôn còn mang theo một tia thương hại và đồng tình.
 
-"Hỏa, huynh định trừ bỏ ta sao?"
+"Hỏa, huynh định trừ khử ta sao?"
 
 Vân Thiên Tôn như cười như không nói: "Lần này huynh giết ta, chắc sẽ không còn ngậm lệ nữa nhỉ?"
 
@@ -36,9 +36,9 @@ Vậy rốt cuộc Hỏa Thiên Tôn biết Vân Thiên Tôn sẽ đi qua đây 
 
 "Huynh có thể tới đây chờ ta là vì người kia cố ý để lộ tin tức cho chuyển thế thân của huynh ở Diên Khang, khiến huynh biết ta sẽ đi Tổ Đình, sẽ đi qua nơi này."
 
-Vân Thiên Tôn thản nhiên nói: "Mục đích của hắn không phải mượn tay huynh trừ bỏ ta. Hắn cũng biết dù huynh chém giết nhục thân của ta, ta cũng sẽ không vì thế mà chết, dù sao ta đã tu thành Thần Thức Đại La Thiên hoàn mỹ, còn hoàn mỹ hơn Thái Đế. Mục đích của hắn chỉ là để ta hết hy vọng với huynh."
+Vân Thiên Tôn thản nhiên nói: "Mục đích của hắn không phải mượn tay huynh trừ khử ta. Hắn cũng biết dù huynh chém giết nhục thân của ta, ta cũng sẽ không vì thế mà chết, dù sao ta đã tu thành Thần Thức Đại La Thiên hoàn mỹ, còn hoàn mỹ hơn Thái Đế. Mục đích của hắn chỉ là để ta hết hy vọng với huynh."
 
-Hắn lộ vẻ châm chọc, thong dong nói: "Người này chính là Mục Thiên Tôn mà huynh khinh thường. Huynh đấu với hắn thế nào được? Hắn là một ta khác, người chủ đạo ta của đời này. Hắn tiết lộ tin tức này cho huynh, thứ nhất là muốn để ta nhìn rõ bộ mặt thật của huynh, hoàn toàn hết hy vọng với huynh. Thứ hai là dẫn huynh tới, vừa muốn đánh cho đạo tâm của huynh sụp đổ, vừa muốn nhân cơ hội trừ bỏ huynh."
+Hắn lộ vẻ châm chọc, thong dong nói: "Người này chính là Mục Thiên Tôn mà huynh khinh thường. Huynh đấu với hắn thế nào được? Hắn là một ta khác, người chủ đạo ta của đời này. Hắn tiết lộ tin tức này cho huynh, thứ nhất là muốn để ta nhìn rõ bộ mặt thật của huynh, hoàn toàn hết hy vọng với huynh. Thứ hai là dẫn huynh tới, vừa muốn đánh cho đạo tâm của huynh sụp đổ, vừa muốn nhân cơ hội trừ khử huynh."
 
 Đồng tử Hỏa Thiên Tôn đột nhiên co lại.
 
@@ -46,7 +46,7 @@ Hắn có thể chặn Vân Thiên Tôn ở đây, quả thật là vì chuyển
 
 Sau khi có được tin tức này, hắn lập tức tới đây.
 
-Vân Thiên Tôn mỉm cười nói: "Mục Thiên Tôn làm việc vừa có sự tàn nhẫn của ta, vừa có giết người tru tâm. Đổi lại là ta, tuyệt đối sẽ không cho huynh cơ hội nhìn thấy mình bị mọi người phản bội xa lánh. Ta sẽ không từ thủ đoạn trừ bỏ huynh. Nhưng hắn khác. Hắn tính được huynh nhất định sẽ tới, tính được Hư, Tổ và các Thiên Tôn khác đã tới U Đô. Hắn muốn đánh cho đạo tâm của huynh sụp đổ, lòng sinh tuyệt vọng."
+Vân Thiên Tôn mỉm cười nói: "Mục Thiên Tôn làm việc vừa có sự tàn nhẫn của ta, vừa có giết người tru tâm. Đổi lại là ta, tuyệt đối sẽ không cho huynh cơ hội nhìn thấy mình bị mọi người phản bội xa lánh. Ta sẽ không từ thủ đoạn trừ khử huynh. Nhưng hắn khác. Hắn tính được huynh nhất định sẽ tới, tính được Hư, Tổ và các Thiên Tôn khác đã tới U Đô. Hắn muốn đánh cho đạo tâm của huynh sụp đổ, lòng sinh tuyệt vọng."
 
 Đột nhiên, đạo hỏa trong hẻm núi gào thét xoay chuyển, hóa thành từng tầng đạo hỏa sau đầu Hỏa Thiên Tôn.
 

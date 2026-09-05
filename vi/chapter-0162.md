@@ -218,11 +218,11 @@ Thiếu niên tổ sư nói:
 
 Quốc sư Diên Khang dừng bước:
 
-"Năm đó ta muốn bái ngươi làm thầy, vì sao ngươi không nhận ta?"
+"Năm đó ta muốn bái ngươi làm sư phụ, vì sao ngươi không nhận ta?"
 
 Thiếu niên tổ sư thản nhiên nói:
 
-"Ta nhận ra ngươi tốt hơn ta, thành tựu tương lai cao hơn ta. Ta thẹn không đủ làm thầy ngươi, nên không thể nhận ngươi làm đồ đệ. Chuyện ngươi muốn làm là chuyện trước kia ta chưa từng nghĩ tới, cũng là chuyện cả đời ta không làm được. Ta cũng học được rất nhiều từ ngươi, cho nên không thể làm lão sư của ngươi."
+"Ta nhận ra ngươi tốt hơn ta, thành tựu tương lai cao hơn ta. Ta thẹn không đủ làm sư phụ ngươi, nên không thể nhận ngươi làm đồ đệ. Chuyện ngươi muốn làm là chuyện trước kia ta chưa từng nghĩ tới, cũng là chuyện cả đời ta không làm được. Ta cũng học được rất nhiều từ ngươi, cho nên không thể làm lão sư của ngươi."
 
 Quốc sư Diên Khang cất bước, theo kịp ông, nói:
 

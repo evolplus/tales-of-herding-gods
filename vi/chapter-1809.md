@@ -8,7 +8,7 @@ Chẳng lẽ ngày chết của mình thật sự đã tới?
 
 "Ngươi đã là người chết, ta không có hứng thú giết một người chết."
 
-Khai Hoàng Tần Nghiệp thu kiếm vào vỏ, xoay người, quay lưng với hắn đi về chiến trường khác: "Từng có lúc ta cho rằng anh hùng thiên hạ chỉ có Nghiệp và Hạo mà thôi. Không ngờ khi ta Đông Sơn tái khởi, ngươi đã tệ hại đến mức này. Khi ta muốn đích thân trừ bỏ ngươi, ngươi đã là một người chết."
+Khai Hoàng Tần Nghiệp thu kiếm vào vỏ, xoay người, quay lưng với hắn đi về chiến trường khác: "Từng có lúc ta cho rằng anh hùng thiên hạ chỉ có Nghiệp và Hạo mà thôi. Không ngờ khi ta Đông Sơn tái khởi, ngươi đã tệ hại đến mức này. Khi ta muốn đích thân trừ khử ngươi, ngươi đã là một người chết."
 
 Hạo Thiên Tôn giận dữ: "Cái gì gọi là đã là người chết? Tần Nghiệp, ta vẫn đang sống rất tốt!"
 

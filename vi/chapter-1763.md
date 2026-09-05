@@ -62,31 +62,31 @@ Hắn mở mắt: "Thái Thượng sư huynh. Sư huynh chẳng phải nói khô
 
 Tần Mục khó hiểu, nói: "Xin sư huynh chỉ rõ."
 
-"Thầy giết Chủ nhân Thiên Đô không có nửa phần tư tâm, mà là vì hành động của Chủ nhân Thiên Đô. Thiên Địa Đại Đạo là công khí, chí công vô tư. Đạo không vì ngươi là bậc thành đạo mà thiên vị ngươi, cũng không vì ngươi vô danh mà xem nhẹ ngươi. Còn Thiên Đô khai thiên lại biến đạo vốn là công khí thành tư khí."
+"Sư phụ giết Chủ nhân Thiên Đô không có nửa phần tư tâm, mà là vì hành động của Chủ nhân Thiên Đô. Thiên Địa Đại Đạo là công khí, chí công vô tư. Đạo không vì ngươi là bậc thành đạo mà thiên vị ngươi, cũng không vì ngươi vô danh mà xem nhẹ ngươi. Còn Thiên Đô khai thiên lại biến đạo vốn là công khí thành tư khí."
 
 Thái Thượng không nhanh không chậm nói: "Ngươi chưa từng tới Kỷ thứ bảy, không biết tình hình Kỷ thứ bảy, vì vậy có đồng tình với Chủ nhân Thiên Đô cũng có thể thông cảm. Ở Kỷ thứ bảy, sau khi Thiên Đô thành khai thiên lập địa, đại đạo thành của riêng, thuộc về những khai thiên chúng của Thiên Đô thành. Khi ấy, chúng sinh đông đảo buộc phải tu luyện đạo của bọn họ. Còn khai thiên chúng của Thiên Đô thành có thể khống chế Thiên Địa Đại Đạo, làm gì tùy ý, trong đó không thiếu kẻ làm càn làm bậy."
 
-Tần Mục nhướng mày, nói: "Ân oán giữa thầy và Chủ nhân Thiên Đô là do Vô Nhai lão nhân ở giữa châm ngòi. Danh xưng kẻ báng đạo từ đâu mà có, Thái Thượng sư huynh hẳn rõ hơn ta mới đúng."
+Tần Mục nhướng mày, nói: "Ân oán giữa sư phụ và Chủ nhân Thiên Đô là do Vô Nhai lão nhân ở giữa châm ngòi. Danh xưng kẻ báng đạo từ đâu mà có, Thái Thượng sư huynh hẳn rõ hơn ta mới đúng."
 
-"Thầy là bậc nào? Vô Nhai lão nhân ảnh hưởng tới ông ấy có hạn, nhiều nhất chỉ giúp ông ấy xác định suy nghĩ của mình mà thôi. Vô Nhai lão nhân xem bản thân quá quan trọng, nhưng trong lòng thầy, hắn không quan trọng như vậy."
+"Sư phụ là bậc nào? Vô Nhai lão nhân ảnh hưởng tới ông ấy có hạn, nhiều nhất chỉ giúp ông ấy xác định suy nghĩ của mình mà thôi. Vô Nhai lão nhân xem bản thân quá quan trọng, nhưng trong lòng sư phụ, hắn không quan trọng như vậy."
 
-Đại công tử Thái Thượng ung dung nói: "Thiên Đô thành hữu giáo vô loại, trong đó có rất nhiều kẻ đạo đức bại hoại. Khai thiên chúng có thể muốn lấy muốn cho đại đạo của họ, dựa vào yêu ghét của mình, tùy ý tước đoạt khổ tu của người khác, tùy ý ban tu vi cho người khác. Toàn bộ lịch sử Kỷ thứ bảy chướng khí mịt mù, không còn ai khác thành đạo nữa. Thầy tới giảng lý với Chủ nhân Thiên Đô, khuyên hắn ba lần. Ba lần ấy, ta đều đi bên cạnh."
+Đại công tử Thái Thượng ung dung nói: "Thiên Đô thành hữu giáo vô loại, trong đó có rất nhiều kẻ đạo đức bại hoại. Khai thiên chúng có thể muốn lấy muốn cho đại đạo của họ, dựa vào yêu ghét của mình, tùy ý tước đoạt khổ tu của người khác, tùy ý ban tu vi cho người khác. Toàn bộ lịch sử Kỷ thứ bảy chướng khí mịt mù, không còn ai khác thành đạo nữa. Sư phụ tới giảng lý với Chủ nhân Thiên Đô, khuyên hắn ba lần. Ba lần ấy, ta đều đi bên cạnh."
 
 Tần Mục nhíu mày.
 
 Hắn biết không nhiều về ân oán giữa Thiên Đô và Di La Cung. Hiện tại nghe Thái Thượng nói tới lịch sử trong đó, hắn mới phát hiện nó phức tạp hơn mình tưởng tượng rất nhiều.
 
-"Ba lần thầy tới Thiên Đô thành bái hội, đều tới với tư thái đạo hữu để bàn bạc, thỉnh giáo, mong có thể thuyết phục Chủ nhân Thiên Đô từ bỏ lý niệm ban đầu của hắn. Nhưng sau khi thầy tới Thiên Đô thành, thứ nhận được lại là sự châm chọc khiêu khích của khai thiên chúng, thứ nhìn thấy là ánh mắt lạnh nhạt khinh thường."
+"Ba lần sư phụ tới Thiên Đô thành bái hội, đều tới với tư thái đạo hữu để bàn bạc, thỉnh giáo, mong có thể thuyết phục Chủ nhân Thiên Đô từ bỏ lý niệm ban đầu của hắn. Nhưng sau khi sư phụ tới Thiên Đô thành, thứ nhận được lại là sự châm chọc khiêu khích của khai thiên chúng, thứ nhìn thấy là ánh mắt lạnh nhạt khinh thường."
 
-Đại công tử Thái Thượng nói: "Thầy là bậc nào? Kỷ thứ nhất đã thành đạo, sau đó năm kỷ vũ trụ, thầy chủ động nhập thế, truyền đạo thụ nghiệp, mở đàn giảng pháp, mong có thêm nhiều đồng đạo. Trong Thiên Đô thành, ai mà không nhờ ân trạch của thầy mới có tu vi về sau? Nhưng khai thiên chúng Thiên Đô dám làm nhục thầy. Đối với đủ loại khiêu khích, thầy đều xem như mây khói thoảng qua, không tính toán. Chỉ là ba lần thăm viếng, Chủ nhân Thiên Đô đều từ chối thầy."
+Đại công tử Thái Thượng nói: "Sư phụ là bậc nào? Kỷ thứ nhất đã thành đạo, sau đó năm kỷ vũ trụ, sư phụ chủ động nhập thế, truyền đạo thụ nghiệp, mở đàn giảng pháp, mong có thêm nhiều đồng đạo. Trong Thiên Đô thành, ai mà không nhờ ân trạch của sư phụ mới có tu vi về sau? Nhưng khai thiên chúng Thiên Đô dám làm nhục sư phụ. Đối với đủ loại khiêu khích, sư phụ đều xem như mây khói thoảng qua, không tính toán. Chỉ là ba lần thăm viếng, Chủ nhân Thiên Đô đều từ chối sư phụ."
 
 Tần Mục nhìn người bại liệt bên cạnh, khẽ nhíu mày.
 
-"Khi ấy thầy cũng chưa động sát tâm, nhưng về sau, Kỷ thứ bảy xuất hiện dấu hiệu sụp hỏng. Vũ trụ Kỷ thứ bảy đã bị Thiên Đô giày vò tới mức sắp phá diệt. Lúc này, thầy nhìn thấy khai thiên chúng của Thiên Đô thành chuẩn bị khai thiên lần nữa."
+"Khi ấy sư phụ cũng chưa động sát tâm, nhưng về sau, Kỷ thứ bảy xuất hiện dấu hiệu sụp hỏng. Vũ trụ Kỷ thứ bảy đã bị Thiên Đô giày vò tới mức sắp phá diệt. Lúc này, sư phụ nhìn thấy khai thiên chúng của Thiên Đô thành chuẩn bị khai thiên lần nữa."
 
-Thái Thượng nói: "Khi ấy, để tránh cho Kỷ thứ tám giẫm lên vết xe đổ, cuối cùng thầy hạ quyết tâm, bế quan mấy nghìn năm. Sau khi xuất quan, thầy giết Chủ nhân Thiên Đô, lệnh cho ta trấn áp thi thân của hắn ở đây."
+Thái Thượng nói: "Khi ấy, để tránh cho Kỷ thứ tám giẫm lên vết xe đổ, cuối cùng sư phụ hạ quyết tâm, bế quan mấy nghìn năm. Sau khi xuất quan, sư phụ giết Chủ nhân Thiên Đô, lệnh cho ta trấn áp thi thân của hắn ở đây."
 
-Thái Thượng mím môi, nói: "Thầy không làm việc này tuyệt đường. Nếu làm tuyệt đường, kẻ báng đạo tên Lăng kia không thể cứu được nguyên thần của Thiên Đô. Thầy vẫn để lại cho Chủ nhân Thiên Đô một cơ hội, khiến hắn trở thành Thái Dịch của Kỷ thứ mười bảy. Hơn nữa, thầy còn đưa Thái Dịch vào kiếp Phá Diệt của Kỷ thứ tư, để hắn có khả năng làm lại. Thử hỏi, thiên hạ có ai có lòng dạ như vậy?"
+Thái Thượng mím môi, nói: "Sư phụ không làm việc này tuyệt đường. Nếu làm tuyệt đường, kẻ báng đạo tên Lăng kia không thể cứu được nguyên thần của Thiên Đô. Sư phụ vẫn để lại cho Chủ nhân Thiên Đô một cơ hội, khiến hắn trở thành Thái Dịch của Kỷ thứ mười bảy. Hơn nữa, sư phụ còn đưa Thái Dịch vào kiếp Phá Diệt của Kỷ thứ tư, để hắn có khả năng làm lại. Thử hỏi, thiên hạ có ai có lòng dạ như vậy?"
 
 Tần Mục im lặng.
 
@@ -98,9 +98,9 @@ Thái Thượng cũng không có lòng dạ ấy.
 
 Vì vậy sau khi đạo tâm Chủ nhân Di La Cung chết, Thái Thượng mới trấn áp Thái Dịch, giam Thái Dịch trong Thái Thượng Điện, lại dùng Táng Đạo Thần Quan trấn áp.
 
-Người có lòng dạ ấy chỉ có Chủ nhân Di La Cung, người đàn ông được vô số người gọi là thầy kia.
+Người có lòng dạ ấy chỉ có Chủ nhân Di La Cung, người đàn ông được vô số người gọi là sư phụ kia.
 
-"Ngươi cứu Thái Dịch ra, ta không làm khó ngươi, mặc cho ngươi cứu Thái Dịch, dù sao thầy đã cho hắn một cơ hội, ta không thể tước đoạt."
+"Ngươi cứu Thái Dịch ra, ta không làm khó ngươi, mặc cho ngươi cứu Thái Dịch, dù sao sư phụ đã cho hắn một cơ hội, ta không thể tước đoạt."
 
 Đại công tử Thái Thượng im lặng một lát, nói: "Nhưng ngươi muốn cứu Thiên Đô, để Thái Dịch và Thiên Đô hợp làm một, ta sẽ không cho phép. Hỗn Độn, ta không động thủ với ngươi, ta chỉ hỏi ngươi một vấn đề."
 
@@ -108,7 +108,7 @@ Tần Mục định thần, khom người nói: "Sư huynh xin hỏi."
 
 "Nếu thương thế của Thiên Đô khỏi hẳn, Thái Dịch và Thiên Đô dung hợp, khiến Chủ nhân Thiên Đô hồi sinh, ngươi có nghĩ tới hậu quả không?"
 
-Thái Thượng nói: "Thiên Đô thành chết mà chưa cứng, khai thiên chúng năm xưa ẩn trong lịch sử, ẩn trong góc tối. Chủ nhân Thiên Đô hồi sinh, hắn vung tay hô một tiếng, vậy sẽ không còn là tranh đấu giữa ngươi với Lăng Tiêu, Tử Tiêu nữa, mà là đấu tranh giữa Di La Cung và Thiên Đô thành. Không có thầy, không ai áp chế nổi Chủ nhân Thiên Đô, không áp chế nổi Thiên Đô thành. Vũ trụ Kỷ thứ mười bảy của ngươi đã chuẩn bị đón nhận sự cải tạo của khai thiên chúng Thiên Đô chưa?"
+Thái Thượng nói: "Thiên Đô thành chết mà chưa cứng, khai thiên chúng năm xưa ẩn trong lịch sử, ẩn trong góc tối. Chủ nhân Thiên Đô hồi sinh, hắn vung tay hô một tiếng, vậy sẽ không còn là tranh đấu giữa ngươi với Lăng Tiêu, Tử Tiêu nữa, mà là đấu tranh giữa Di La Cung và Thiên Đô thành. Không có sư phụ, không ai áp chế nổi Chủ nhân Thiên Đô, không áp chế nổi Thiên Đô thành. Vũ trụ Kỷ thứ mười bảy của ngươi đã chuẩn bị đón nhận sự cải tạo của khai thiên chúng Thiên Đô chưa?"
 
 Tần Mục rùng mình liên tiếp, dựng tóc gáy.
 

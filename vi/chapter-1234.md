@@ -32,7 +32,7 @@ Hỏa Thiên Tôn hừ lạnh một tiếng: “Xích Hoàng ta không giết h�
 
 Sắc mặt hắn ảm đạm, lắc đầu nói: “Họ tuy là đạo hữu của ta, nhưng họ cũng phạm sai lầm giống Vân Thiên Tôn, vậy mà muốn lật trời, đáng chết vạn lần! Có điều ta vẫn giữ mạng Nguyệt Thiên Tôn. Cái chết của Lăng Thiên Tôn thì là một chuyện ngoài ý muốn, ta không hề muốn giết nàng.”
 
-Tần Mục cười ha hả, tiếng cười như khóc: “Hay cho một câu giữ mạng Nguyệt Thiên Tôn, thật là đạo mạo trang nghiêm, lòng dạ từ bi! Khi ngươi đi tìm Nguyệt Thiên Tôn, thương nghị đối phó Địa Mẫu Nguyên Quân, ta đã ở đó! Kế sách của ngươi và Hiểu Thiên Tôn là do Hạo Thiên Tôn bày ra đúng không? Khi trừ bỏ Địa Mẫu Nguyên Quân, đồng thời ra tay, trừ bỏ Nguyệt Thiên Tôn và Lăng Thiên Tôn!”
+Tần Mục cười ha hả, tiếng cười như khóc: “Hay cho một câu giữ mạng Nguyệt Thiên Tôn, thật là đạo mạo trang nghiêm, lòng dạ từ bi! Khi ngươi đi tìm Nguyệt Thiên Tôn, thương nghị đối phó Địa Mẫu Nguyên Quân, ta đã ở đó! Kế sách của ngươi và Hiểu Thiên Tôn là do Hạo Thiên Tôn bày ra đúng không? Khi trừ khử Địa Mẫu Nguyên Quân, đồng thời ra tay, trừ khử Nguyệt Thiên Tôn và Lăng Thiên Tôn!”
 
 Mặt hắn lạnh như băng, lạnh lùng nói: “Nguyệt Thiên Tôn và Lăng Thiên Tôn có thể sống sót, là nhờ ta vô số lần dùng mộng nhập đạo mô phỏng, mới chọn ra con đường sống duy nhất! Ngươi vậy mà dám ở trước mặt ta dát vàng lên mặt mình, nói thành công lao của mình!”
 
@@ -66,7 +66,7 @@ Hỏa Thiên Tôn quay đầu nhìn nàng, nghiêm mặt nói: “Mục Thiên T
 
 Bạch Ngọc Quỳnh mỉm cười điềm tĩnh: “Là vì ta sẽ không biến pháp, cũng sẽ không mưu phản làm loạn sao?”
 
-Hỏa Thiên Tôn gật đầu, thong thả nói: “Mục Thiên Tôn không ra tay với cô, ta liền không có lý do động đến hắn. Nhưng ta quan sát hành vi của hắn, kẻ này tương lai tất phản, khiến nhân tộc ta rơi vào nguy cơ sinh tử tồn vong cực lớn. Ta không thể để hắn làm như vậy, nên phải tìm một lý do trừ bỏ hắn.”
+Hỏa Thiên Tôn gật đầu, thong thả nói: “Mục Thiên Tôn không ra tay với cô, ta liền không có lý do động đến hắn. Nhưng ta quan sát hành vi của hắn, kẻ này tương lai tất phản, khiến nhân tộc ta rơi vào nguy cơ sinh tử tồn vong cực lớn. Ta không thể để hắn làm như vậy, nên phải tìm một lý do trừ khử hắn.”
 
 Bạch Ngọc Quỳnh gật đầu nói: “Cho nên hắn thử đánh thức thần hồn Nam Đế trong cơ thể ta, chính là lý do để Thiên Tôn ra tay giết hắn.”
 

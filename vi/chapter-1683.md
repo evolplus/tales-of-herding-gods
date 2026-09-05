@@ -6,7 +6,7 @@ Tần Mục lắc đầu nói: “Nương nương yên tâm, Thập Thiên Tôn 
 
 Đế hậu nương nương đi tới trước mặt hắn, chắn ngang tầm mắt hắn.
 
-Tuy Tần Mục là cường giả đứng đầu đương thời, nhưng Đế hậu nương nương không hề sợ hãi, thậm chí đối chọi gay gắt: “Bổn cung đã làm được Quy Khư thành đạo. Bản lĩnh này không dám nói là thiên hạ vô song, nhưng dù người trong bóng ngươi và ngươi liên thủ, cũng không giữ được ta. Nếu ngươi muốn ra tay với ta, nhân cơ hội trừ bỏ ta, vậy chưa khỏi quá xem thường ta.”
+Tuy Tần Mục là cường giả đứng đầu đương thời, nhưng Đế hậu nương nương không hề sợ hãi, thậm chí đối chọi gay gắt: “Bổn cung đã làm được Quy Khư thành đạo. Bản lĩnh này không dám nói là thiên hạ vô song, nhưng dù người trong bóng ngươi và ngươi liên thủ, cũng không giữ được ta. Nếu ngươi muốn ra tay với ta, nhân cơ hội trừ khử ta, vậy chưa khỏi quá xem thường ta.”
 
 Tần Mục lộ vẻ kinh ngạc, nói: “Nương nương đã tu thành hỗn độn gieo sen rồi?”
 

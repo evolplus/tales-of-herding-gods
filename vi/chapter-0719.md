@@ -66,7 +66,7 @@ Lão nông chậm rãi nói: "Tứ đại Thiên Sư Khai Hoàng Thiên Đình, 
 
 Tần Mục từ trên cao nhìn xuống đại lục chư thiên, chỉ thấy rất nhiều thanh niên trai tráng đang chạy về phía này, tốc độ rất nhanh.
 
-"Tiều phu lão sư rất khâm phục Vũ Đấu Thiên Sư."
+"Tiều Phu lão sư rất khâm phục Vũ Đấu Thiên Sư."
 
 Tần Mục nghiêm túc nói: "Lão sư từng nhắc tới ông, nói ông võ lực đệ nhất, là người mạnh nhất trong Tứ đại Thiên Sư. Lần biến pháp Diên Khang này, lão sư bày kế, sau khi cứu Đế Dịch Nguyệt liền lập tức tới tìm Vũ Đấu Thiên Sư, có thể thấy trong lòng lão sư, địa vị của Vũ Đấu Thiên Sư không kém Đế Dịch Nguyệt Thiên Vương."
 

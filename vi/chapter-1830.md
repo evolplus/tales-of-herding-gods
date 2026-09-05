@@ -40,7 +40,7 @@ Chủ nhân Di La Cung nói:
 
 Hai cô bé nhìn nhau cười:
 
-"Thưa thầy, chúng con thông minh lanh lợi, ai lừa nổi chúng con?"
+"Thưa sư phụ, chúng con thông minh lanh lợi, ai lừa nổi chúng con?"
 
 Chủ nhân Di La Cung lắc đầu, có chút bất an, trong lòng còn thấy cổ quái:
 
@@ -102,7 +102,7 @@ Dù khí lượng phong độ của Chủ nhân Di La Cung kinh người, giờ 
 
 Cha con Tần Mục dừng bước. Tần Mục thi lễ:
 
-"Thưa thầy, con đến đây chỉ để làm chứng, để tìm một số người và vật. Con sẽ không can thiệp quá khứ. Hơn nữa, con cũng không thể cứu họ."
+"Thưa sư phụ, con đến đây chỉ để làm chứng, để tìm một số người và vật. Con sẽ không can thiệp quá khứ. Hơn nữa, con cũng không thể cứu họ."
 
 "Chỉ làm chứng thôi sao?"
 
@@ -114,7 +114,7 @@ Chủ nhân Di La Cung rơi lệ, nhớ đến chúng sinh Đệ Nhị Kỷ, t�
 
 Tần Mục vê một sợi khí Hỗn Độn, làm thành một bồ đoàn tặng hắn, nói:
 
-"Thưa thầy, Đệ Tam Kỷ vẫn còn chúng sinh muôn loài, vẫn cần thầy nhập thế độ người."
+"Thưa sư phụ, Đệ Tam Kỷ vẫn còn chúng sinh muôn loài, vẫn cần sư phụ nhập thế độ người."
 
 Trước khi kiếp Sáng Sinh của Đệ Tam Kỷ bùng nổ, cuối cùng Chủ nhân Di La Cung nhặt lại đạo tâm, nhặt lại lý niệm. Hắn quay đầu nhìn thấy vô tận hình ảnh lịch sử của Đệ Nhị Kỷ, nhìn về phía trước thì thấy tương lai sắp xảy ra của Đệ Tam Kỷ.
 
@@ -158,7 +158,7 @@ Cuối cùng, cha con Tần Mục bị đuổi khỏi Thiên Đô thành.
 
 Thiên Đô vô cùng tiếc nuối, nói với Tần Mục:
 
-"Hỗn Độn đạo hữu, họ không biết bản lĩnh của ngươi, nhưng ta biết bản lĩnh của ngươi cao, thậm chí có thể còn trên cả ta và thầy. Họ cho rằng ngươi là tên khốn, ta lại cảm thấy từng lời nói cử chỉ của ngươi đều có thâm ý lớn. Có điều, ta cũng không thể giữ ngươi, đành tiễn quân rời đi. Cửa lớn Thiên Đô thành luôn mở rộng vì quân, cung nghênh đại giá."
+"Hỗn Độn đạo hữu, họ không biết bản lĩnh của ngươi, nhưng ta biết bản lĩnh của ngươi cao, thậm chí có thể còn trên cả ta và sư phụ. Họ cho rằng ngươi là tên khốn, ta lại cảm thấy từng lời nói cử chỉ của ngươi đều có thâm ý lớn. Có điều, ta cũng không thể giữ ngươi, đành tiễn quân rời đi. Cửa lớn Thiên Đô thành luôn mở rộng vì quân, cung nghênh đại giá."
 
 Tần Mục nói qua loa:
 
@@ -194,7 +194,7 @@ Thiên Đô cười lạnh.
 
 Nhưng đến Đệ Tứ Kỷ, Tần Mục lại chạy tới. Thiên Đô không trách hắn, cũng không rảnh để ý hắn. Thiên Đô có việc lớn phải làm, hắn muốn đi trước Chủ nhân Di La Cung, thu Tiên Thiên Ngũ Thái của Đệ Tứ Kỷ vào dưới trướng.
 
-Hắn muốn chứng minh lý niệm của mình tốt hơn lý niệm của thầy, khí độ và lòng dạ của mình cũng tốt hơn thầy.
+Hắn muốn chứng minh lý niệm của mình tốt hơn lý niệm của sư phụ, khí độ và lòng dạ của mình cũng tốt hơn sư phụ.
 
 Thiên Đô thành lớn mạnh. Hắn có rất nhiều người đi theo, thần thông đạo pháp của Thiên Đô thành cũng dần tự thành hệ thống, càng lúc càng khác biệt với thần thông đạo pháp của Di La Cung.
 

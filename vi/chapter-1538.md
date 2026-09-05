@@ -174,7 +174,7 @@ Thái Dương cổ thần nói: “Ta nhớ ra tòa kim điện của Thái Dị
 
 Hiểu Thiên Tôn như có điều suy nghĩ, nhìn mười vạn Thánh Sơn, đột nhiên cười một tiếng.
 
-Thái Dương cổ thần suy tư: “Chắc là sau khi Mục Thiên Tôn trở về, đã dâng kim điện trên Kim Thuyền cho Thái Dịch đạo huynh. Tên này rất biết luồn lọt, thậm chí còn định ra tay với chúng ta, trừ bỏ chúng ta.”
+Thái Dương cổ thần suy tư: “Chắc là sau khi Mục Thiên Tôn trở về, đã dâng kim điện trên Kim Thuyền cho Thái Dịch đạo huynh. Tên này rất biết luồn lọt, thậm chí còn định ra tay với chúng ta, trừ khử chúng ta.”
 
 “Thú vị.”
 

@@ -100,7 +100,7 @@ Lâm Hiên vội hoàn lễ, nghiêm mặt nói:
 
 "Giáo chủ làm ta tổn thọ rồi. Ngươi truyền Thái Vi Toán Kinh cho Đạo môn ta, Đạo môn có chút thành tựu chẳng qua là báo đáp lại mà thôi."
 
-Tần Mục và Ngự Thiên Tôn cùng mọi người ở lại Đạo môn học cung. Ngự Thiên Tôn theo thầy đi học các loại thuật số. Trong Đạo môn có rất nhiều toán kinh, Lâm Hiên lại mang từ Thanh Vân Thiên về các loại toán kinh mênh mông như biển, muốn học hết những toán kinh này có thể nói là gian nan.
+Tần Mục và Ngự Thiên Tôn cùng mọi người ở lại Đạo môn học cung. Ngự Thiên Tôn theo sư phụ đi học các loại thuật số. Trong Đạo môn có rất nhiều toán kinh, Lâm Hiên lại mang từ Thanh Vân Thiên về các loại toán kinh mênh mông như biển, muốn học hết những toán kinh này có thể nói là gian nan.
 
 Học thuật số cực kỳ khô khan, nhưng lại là nền tảng quan trọng bậc nhất trong hệ thống thần thông đạo pháp. Ngoài một số ít thần thông như võ đạo không yêu cầu thuật số cao, những hệ thống thần thông khác đều cần dùng tới thuật số.
 

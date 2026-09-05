@@ -74,9 +74,9 @@ Hắn nâng chén ra hiệu, Khai Hoàng nâng chén đáp lễ.
 
 Hạo Thiên Tôn uống trà, đặt chén xuống, nói: "Vân Thiên Tôn dựa vào kế thừa di sản của Thái Đế. Hắn có thể phát huy được bao nhiêu vẫn còn đáng ngờ. Nếu hắn có thể lực địch phụ thần Thái Sơ của ta, các ngươi còn có dư địa xoay chuyển. Đáng tiếc, không được. Vân Thiên Tôn tới dưới Thế Giới Thụ chính là để giải quyết khuyết điểm của hắn."
 
-Hắn rót thêm trà cho Khai Hoàng, tiếp tục nói: "Lăng Thiên Tôn cũng không được. Uy lực đạo pháp của Lăng Thiên Tôn quả thật đáng sợ vô cùng, chém giết Thái Đế, kinh diễm tuyệt luân. Dù là ta trúng chiêu, cũng có thể đạo hạnh tịch diệt, chết hẳn. Nhưng bản lĩnh khác của nàng quá lỏng lẻo, thủ đoạn chiến đấu quá kém. Nàng căn bản không thể tiếp cận ta, cũng không thể tiếp cận các Thiên Tôn khác. Chỉ cần trừ bỏ Nguyệt Thiên Tôn, nàng sẽ chẳng có tác dụng gì."
+Hắn rót thêm trà cho Khai Hoàng, tiếp tục nói: "Lăng Thiên Tôn cũng không được. Uy lực đạo pháp của Lăng Thiên Tôn quả thật đáng sợ vô cùng, chém giết Thái Đế, kinh diễm tuyệt luân. Dù là ta trúng chiêu, cũng có thể đạo hạnh tịch diệt, chết hẳn. Nhưng bản lĩnh khác của nàng quá lỏng lẻo, thủ đoạn chiến đấu quá kém. Nàng căn bản không thể tiếp cận ta, cũng không thể tiếp cận các Thiên Tôn khác. Chỉ cần trừ khử Nguyệt Thiên Tôn, nàng sẽ chẳng có tác dụng gì."
 
-Hắn cười nói: "Hỏa Thiên Tôn sẽ trừ bỏ Nguyệt Thiên Tôn thay ta. Còn Lăng Thiên Tôn, ta giết không chết nàng, e rằng trên đời này đã không ai có thể giết chết nàng, nhưng chúng ta không làm được, không có nghĩa là công tử Di La Cung không làm được."
+Hắn cười nói: "Hỏa Thiên Tôn sẽ trừ khử Nguyệt Thiên Tôn thay ta. Còn Lăng Thiên Tôn, ta giết không chết nàng, e rằng trên đời này đã không ai có thể giết chết nàng, nhưng chúng ta không làm được, không có nghĩa là công tử Di La Cung không làm được."
 
 Trong lòng Khai Hoàng nảy lên, lặng lẽ uống trà.
 
@@ -86,7 +86,7 @@ Hạo Thiên Tôn nhắc tới Tần Mục cũng không khỏi liên tục khen 
 
 Hắn uống trà, nói: "Cung Thiên Tôn chết rồi. Mục Thiên Tôn giết Cung Thiên Tôn, đại diện cho bản lĩnh của hắn trên Cung Thiên Tôn. Tốc độ tiến bộ thực lực của hắn cũng ngoài dự liệu của ta. Nhưng bản lĩnh Cung Thiên Tôn vốn là hạng đội sổ trong Thập Thiên Tôn. Từ sau khi nàng bị kiếm đạo của ngươi làm bị thương, đạo tâm của nàng đã không còn viên mãn. Chết trong tay Mục Thiên Tôn cũng là bình thường. Huynh trưởng Lang Hiên của ta có thể chống lại hắn."
 
-Khai Hoàng mỉm cười, lắc đầu nói: "Lang Hiên chết chắc rồi. Ngươi mượn tay Mục Thiên Tôn trừ bỏ hắn, Lang Hiên có biết không?"
+Khai Hoàng mỉm cười, lắc đầu nói: "Lang Hiên chết chắc rồi. Ngươi mượn tay Mục Thiên Tôn trừ khử hắn, Lang Hiên có biết không?"
 
 Hạo Thiên Tôn cười ha hả, gảy gảy chén trà, không vội không chậm nói: "Ban đầu ta chuẩn bị cho các ngươi một cái chết thể diện, để các ngươi toàn bộ hy sinh tráng liệt, trở thành vật hiến tế để công tử giáng lâm. Nhưng Mục Thiên Tôn tư duy không bình thường, làm loạn kế hoạch của ta. Nhưng như vậy cũng tốt, công tử không thể giáng lâm, chuyện này không trách ta được."
 

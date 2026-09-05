@@ -26,7 +26,7 @@ Phá giải Hồng Mông hóa đạo nói thì dễ. Lam Ngự Điền cũng tr�
 
 Đối với tính cách của Thái Sơ, hắn có thể nói là hiểu rất sâu.
 
-Thái Sơ vì bị Thái Đế hãm hại, bất đắc dĩ phải xuất thế sớm, trở thành con nuôi của Thái Đế. Hắn làm việc dưới tay Thái Đế, mọi chuyện đều cẩn thận dè dặt, đồng thời âm thầm mưu tính làm cách nào trừ bỏ Thái Đế.
+Thái Sơ vì bị Thái Đế hãm hại, bất đắc dĩ phải xuất thế sớm, trở thành con nuôi của Thái Đế. Hắn làm việc dưới tay Thái Đế, mọi chuyện đều cẩn thận dè dặt, đồng thời âm thầm mưu tính làm cách nào trừ khử Thái Đế.
 
 Thế nhưng trải qua mấy chục tỷ năm, hắn mới có được cơ hội này. Cơ hội này còn là do Thái Dịch cho hắn. Nếu không có Thái Dịch hóa đạo, khiến cổ thần phản kháng Thái Đế, e rằng Thái Sơ vẫn sẽ tiếp tục nhẫn nhịn.
 

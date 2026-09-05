@@ -160,6 +160,6 @@ Tần Mục nhíu mày.
 
 “Bởi vì Thái Dịch thật sự đã chết trước khi còn chưa sinh ra.”
 
-Giọng Chủ nhân Di La Cung chấn động: “Bậc thành đạo đầu tiên lên bờ xâm nhập vào trứng Hỗn Độn, trừ bỏ hắn, dùng Hỗn Độn Phủ của hắn chặt đứt Thế Giới Thụ, khiến các bậc thành đạo khác không thể giáng lâm.”
+Giọng Chủ nhân Di La Cung chấn động: “Bậc thành đạo đầu tiên lên bờ xâm nhập vào trứng Hỗn Độn, trừ khử hắn, dùng Hỗn Độn Phủ của hắn chặt đứt Thế Giới Thụ, khiến các bậc thành đạo khác không thể giáng lâm.”
 
 [Xem chương tiếp theo](chapter-1526.md)

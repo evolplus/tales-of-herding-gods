@@ -86,7 +86,7 @@ Quốc sư Diên Khang thu kiếm, thở dốc không thôi. Thương thế củ
 
 Thôn trưởng tán thưởng, nói: "Không hổ là người số một dưới thần, Thánh nhân năm trăm năm mới gặp. Trước lúc lâm chung, cuối cùng ta cũng gặp được người có thể luận bàn. Lần này ta ra ngoài chính là vì gặp ngươi, ta muốn cho ngươi thấy đạo."
 
-Quốc sư Diên Khang nghiêm nghị nói: "Hôm nay tại Khánh Môn Quan, trăm vạn quân đang đóng giữ, rất nhiều người là học trò của đệ tử, nhưng đệ tử là học trò của thầy. Nơi này cũng có rất nhiều sĩ tử Thái Học Viện vì quốc nạn mà đến góp sức, dám xin thầy ở đây truyền đạo giải nghi cho chúng ta!"
+Quốc sư Diên Khang nghiêm nghị nói: "Hôm nay tại Khánh Môn Quan, trăm vạn quân đang đóng giữ, rất nhiều người là học trò của đệ tử, nhưng đệ tử là học trò của sư phụ. Nơi này cũng có rất nhiều sĩ tử Thái Học Viện vì quốc nạn mà đến góp sức, dám xin sư phụ ở đây truyền đạo giải nghi cho chúng ta!"
 
 Thôn trưởng cười nói: "Không dám, chỉ luận bàn mà thôi."
 

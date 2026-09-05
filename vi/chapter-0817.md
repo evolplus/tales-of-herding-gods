@@ -130,7 +130,7 @@ Bàn tay cầm đao rất vững. Chủ nhân của đao cũng giống thi thể
 
 Thiếu niên cụt một tay kia nhìn Triết Hoa Lê ở bên kia giá thần binh, thản nhiên nói:
 
-"Mỗi lần tuyển chọn đều phải chết mấy trăm, mấy nghìn người mới chọn ra được một đệ tử Linh Tú quân. Mà để có được chân truyền của Lạc sư, tuyệt đại đa số người đều chọn tự chặt một tay, như vậy mới có thể từ đao pháp của Lạc sư lĩnh ngộ lấy đao nhập đạo. Chỉ là thầy lại thiên vị ngươi, cảm thấy tư chất của ngươi tốt nhất, đưa ngươi xuống hạ giới theo Phược Nhật La học nghệ, kỳ vọng ngươi có thể đi ra một con đường khác."
+"Mỗi lần tuyển chọn đều phải chết mấy trăm, mấy nghìn người mới chọn ra được một đệ tử Linh Tú quân. Mà để có được chân truyền của Lạc sư, tuyệt đại đa số người đều chọn tự chặt một tay, như vậy mới có thể từ đao pháp của Lạc sư lĩnh ngộ lấy đao nhập đạo. Chỉ là sư phụ lại thiên vị ngươi, cảm thấy tư chất của ngươi tốt nhất, đưa ngươi xuống hạ giới theo Phược Nhật La học nghệ, kỳ vọng ngươi có thể đi ra một con đường khác."
 
 Yêu đao sau lưng Triết Hoa Lê nhẹ nhàng chấn động. Hắn trầm giọng:
 

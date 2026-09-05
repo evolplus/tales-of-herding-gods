@@ -8,7 +8,7 @@ Tần Mục thật thà nói: "Xin Vương Phật xử trí."
 
 Vị tăng nhân quét sân nhìn hắn không nói một lời. Một lúc lâu sau, ông cười nói: "Nếu ta nói toàn bộ đều trách ngươi, vậy là oan uổng ngươi. Ngươi tuy thật thà, nơm nớp lo sợ, nhưng trong lòng nhất định không phục. Những người ngươi giết đều là người Thiên Đình phái đến Phật giới. Sở dĩ Đế Thích Thiên Vương Phật gỡ Kim Liễu Diệp trên mi tâm ngươi, thật ra là muốn mượn tay ngươi thanh trừ thế lực Thiên Đình trong Phật giới. Hơn nữa, hắn thả Tần Phượng Thanh ra cũng sẽ nguy hại tính mạng ngươi. Ngươi rất thông minh, từ rất sớm đã nhìn ra điểm này, vì vậy mới dám đại khai sát giới, không chút kiêng dè. Bởi ngươi biết, cho dù ngươi làm ra chuyện này, ngươi cũng sẽ không bị phạt, Đế Thích Thiên Vương Phật nhất định sẽ giữ ngươi."
 
-Tần Mục cúi đầu nói: "Đệ tử không dám đổ vỏ. Đế Thích Thiên Vương Phật tuy có ý lợi dụng ta trừ bỏ thế lực Thiên Đình, nhưng những Phật tử kia quả thật chết trong tay ta. Hơn nữa, làm ô nhiễm thánh địa tối cao của Phật môn cũng quả thật có liên quan đến ta."
+Tần Mục cúi đầu nói: "Đệ tử không dám đổ vỏ. Đế Thích Thiên Vương Phật tuy có ý lợi dụng ta diệt trừ thế lực Thiên Đình, nhưng những Phật tử kia quả thật chết trong tay ta. Hơn nữa, làm ô nhiễm thánh địa tối cao của Phật môn cũng quả thật có liên quan đến ta."
 
 "Trước mặt ta, ngươi không cần che giấu suy nghĩ thật của mình, không cần thiết, cũng vô dụng."
 

@@ -42,7 +42,7 @@ Tần Mục và Lão mù lại quay về khách điếm kia. Ông chủ khách �
 
 Lão mù hưng phấn nói:
 
-"Mục nhi, hôm nay ông dẫn con tới sòng bạc mở mang tầm mắt. Hai thầy trò mình nhất định sẽ xuất sư đại thắng, kiếm đầy bát đầy chậu!"
+"Mục nhi, hôm nay ông dẫn con tới sòng bạc mở mang tầm mắt. Sư đồ chúng ta nhất định sẽ xuất sư đại thắng, kiếm đầy bát đầy chậu!"
 
 Tần Mục nhớ tới cảnh tối qua Lão mù bị người ta khiêng khỏi sòng bạc ném ra đường, lắc đầu nói:
 

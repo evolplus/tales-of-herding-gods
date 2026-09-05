@@ -56,7 +56,7 @@ Tần Mục nhất định sẽ ra tay!
 
 "Nếu Hỗn Độn ra tay, nhất định sẽ tới liên hợp với ta, liên hợp công tử Vô Cực, ra tay với Ngọc Kinh Thành. Bởi vì uy hiếp của Ngọc Kinh Thành mạnh nhất!"
 
-Ánh mắt Vô Nhai lão nhân lóe lên: "Liên kết yếu để chế ngự mạnh, đó mới là đạo dùng binh. Sau khi trừ bỏ Ngọc Kinh Thành, hắn mới còn sức đối phó ta và công tử Vô Cực. Khi ấy, hắn cũng cần sức mạnh của ta để tạo áp lực cho Diên Khang, buộc biến pháp Diên Khang tiếp tục. Mà hắn tới cầu ta liên thủ với hắn, vừa hay để ta hét giá trên trời! Ta khôi phục tới thời kỳ đỉnh phong sẽ là chuyện trong tầm tay!"
+Ánh mắt Vô Nhai lão nhân lóe lên: "Liên kết yếu để chế ngự mạnh, đó mới là đạo dùng binh. Sau khi diệt trừ Ngọc Kinh Thành, hắn mới còn sức đối phó ta và công tử Vô Cực. Khi ấy, hắn cũng cần sức mạnh của ta để tạo áp lực cho Diên Khang, buộc biến pháp Diên Khang tiếp tục. Mà hắn tới cầu ta liên thủ với hắn, vừa hay để ta hét giá trên trời! Ta khôi phục tới thời kỳ đỉnh phong sẽ là chuyện trong tầm tay!"
 
 Lão vừa nghĩ đến đây, đột nhiên có bậc thành đạo tới báo: "Độ Thế Kim Thuyền của Thất công tử Hỗn Độn đã tới, đã tiến vào Hỗn Độn Trường Hà tầng thứ nhất!"
 
@@ -106,11 +106,11 @@ Tần Mục hơi ngẩn ra. Hắn không ngờ thật sự có một tờ giấy
 
 Tần Mục giơ tay thu giấy nợ, gật đầu, thản nhiên nói: "Vậy thì ta sẽ để lại cho đạo huynh một đường sinh cơ, không mài diệt ngươi hoàn toàn."
 
-Vô Nhai lão nhân cười ha hả. Sau lưng lão, vô số cành Thế Giới Thụ đột nhiên hóa thành vô số cánh tay, hư ảnh đủ loại Đạo quả treo trên Thế Giới Thụ: "Hỗn Độn, lựa chọn tốt nhất của ngươi hẳn là liên thủ với ta, cùng đối kháng Di La Cung! Sau này ngươi lại mượn sức mạnh của ta để tạo áp lực cho Diên Khang, buộc Diên Khang phấn đấu vươn lên, chứ không phải tới trừ bỏ ta! Diên Khang đã biến thành một nơi không nghĩ tới tiến thủ rồi đúng không?"
+Vô Nhai lão nhân cười ha hả. Sau lưng lão, vô số cành Thế Giới Thụ đột nhiên hóa thành vô số cánh tay, hư ảnh đủ loại Đạo quả treo trên Thế Giới Thụ: "Hỗn Độn, lựa chọn tốt nhất của ngươi hẳn là liên thủ với ta, cùng đối kháng Di La Cung! Sau này ngươi lại mượn sức mạnh của ta để tạo áp lực cho Diên Khang, buộc Diên Khang phấn đấu vươn lên, chứ không phải tới trừ khử ta! Diên Khang đã biến thành một nơi không nghĩ tới tiến thủ rồi đúng không?"
 
 "Vì vậy, đây là nơi đặt một đường sinh cơ của đạo huynh."
 
-Tần Mục nghĩ một chút, mỉm cười nói: "Ta hiểu rồi. Sau khi trở thành Thất công tử, sở dĩ ta để lại cho ngươi một tờ giấy nợ, đại khái là để nhắc ta đừng trừ bỏ ngươi triệt để. Ta nhất định phải chừa cho ngươi một mạng. Chỉ có ngươi mới có thể khiến Diên Khang bước ra khỏi Vô Ưu Hương."
+Tần Mục nghĩ một chút, mỉm cười nói: "Ta hiểu rồi. Sau khi trở thành Thất công tử, sở dĩ ta để lại cho ngươi một tờ giấy nợ, đại khái là để nhắc ta đừng trừ khử ngươi triệt để. Ta nhất định phải chừa cho ngươi một mạng. Chỉ có ngươi mới có thể khiến Diên Khang bước ra khỏi Vô Ưu Hương."
 
 Nghĩ thông chuyện này, hắn không khỏi cười lớn.
 

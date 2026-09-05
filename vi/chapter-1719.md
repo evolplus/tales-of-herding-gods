@@ -8,7 +8,7 @@ Muốn phá giải biến hóa của chiêu thần thông này đối với hắ
 
 “Lão Tam, ngươi gọi chiêu này của ta là thần thông của kẻ báng đạo?”
 
-Hắn cưỡng ép phong bế vết thương, cười như không cười: “Chiêu thần thông này của ta không nằm trong đạo pháp thần thông của Di La Cung, vậy liền là thần thông của kẻ báng đạo? Thầy không ở đây, mấy người các ngươi càng ngày càng không có khí phách, bụng dạ hẹp hòi. Không dung được người thì cũng thôi, ngay cả đạo pháp thần thông mới cũng không dung được, thật khiến người ta thất vọng. Khó trách Di La Cung bây giờ chướng khí mù mịt như vậy!”
+Hắn cưỡng ép phong bế vết thương, cười như không cười: “Chiêu thần thông này của ta không nằm trong đạo pháp thần thông của Di La Cung, vậy liền là thần thông của kẻ báng đạo? Sư phụ không ở đây, mấy người các ngươi càng ngày càng không có khí phách, bụng dạ hẹp hòi. Không dung được người thì cũng thôi, ngay cả đạo pháp thần thông mới cũng không dung được, thật khiến người ta thất vọng. Khó trách Di La Cung bây giờ chướng khí mù mịt như vậy!”
 
 Tam công tử Lăng Tiêu mặt mũi âm trầm, lạnh lùng nói: “Lão Thất, ngươi không biết lai lịch của kẻ báng đạo Thiên Đô, học thần thông của bọn họ cũng còn có thể thông cảm. Chiến tranh giữa Di La Cung chúng ta và Thiên Đô đã kéo dài mười kỷ vũ trụ. Thiên Đô không phải chính đạo, mà là khinh nhờn Đại Đạo đất trời, ỷ vào vũ lực mà gây họa loạn Đại Đạo đất trời. Bây giờ ngươi cũng đi lên con đường rẽ này!”
 
@@ -16,7 +16,7 @@ Hắn chắp hai tay sau lưng, thản nhiên nói: “Tranh chấp giữa ngư�
 
 Tần Mục cười ha hả: “Lão Tam, bây giờ là ngươi và Lão Tứ liên thủ, định diệt đạo thống của ta, còn không cho ta dùng thần thông mạnh nhất của ta? Quả thật là vụ mua bán tốt!”
 
-Tam công tử sa sầm mặt. Sau lưng hắn dần dần hiện ra hư ảnh một gốc Đạo Thụ, hắn trầm giọng nói: “Tâm cảnh Lão Tứ có điểm yếu, ngươi nắm lấy điểm yếu của hắn mới có thể đắc thủ, khiến hắn buộc phải bại lui. Nhưng ta không có điểm yếu như thế. Ta vào Di La Cung sớm hơn, thành đạo cũng sớm hơn. Năm xưa khi thầy trừ bỏ Thiên Đô, ta cũng có mặt. Ngươi thi triển thần thông của kẻ báng đạo trước mặt ta, ta sẽ dùng tuyệt học của thầy, giống như thầy giết Chủ nhân Thiên Đô năm xưa, giết ngươi!”
+Tam công tử sa sầm mặt. Sau lưng hắn dần dần hiện ra hư ảnh một gốc Đạo Thụ, hắn trầm giọng nói: “Tâm cảnh Lão Tứ có điểm yếu, ngươi nắm lấy điểm yếu của hắn mới có thể đắc thủ, khiến hắn buộc phải bại lui. Nhưng ta không có điểm yếu như thế. Ta vào Di La Cung sớm hơn, thành đạo cũng sớm hơn. Năm xưa khi sư phụ trừ khử Thiên Đô, ta cũng có mặt. Ngươi thi triển thần thông của kẻ báng đạo trước mặt ta, ta sẽ dùng tuyệt học của sư phụ, giống như sư phụ giết Chủ nhân Thiên Đô năm xưa, giết ngươi!”
 
 Đạo Thụ của hắn càng lúc càng rõ ràng, Đạo Quả trên Đạo Thụ cũng dần hiện ra. Mỗi một quả đều ẩn chứa đạo khác nhau.
 
@@ -120,7 +120,7 @@ Tam công tử ngỡ ngàng. Chiêu này của hắn là nhằm vào Thiên Đô
 
 “Ngươi trúng kế rồi, Lão Tam.”
 
-Tần Mục mặt đầy máu, trợn to mắt nhìn hắn. Bàn tay xương khô vẫn úp lên mặt Tam công tử, lộ ra nụ cười sảng khoái: “Ngươi phân tán nhiều sức mạnh như thế để trấn áp ta, sức mạnh bản thân không đủ để một đòn trí mạng. Ta quả thật đánh không lại ngươi, nhưng thầy từng vì đối phó Nhị tỷ mà khai sáng một loại thần thông. Ngươi hẳn không đối phó nổi chứ?”
+Tần Mục mặt đầy máu, trợn to mắt nhìn hắn. Bàn tay xương khô vẫn úp lên mặt Tam công tử, lộ ra nụ cười sảng khoái: “Ngươi phân tán nhiều sức mạnh như thế để trấn áp ta, sức mạnh bản thân không đủ để một đòn trí mạng. Ta quả thật đánh không lại ngươi, nhưng sư phụ từng vì đối phó Nhị tỷ mà khai sáng một loại thần thông. Ngươi hẳn không đối phó nổi chứ?”
 
 Vụt!
 

@@ -132,7 +132,7 @@ Trong lòng Hỏa Thiên Tôn chấn động dữ dội: "Tần Nghiệp điên 
 
 Hiện giờ hắn hơi do dự chần chừ, không biết mình nên tới đầu nguồn Dũng Giang, hay tới Cầu Hư Không.
 
-Khai Hoàng và Tần Mục đều là nhân tộc. Hai người này nhiều lần đối đầu Thiên Đình, đối đầu bán thần, khiến hắn rất khó xử trong Thiên Đình, bởi vậy cả hai hắn đều muốn trừ bỏ.
+Khai Hoàng và Tần Mục đều là nhân tộc. Hai người này nhiều lần đối đầu Thiên Đình, đối đầu bán thần, khiến hắn rất khó xử trong Thiên Đình, bởi vậy cả hai hắn đều muốn trừ khử.
 
 Nhưng hiện tại hai người đồng thời có động tác lớn, khiến hắn khó quyết định nên đi giết ai trước.
 

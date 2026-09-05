@@ -226,7 +226,7 @@ Tần Mục phất tay, đứng trên trán Long Kỳ Lân, đi về phía thầ
 
 Trước thần điện, Võ Cực Thần Tôn cùng một đám thần nhân và tuấn tú trẻ tuổi xếp hàng nghênh đón, cười ha hả nói:
 
-"Diên Khang Tần Bá Thể, Long Hán Mục Thiên Tôn, biến pháp tam kiệt, cho dù là thầy ta gặp cũng phải cung kính hành lễ!"
+"Diên Khang Tần Bá Thể, Long Hán Mục Thiên Tôn, biến pháp tam kiệt, cho dù là sư phụ ta gặp cũng phải cung kính hành lễ!"
 
 Hắn khom người hành lễ với Tần Mục, liếc nhìn các thần nhân Thiên Đình hai bên, không khỏi nổi giận đùng đùng, quát:
 

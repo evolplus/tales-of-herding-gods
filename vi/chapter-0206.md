@@ -72,7 +72,7 @@ Cố Li Noãn trầm ngâm, nói:
 
 Diên Phong Đế cười lạnh:
 
-"Xem ra trong chúng ta có người muốn cái mông của trẫm nhích đi, nhường chỗ cho hắn ngồi. Hôm đó tới bàn việc, biết chuyện này, ngoài ngươi và trẫm ra, đều là đại quan nhất phẩm, mấy vị thầy của Thái tử, còn có Tư đồ, Tư không, Quốc công. Ngươi thấy sẽ là ai trong bọn họ?"
+"Xem ra trong chúng ta có người muốn cái mông của trẫm nhích đi, nhường chỗ cho hắn ngồi. Hôm đó tới bàn việc, biết chuyện này, ngoài ngươi và trẫm ra, đều là đại quan nhất phẩm, mấy vị sư trưởng của Thái tử, còn có Tư đồ, Tư không, Quốc công. Ngươi thấy sẽ là ai trong bọn họ?"
 
 Trán Cố Li Noãn chảy ra từng hạt mồ hôi to bằng hạt đậu. Ông ta nghiến răng, im lặng không nói.
 
@@ -94,7 +94,7 @@ Diên Phong Đế tức quá hóa cười, chỉ vào mũi ông ta:
 
 Cố Li Noãn nghiến răng, đột nhiên ngẩng đầu:
 
-"Mấy vị thầy của Thái tử rất đáng nghi!"
+"Mấy vị sư trưởng của Thái tử rất đáng nghi!"
 
 "Ngươi nói gì?"
 

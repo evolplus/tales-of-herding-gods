@@ -24,7 +24,7 @@ Sơ Tổ Nhân Hoàng nói với Xích Khê: "Đạo huynh, đôi bên chúng ta
 
 Xích Khê nhìn Tần Mục, nhớ tới đủ loại thủ đoạn Tần Mục hạ độc mình, đột nhiên nói: "Không liên thủ nữa. Tiểu tử này quá âm hiểm, liên thủ với hắn chắc chắn chịu thiệt."
 
-"Thầy nói không sai!"
+"Sư phụ nói không sai!"
 
 Ban Công Thố hiện thân ở nơi xa, cao giọng nói: "Liên thủ với hắn, bị bán đi còn phải thay hắn đếm tiền. Ta có trải nghiệm sâu sắc!"
 
@@ -114,7 +114,7 @@ Tần Mục do dự một chút, hạ giọng nói: "Nghèo."
 
 Diên Phong Đế bừng tỉnh, nói: "Cuộc kết minh này không có thành ý."
 
-Xích Khê nhíu mày, nghiến răng, đang định lấy Xích Minh Trấn Thiên Lâu ra làm cống phẩm dâng lên, Ban Công Thố vội thấp giọng nói: "Thầy đừng trúng kế khích tướng của họ. Hoàng đế này và tên họ Tần kia cùng một giuộc, trong bụng toàn nước xấu! Thầy chỉ cần chiều theo sở thích của ông ta là được."
+Xích Khê nhíu mày, nghiến răng, đang định lấy Xích Minh Trấn Thiên Lâu ra làm cống phẩm dâng lên, Ban Công Thố vội thấp giọng nói: "Sư phụ đừng trúng kế khích tướng của họ. Hoàng đế này và tên họ Tần kia cùng một giuộc, trong bụng toàn nước xấu! Sư phụ chỉ cần chiều theo sở thích của ông ta là được."
 
 Xích Khê nhịn xuống, lấy từ Xích Minh Trấn Thiên Lâu ra một miếng ngọc bội hình rồng, nói: "Chút lễ mỏng, dâng lên bệ hạ!"
 

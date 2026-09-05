@@ -84,7 +84,7 @@ Giọng Diên Phong Đế khàn đặc, ông rít lên: "Ý khanh là..."
 
 "Diệt Thượng Thương."
 
-Quốc sư Diên Khang thản nhiên nói: "Chúng ta cần diệt chư thần của Thượng Thương, không cho họ giáng tai họa. Nếu thần đoán không sai, thần ma phụ trách giáng tai họa cho thế giới này chính là Thượng Thương. Trừ bỏ Thượng Thương, tượng đá khắp cả nước sẽ không thể hóa thành thần ma, lê dân bách tính cũng tránh khỏi một kiếp chết. Chúng ta cần tiên hạ thủ vi cường, diệt sạch tất cả thần chỉ trong Thượng Thương!"
+Quốc sư Diên Khang thản nhiên nói: "Chúng ta cần diệt chư thần của Thượng Thương, không cho họ giáng tai họa. Nếu thần đoán không sai, thần ma phụ trách giáng tai họa cho thế giới này chính là Thượng Thương. Diệt trừ Thượng Thương, tượng đá khắp cả nước sẽ không thể hóa thành thần ma, lê dân bách tính cũng tránh khỏi một kiếp chết. Chúng ta cần tiên hạ thủ vi cường, diệt sạch tất cả thần chỉ trong Thượng Thương!"
 
 Diên Phong Đế chỉ cảm thấy đầu đau như muốn nứt. Ông chống tay lên trán, nghiến răng nói: "Thượng Thương ở Tây Thổ, bên trong không biết có bao nhiêu vị thần ma. Chúng ta lấy đâu ra thực lực để diệt Thượng Thương? Nếu có thể chờ thêm mấy năm, nhiều cao thủ bù lại Thần Kiều, tu thành Thần cảnh..."
 

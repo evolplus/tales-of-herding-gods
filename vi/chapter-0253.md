@@ -80,7 +80,7 @@ Tiếng chuông ngân nga. Tần Mục nhìn về phía tây, nơi đó là Đ�
 
 "Đại Lôi Âm Tự có hơn bốn nghìn viện. Thiên Long viện, Tâm Thiền viện thuộc loại chùa viện tương đối cao đẳng. Mỗi viện phụ trách những thứ khác nhau, tham ngộ cũng phần nhiều khác nhau. Nếu là đệ tử xuất chúng, sẽ do lão hòa thượng dạy dỗ, không cần đi tới đi lui giữa các viện."
 
-Mã gia nói: "Ví dụ Minh Tâm hòa thượng kia, chính là do Kính Minh hòa thượng chuyên môn dạy dỗ, được thầy dẫn tu hành. Về cơ bản, những người như vậy đều là nhân vật xuất chúng trong tăng nhân. Còn người có tư chất, ngộ tính và Phật tính cao nhất thì do Như Lai đích thân dạy dỗ."
+Mã gia nói: "Ví dụ Minh Tâm hòa thượng kia, chính là do Kính Minh hòa thượng chuyên môn dạy dỗ, được sư phụ dẫn tu hành. Về cơ bản, những người như vậy đều là nhân vật xuất chúng trong tăng nhân. Còn người có tư chất, ngộ tính và Phật tính cao nhất thì do Như Lai đích thân dạy dỗ."
 
 Tần Mục nhìn xuống phía dưới, chỉ thấy từng đỉnh núi như cánh hoa sen, vây quanh chủ phong Kim Đỉnh ở giữa. Nghìn chùa vạn tự, hương hỏa cực thịnh.
 

@@ -74,7 +74,7 @@ Khi Long Kỳ Lân truyền thụ nghịch hướng triệu hoán thần thông 
 
 “Xin hai vị đừng để lộ thân phận của ta!”
 
-Tường Thiên Phi càng bay càng cao. Tế đàn nghịch hướng triệu hoán khởi động, kéo thân hình bà ta về mặt trước Tổ Đình. Tiếng cười yêu kiều từ trên trời truyền đến: “Bởi vì nếu các ngươi để lộ thân phận của ta, ta cũng sẽ phơi bày thân phận của các ngươi! Hạo Thiên Tôn nhất định rất vui lòng trừ khử vị ca ca cùng cha khác mẹ của hắn. Cổ thần cũng nhất định vui lòng trừ bỏ con cá lọt lưới trong đám Tạo Vật Chủ! Mẹ con các ngươi cứ từ từ trò chuyện đi!”
+Tường Thiên Phi càng bay càng cao. Tế đàn nghịch hướng triệu hoán khởi động, kéo thân hình bà ta về mặt trước Tổ Đình. Tiếng cười yêu kiều từ trên trời truyền đến: “Bởi vì nếu các ngươi để lộ thân phận của ta, ta cũng sẽ phơi bày thân phận của các ngươi! Hạo Thiên Tôn nhất định rất vui lòng trừ khử vị ca ca cùng cha khác mẹ của hắn. Cổ thần cũng nhất định vui lòng trừ khử con cá lọt lưới trong đám Tạo Vật Chủ! Mẹ con các ngươi cứ từ từ trò chuyện đi!”
 
 Sắc mặt Cung Thiên Tôn và Lang Hiên Thần Hoàng khẽ biến. Nhưng lời Tường Thiên Phi nói đối với bọn họ đã là chuyện thường như cơm bữa. Trong Thập Thiên Tôn, ai mà không có chút bí mật không thể cho người ngoài biết?
 

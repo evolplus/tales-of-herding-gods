@@ -48,7 +48,7 @@ Tần Mục vô cùng chân thành nói: "Cho ta một lý do, nói không chừ
 
 Triết Hoa Lê cũng không biết vì sao Tề Cửu Nghi nhất định phải tới Diên Khang, nghe vậy nhìn sang Tề Cửu Nghi.
 
-Sắc mặt Tề Cửu Nghi lúc sáng lúc tối. Hắn đột nhiên cắn chặt răng, trầm giọng nói: "Tần giáo chủ, tuy ta bái Hắc Đế Minh Đô làm thầy, nhưng trước nay ta không vừa mắt cách hành sự và thủ đoạn của Minh Đô. Dù sao ta còn biết có việc nên làm, có việc không nên làm, còn bọn họ thì không việc gì không làm! Họ hành sự quá tàn nhẫn, quá độc ác. Nếu chúng ta đã mượn đường giữ mạng, vậy ta cũng không thể không nói hết những chuyện họ sắp làm ra."
+Sắc mặt Tề Cửu Nghi lúc sáng lúc tối. Hắn đột nhiên cắn chặt răng, trầm giọng nói: "Tần giáo chủ, tuy ta bái Hắc Đế Minh Đô làm sư phụ, nhưng trước nay ta không vừa mắt cách hành sự và thủ đoạn của Minh Đô. Dù sao ta còn biết có việc nên làm, có việc không nên làm, còn bọn họ thì không việc gì không làm! Họ hành sự quá tàn nhẫn, quá độc ác. Nếu chúng ta đã mượn đường giữ mạng, vậy ta cũng không thể không nói hết những chuyện họ sắp làm ra."
 
 Tần Mục kiên nhẫn lắng nghe. Những người khác thì bận rộn tiếp tục gia cố cầu Linh Năng Đối Thiên. Bàng Ngọc Chân Thần dẫn đầu, chỉ huy mọi người dùng pháp lực khống chế tần suất chấn động của cầu Đối Thiên. Mấy năm qua Bàng Ngọc Chân Thần cũng học không ít pháp môn thuật toán, nhưng tạo nghệ không cao lắm, chỉ có thể dựa vào pháp lực sâu dày vô cùng để ổn định cầu Đối Thiên. Những việc như tu bổ phù văn thì ông bất lực.
 

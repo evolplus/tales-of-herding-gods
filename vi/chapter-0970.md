@@ -110,7 +110,7 @@ Tần Mục ngạc nhiên, hơi mờ mịt, không hiểu vì sao những Tạo 
 
 Hắn đầy mặt mờ mịt. Tạo Vật Chủ Tu Trọng nhìn vẻ mặt hắn, cười nói: "Tên ngốc Thúc Quân kia không nói với ngươi sao?"
 
-Tần Mục lắc đầu: "Thầy Thúc Quân chỉ dạy ta công pháp tu luyện Tam Viên Thượng Thức, không dạy chuyện khác."
+Tần Mục lắc đầu: "Sư phụ Thúc Quân chỉ dạy ta công pháp tu luyện Tam Viên Thượng Thức, không dạy chuyện khác."
 
 "Tên ngốc này miệng lại kín."
 

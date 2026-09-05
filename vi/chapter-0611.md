@@ -1,4 +1,4 @@
-# Chương 611: Thầy giỏi trò hay
+# Chương 611: Lương sư và cao đồ
 
 Tiều Phu Thánh Nhân gõ mạnh một cái lên đầu hắn, tức giận nói: "Khí độ đâu rồi? Ta sao có thể ra tay với đám tiểu bối như thế? Nếu ta ra tay, người khác cũng có thể tới giết ngươi. Rồi đám lão bối các ngươi giết đệ tử của ta, ta giết đệ tử của ngươi, chẳng mấy chốc lớp trẻ sẽ chết sạch. Quy củ không thể phá."
 

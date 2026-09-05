@@ -114,7 +114,7 @@ Trong lòng Tần Mục kinh hãi: "Thiên Công Huyền Đô quả thật nguy 
 
 Vừa rồi hắn thi triển hai chiêu thiên đạo thần thông, đều bị An Khinh Vũ dễ dàng phá giải. Phải biết thiên đạo thần thông của hắn không chỉ bao gồm thiên đạo phù văn do kinh điển thuật số tính toán ra, mà còn bao gồm phù văn do Thái Vi Toán Kinh tính ra.
 
-Thế nhưng Thiên Đình rõ ràng vì trừ bỏ Thiên Công mà chuyên môn nhằm vào thiên đạo, khai mở ra đủ loại thần thông!
+Thế nhưng Thiên Đình rõ ràng vì trừ khử Thiên Công mà chuyên môn nhằm vào thiên đạo, khai mở ra đủ loại thần thông!
 
 "Thiên Đình hẳn chưa phá hết bốn mươi chín thiên đạo, nếu không hiện giờ Thiên Công đã chết rồi. Nhưng ngày đó chắc cũng không còn xa." Hắn thầm nghĩ.
 

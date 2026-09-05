@@ -64,7 +64,7 @@ Sắc mặt Tần Mục đại biến, thất thanh:
 
 Đại Phạn Thiên Vương Phật thở dài:
 
-"Địa Mẫu Nguyên Quân của Nguyên giới chết mà chưa cứng, buộc phải trừ bỏ. Ngoài Nguyên giới, còn có Tứ Đế. Đông Thiên, Tây Thiên, Nam Thiên, Bắc Thiên nơi bọn họ ở chỉ e cũng đều có một vị Ngự Thiên Tôn giáng lâm. Diên Khang ở Nguyên giới, vốn chỉ yên phận một góc nhỏ, hiện nay nguy như trứng chồng. Có diệt Diên Khang hay không đối với món vũ khí này chỉ là chuyện thổi bụi."
+"Địa Mẫu Nguyên Quân của Nguyên giới chết mà chưa cứng, buộc phải trừ khử. Ngoài Nguyên giới, còn có Tứ Đế. Đông Thiên, Tây Thiên, Nam Thiên, Bắc Thiên nơi bọn họ ở chỉ e cũng đều có một vị Ngự Thiên Tôn giáng lâm. Diên Khang ở Nguyên giới, vốn chỉ yên phận một góc nhỏ, hiện nay nguy như trứng chồng. Có diệt Diên Khang hay không đối với món vũ khí này chỉ là chuyện thổi bụi."
 
 Tay chân Tần Mục lạnh buốt, giọng khàn đi:
 

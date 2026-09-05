@@ -126,9 +126,9 @@ Tần Mục thở phào, da gà sau gáy biến mất. Hắn dao động thần 
 
 Tạo Vật Chủ Tu Trọng dao động thần thức, khen: "Thần thức của ngươi rất không yếu, chưa tới hai tuổi đã có thành tựu cỡ này, mạnh hơn cả tu vi của người trưởng thành. Sư phụ ngươi là ai?"
 
-"Thầy ta là Thúc Quân." Tần Mục thật thà nói.
+"Sư phụ ta là Thúc Quân." Tần Mục thật thà nói.
 
-Trong Thái Sơ Nguyên Thạch ở con mắt thứ ba của hắn, cái đầu lớn của Thúc Quân đắc ý dào dạt, hai con mắt nhảy qua nhảy lại trong hốc mắt, cười hề hề: "Tiểu tử thối, gọi ta là thầy, chiếm tiện nghi của ta, nhưng lão tử không trách ngươi. Hề hề, ngươi báo tên ta ra, tên Tu Trọng này chỉ sợ sẽ sợ đến vãi cả hồn, quỳ lạy liên tục! Lão tử chính là Tam Vương thời Thái Cổ!"
+Trong Thái Sơ Nguyên Thạch ở con mắt thứ ba của hắn, cái đầu lớn của Thúc Quân đắc ý dào dạt, hai con mắt nhảy qua nhảy lại trong hốc mắt, cười hề hề: "Tiểu tử thối, gọi ta là sư phụ, chiếm tiện nghi của ta, nhưng lão tử không trách ngươi. Hề hề, ngươi báo tên ta ra, tên Tu Trọng này chỉ sợ sẽ sợ đến vãi cả hồn, quỳ lạy liên tục! Lão tử chính là Tam Vương thời Thái Cổ!"
 
 "Thúc Quân?"
 

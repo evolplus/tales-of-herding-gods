@@ -126,11 +126,11 @@ Thanh Đế không vội xuất chiến, mà trước tiên hạ trại, từng 
 
 Quốc sư Diên Khang Giang Bạch Khuê nhìn khí tượng đại quân thần ma của Đông Thiên Thanh Đế từ xa, thản nhiên nói: “Không hổ là cây ngộ đạo của Ngự Thiên Tôn. Nhưng đáng tiếc là trí tuệ của Thanh Đế không đủ. Hạo Thiên Đế cho hắn ba mươi lộ quân hầu, ta không thắng được hắn. Cho hắn sáu mươi lộ quân hầu, hắn khống chế không nổi, hắn thắng không được ta! Tài không xứng vị, đó là đạo bại vong của hắn!”
 
-Giang Bạch Khuê phất lệnh kỳ, dẫn binh ra khỏi thành: “Bây giờ xem là thầy lập công trước, hay ta lập công trước!”
+Giang Bạch Khuê phất lệnh kỳ, dẫn binh ra khỏi thành: “Bây giờ xem là sư phụ lập công trước, hay ta lập công trước!”
 
 Đúng lúc này, đột nhiên có một thần nhân lao ra từ cổng truyền tống Giang Lăng, thần sắc kích động vô cùng, cao giọng gọi: “Thắng rồi! Vô Ưu Hương đại phá Thiên Hà thủy sư, đại thắng!”
 
-Khóe mắt Giang Bạch Khuê giật giật, thấp giọng nói: “Thầy, rốt cuộc vẫn cao tay hơn một bậc... Xuất binh!”
+Khóe mắt Giang Bạch Khuê giật giật, thấp giọng nói: “Sư phụ, rốt cuộc vẫn cao tay hơn một bậc... Xuất binh!”
 
 Đại quân thần ma Diên Khang ở Giang Lăng xông ra Đông Hải. Các quân chia thành đủ loại trận thế, phức tạp vô cùng, biến hóa vô tận. Đại quân Diên Khang vừa xung phong vừa biến đổi trận thế.
 

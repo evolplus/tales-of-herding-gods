@@ -18,11 +18,11 @@ Quốc sư phu nhân cảm tạ, chỉ hơi kỳ lạ, nói:
 
 Tần Mục cười nói:
 
-"Vậy phải đợi một người nào đó khai sáng ra mới biết được. Ta hy vọng đó là sự lật đổ Thần Tàng của ta. Vân Gian có thể mở được hai Thần Tàng này trong mấy năm đã là rất giỏi rồi, cứ để nó luyện trước. Đợi sang năm ta về, sẽ tìm cho nó một vị thầy ngốc nghếch."
+"Vậy phải đợi một người nào đó khai sáng ra mới biết được. Ta hy vọng đó là sự lật đổ Thần Tàng của ta. Vân Gian có thể mở được hai Thần Tàng này trong mấy năm đã là rất giỏi rồi, cứ để nó luyện trước. Đợi sang năm ta về, sẽ tìm cho nó một vị sư phụ ngốc nghếch."
 
 Quốc sư phu nhân dở khóc dở cười:
 
-"Thầy ngốc nghếch? Không biết giáo chủ nói là vị nào..."
+"Sư phụ ngốc nghếch? Không biết giáo chủ nói là vị nào..."
 
 Tần Mục đi tới ngoài kinh thành. Ngoài thành đã bắt đầu xây thành mới, cho dân chúng có nơi trú ngụ. Một thành cách nhau nghìn dặm, còn rất đơn sơ, chỉ dùng để ở.
 

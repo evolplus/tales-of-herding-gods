@@ -24,9 +24,9 @@ Tần Mục cười ha hả, nhìn quanh bốn phía, nói: "Nhị tỷ khi nào
 
 Công tử Vô Cực kinh ngạc nói: "Vì sao lão Thất lại nói vậy?"
 
-"Tỷ thay thế Hồng Mông phù văn bằng phù văn Quy Khư, từng chút một gặm nhấm phong ấn kết ấn dây đỏ của thầy. Trước kia tuy ta chưa chú ý, nhưng lần này tới đây, biết tỷ sẽ gây chuyện, nên cẩn thận quan sát, vẫn nhìn ra chút manh mối."
+"Tỷ thay thế Hồng Mông phù văn bằng phù văn Quy Khư, từng chút một gặm nhấm phong ấn kết ấn dây đỏ của sư phụ. Trước kia tuy ta chưa chú ý, nhưng lần này tới đây, biết tỷ sẽ gây chuyện, nên cẩn thận quan sát, vẫn nhìn ra chút manh mối."
 
-Tần Mục ngẩng đầu nhìn xa về phía năm sợi xích buông xuống từ đại uyên kỷ thứ mười sáu. Đó chính là dây xích do thần thông phong ấn kết ấn dây đỏ hóa thành. Hắn nói: "Phong ấn kết ấn dây đỏ, thầy xếp thứ nhất, một người khác xếp thứ hai, ta xếp thứ ba. Tay chân tỷ động vào đương nhiên không giấu được ta. Tỷ phá giải phong ấn kết ấn dây đỏ hẳn đã gần ba nghìn năm rồi nhỉ? Năm xưa Khai Thiên chúng mượn đường từ chỗ tỷ, bọn họ và tỷ có đạt thành thỏa thuận nào không?"
+Tần Mục ngẩng đầu nhìn xa về phía năm sợi xích buông xuống từ đại uyên kỷ thứ mười sáu. Đó chính là dây xích do thần thông phong ấn kết ấn dây đỏ hóa thành. Hắn nói: "Phong ấn kết ấn dây đỏ, sư phụ xếp thứ nhất, một người khác xếp thứ hai, ta xếp thứ ba. Tay chân tỷ động vào đương nhiên không giấu được ta. Tỷ phá giải phong ấn kết ấn dây đỏ hẳn đã gần ba nghìn năm rồi nhỉ? Năm xưa Khai Thiên chúng mượn đường từ chỗ tỷ, bọn họ và tỷ có đạt thành thỏa thuận nào không?"
 
 "Ngươi cho rằng Khai Thiên chúng giúp ta tháo một phù văn trong phong ấn kết ấn dây đỏ?"
 
@@ -48,7 +48,7 @@ Chỉ cần không phải Lăng Thiên Tôn, Tần Mục có thể yên tâm.
 
 "Đương nhiên, Khai Thiên chúng cũng giúp ta."
 
-Công tử Vô Cực chớp mắt, có vẻ hơi tinh quái: "Thực lực của bọn họ rất mạnh. Nếu không mượn sức mạnh của bọn họ thì chẳng phải đáng tiếc sao? Đầu óc của đám Khai Thiên chúng này không quá tốt, nhưng thực lực cũng còn tạm. Khi bọn họ công kích ta, ta mượn thần thông của bọn họ để mài mòn phong ấn kết ấn dây đỏ của thầy. Sau đó người mặt cười kia phát hiện manh mối, biết không làm gì được ta, bèn lập một thỏa thuận với ta."
+Công tử Vô Cực chớp mắt, có vẻ hơi tinh quái: "Thực lực của bọn họ rất mạnh. Nếu không mượn sức mạnh của bọn họ thì chẳng phải đáng tiếc sao? Đầu óc của đám Khai Thiên chúng này không quá tốt, nhưng thực lực cũng còn tạm. Khi bọn họ công kích ta, ta mượn thần thông của bọn họ để mài mòn phong ấn kết ấn dây đỏ của sư phụ. Sau đó người mặt cười kia phát hiện manh mối, biết không làm gì được ta, bèn lập một thỏa thuận với ta."
 
 Tần Mục ồ một tiếng, hào hứng hỏi: "Thỏa thuận gì?"
 
@@ -152,7 +152,7 @@ Công tử Vô Cực tức tới nứt mắt, điên cuồng công kích hắn, 
 
 Tần Mục nhanh chóng tu sửa phong ấn kết ấn dây đỏ, khôi phục từng phù văn bị công tử Vô Cực phá hoại.
 
-Đột nhiên, công tử Vô Cực dừng tay, không công kích hắn nữa, lạnh lùng nói: "Lão Thất, ngươi làm vậy có ích sao? Dù sao ngươi cũng không phải thầy, ngươi chỉ kéo dài thời gian thoát khốn của ta mà thôi, cuối cùng vẫn là phí công vô ích!"
+Đột nhiên, công tử Vô Cực dừng tay, không công kích hắn nữa, lạnh lùng nói: "Lão Thất, ngươi làm vậy có ích sao? Dù sao ngươi cũng không phải sư phụ, ngươi chỉ kéo dài thời gian thoát khốn của ta mà thôi, cuối cùng vẫn là phí công vô ích!"
 
 Tần Mục sửa xong những Hồng Mông phù văn bị phá hoại, thở phào một hơi, duỗi lưng đi ra ngoài Quy Khư, thản nhiên nói: "Đợi tỷ phá giải phù văn của ta một lượt, ta lại tới sửa một lần là được."
 

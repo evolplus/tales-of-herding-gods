@@ -124,11 +124,11 @@ Trong Thái Thượng Điện, lúc này Đại công tử Thái Thượng cũng
 
 Thái Thượng Điện lúc này không còn nguy nga lộng lẫy như xưa, mà là một căn lều tranh. Cửa lều mở, Thái Thượng trong lều nhìn cảnh này từ xa, không khỏi lắc đầu, thấp giọng nói: "Lăng Tiêu, Tử Tiêu, các ngươi vẫn xem thường hai vị này."
 
-Ánh mắt hắn rơi lên cánh cửa đóng chặt của Di La Cung. Sau cánh cửa là thầy của hắn, Chủ nhân Di La Cung đạo tâm đã chết, nhục thân đã hỏng.
+Ánh mắt hắn rơi lên cánh cửa đóng chặt của Di La Cung. Sau cánh cửa là sư phụ của hắn, Chủ nhân Di La Cung đạo tâm đã chết, nhục thân đã hỏng.
 
-"Thầy đánh Thiên Đô rơi xuống Kỷ thứ tư, có thâm ý lớn. Thiên Đô hưng khởi ở Kỷ thứ tư, thầy hủy ông ấy ở Kỷ thứ bảy rồi đưa ông ấy tới Kỷ thứ tư, hẳn là để bù đắp sai lầm của mình."
+"Sư phụ đánh Thiên Đô rơi xuống Kỷ thứ tư, có thâm ý lớn. Thiên Đô hưng khởi ở Kỷ thứ tư, sư phụ hủy ông ấy ở Kỷ thứ bảy rồi đưa ông ấy tới Kỷ thứ tư, hẳn là để bù đắp sai lầm của mình."
 
-Đại công tử Thái Thượng thấp giọng nói: "Mà nay, ta đã hiểu dụng tâm lương khổ của thầy. Còn các ngươi lại vẫn chấp mê bất ngộ..."
+Đại công tử Thái Thượng thấp giọng nói: "Mà nay, ta đã hiểu dụng tâm lương khổ của sư phụ. Còn các ngươi lại vẫn chấp mê bất ngộ..."
 
 Hắn không rời Thái Thượng Điện đi ngăn Tam công tử, Tứ công tử. Hắn vốn đã đạm bạc danh lợi. Chủ nhân Di La Cung đạo tâm tử vong, Nhị công tử Vô Cực bị trấn áp. Nếu hắn chủ trì Di La Cung, Tam công tử, Tứ công tử căn bản tranh không lại hắn.
 

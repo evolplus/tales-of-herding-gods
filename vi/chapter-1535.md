@@ -54,7 +54,7 @@ Nhìn từ xa, sau lưng hai người có vô số ánh sao lấp lánh, rất �
 
 Vù…
 
-Hai vị Thái Cực cổ thần trốn xa đi, những cát sao kia cũng theo họ gào thét rời đi, chẳng mấy chốc đã biến mất không thấy. Chỉ nghe giọng Thái Âm nương nương xa xa truyền đến: “Mục Thiên Tôn, ngươi thấy chúng ta muốn đầu quân cho Thái Sơ nên muốn trừ bỏ chúng ta. Tàn bạo vô đạo như vậy, ắt bị trời phạt!”
+Hai vị Thái Cực cổ thần trốn xa đi, những cát sao kia cũng theo họ gào thét rời đi, chẳng mấy chốc đã biến mất không thấy. Chỉ nghe giọng Thái Âm nương nương xa xa truyền đến: “Mục Thiên Tôn, ngươi thấy chúng ta muốn đầu quân cho Thái Sơ nên muốn trừ khử chúng ta. Tàn bạo vô đạo như vậy, ắt bị trời phạt!”
 
 “Cổ quái…”
 

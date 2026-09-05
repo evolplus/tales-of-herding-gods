@@ -24,7 +24,7 @@ Về sau ông chuyển thế trọng sinh. Tần Mục đưa Vũ Đấu Thiên C
 
 Tề Khang tiếp tục tiến lên theo con đường lấy võ nhập đạo của mình. Thiên phú của ông vốn đã cao, dù sao truyền thừa Nhân Hoàng Điện qua mỗi đời chỉ có một người, vì vậy gần như mỗi đời Nhân Hoàng đều là người có tư chất thiên phú cao nhất đương thời.
 
-Ông là thầy của Thôn trưởng, là người dẫn đường của Thôn trưởng, tư chất thiên phú cũng cực cao, còn đi xa hơn Tần Mục trên con đường lấy võ nhập đạo.
+Ông là sư phụ của Thôn trưởng, là người dẫn đường của Thôn trưởng, tư chất thiên phú cũng cực cao, còn đi xa hơn Tần Mục trên con đường lấy võ nhập đạo.
 
 Nhất là sức bộc phát trong quyền pháp của ông, càng kinh người vô cùng, đánh vị thần chỉ trẻ tuổi kia liên tiếp bại lui, chấn động khiến nguyên thần của đối phương tán loạn.
 

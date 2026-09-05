@@ -1,6 +1,6 @@
 # Chương 612: Truyền thánh hai vạn năm
 
-Tiều Phu Thánh Nhân thản nhiên nhận một lạy của hắn, nói: "Đệ tử ta thu không nhiều. Trước kia ta dạy hoàng tử thái tử, hoàng tử thái tử không cần bái ta làm thầy, cho nên đệ tử chính thức của ta hiện tại chỉ có ngươi và đại sư huynh của ngươi mà thôi. So với đại sư huynh, ngươi có vẻ còn non xanh lắm, quả thật cần học cho tốt. Ta không dạy ngươi học xấu, chỉ dạy ngươi đừng chịu thiệt."
+Tiều Phu Thánh Nhân thản nhiên nhận một lạy của hắn, nói: "Đệ tử ta thu không nhiều. Trước kia ta dạy hoàng tử thái tử, hoàng tử thái tử không cần bái ta làm sư phụ, cho nên đệ tử chính thức của ta hiện tại chỉ có ngươi và đại sư huynh của ngươi mà thôi. So với đại sư huynh, ngươi có vẻ còn non xanh lắm, quả thật cần học cho tốt. Ta không dạy ngươi học xấu, chỉ dạy ngươi đừng chịu thiệt."
 
 Tần Mục chớp mắt, cảm thấy người này không giống Thánh sư cho lắm, trái lại giống các lão nhân trong Tàn Lão Thôn.
 
@@ -38,7 +38,7 @@ Thủ pháp luyện chế của ông không cao minh hơn Lão câm, nhưng cũn
 
 Ông tỉ mỉ nói, bất tri bất giác đã đi quá nửa vòng quanh chân núi.
 
-Tần Mục chăm chú lắng nghe và ghi nhớ. Đợi Tiều Phu Thánh Nhân nói xong lý niệm của mình, Tần Mục đột nhiên nói: "Thánh sư, yêu cầu của thánh nhân quá cao. Con nghĩ kỹ lại tất cả những người mình từng gặp, từng nghe, không ai có thể đạt tới yêu cầu của thánh nhân. Những điều này, bản thân thầy làm được không?"
+Tần Mục chăm chú lắng nghe và ghi nhớ. Đợi Tiều Phu Thánh Nhân nói xong lý niệm của mình, Tần Mục đột nhiên nói: "Thánh sư, yêu cầu của thánh nhân quá cao. Con nghĩ kỹ lại tất cả những người mình từng gặp, từng nghe, không ai có thể đạt tới yêu cầu của thánh nhân. Những điều này, bản thân sư phụ làm được không?"
 
 Tiều Phu Thánh Nhân dừng bước. Tảng đá giữa không trung đang tan chảy, sắp thành cột đá.
 
@@ -108,9 +108,9 @@ Bốn phía là tinh không đen tối mênh mang vô tận, hoang lạnh tịch
 
 Tần Mục đột nhiên nói: "Thánh sư, con cảm thấy có một người tư chất ngộ tính đều tốt hơn con, hơn nữa phù hợp điều kiện của người. Con muốn giới thiệu ông ấy tới gặp người."
 
-Tiều Phu Thánh Nhân hơi sững ra, rồi giãn mặt cười nói: "Được. Nhưng ngươi không cần gọi ta là Thánh sư nữa, gọi ta là thầy là được."
+Tiều Phu Thánh Nhân hơi sững ra, rồi giãn mặt cười nói: "Được. Nhưng ngươi không cần gọi ta là Thánh sư nữa, gọi ta là sư phụ là được."
 
-"Thầy."
+"Sư phụ."
 
 Dòng lũ ánh sáng từ bầu trời La Phù Thiên ầm ầm chiếu xuống, rọi lên mặt đất trước một tòa tế đàn ở La Phù Thiên.
 
@@ -118,7 +118,7 @@ Mặt đất kia lập tức hiện ra rất nhiều ấn ký phù văn phức t
 
 Tiều phu đi xuống Trảm Thần Đài. Chiếc búa lớn sau lưng bay lên, bổ mở một cánh cửa thông thẳng tới Thái Hoàng Thiên: "Ngươi dẫn hắn tới gặp ta."
 
-Tần Mục khom người: "Vâng, thưa thầy."
+Tần Mục khom người: "Vâng, thưa sư phụ."
 
 Thái Hoàng Thiên, Ly thành.
 
@@ -156,7 +156,7 @@ Keng...
 
 Chiếc búa lớn sau lưng Tiều Phu Thánh Nhân rơi xuống đất, cắm vào mặt đất. Vị tiều phu đốn củi này ngồi lên sống búa, tư thế khoáng đạt, hai tay đặt trên gối: "Ngươi có thể bái sư rồi."
 
-Quốc sư Diên Khang vén áo xanh, quỳ lạy xuống, trầm giọng nói: "Sĩ tử Giang Lăng, bái kiến thầy!"
+Quốc sư Diên Khang vén áo xanh, quỳ lạy xuống, trầm giọng nói: "Sĩ tử Giang Lăng, bái kiến sư phụ!"
 
 Tần Mục ngước nhìn đỉnh tế đàn, bất giác lệ ướt hai má. Hắn đã chứng kiến cuộc truyền thừa thánh nhân vượt qua hai thời đại Khai Hoàng và Diên Khang này.
 

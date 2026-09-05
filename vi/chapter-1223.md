@@ -20,7 +20,7 @@ Tần Mục gật đầu.
 
 Tiều Phu Thánh Nhân bóp cổ tay thở dài: “Đáng tiếc Thái Đế vẫn nhát gan, nếu không có thể một mũi tên trúng hai đích, một hòn đá ném hai chim, một lần trừ sạch hai mối họa.”
 
-Tần Mục cười lạnh nói: “Thầy cũng chỉ còn chiếm tiện nghi của con bằng mồm mép thôi. Con đánh thầy, tay không động, chân không động, đầu không động, thân không động, chỉ động một ngón tay!”
+Tần Mục cười lạnh nói: “Sư phụ cũng chỉ còn chiếm tiện nghi của con bằng mồm mép thôi. Con đánh sư phụ, tay không động, chân không động, đầu không động, thân không động, chỉ động một ngón tay!”
 
 Tiều Phu Thánh Nhân cảm thấy vừa rồi mình đánh còn nhẹ.
 
@@ -32,11 +32,11 @@ Trong lòng Tiều Phu rất khó chịu, nhưng cũng không thể không thừ
 
 “Con đi đây.”
 
-Tần Mục phất tay, đang định rời đi, đột nhiên lại dừng bước, quay đầu nói: “Thầy từng tận tâm dạy đại sư huynh, cũng từng tận tâm dạy tam sư đệ, chỉ riêng con là thầy không tận tâm dạy, thậm chí chẳng dạy gì cả. Bây giờ thầy thấy bản lĩnh của con, có từng hối hận vì không dạy con cho tử tế không?”
+Tần Mục phất tay, đang định rời đi, đột nhiên lại dừng bước, quay đầu nói: “Sư phụ từng tận tâm dạy đại sư huynh, cũng từng tận tâm dạy tam sư đệ, chỉ riêng con là người không tận tâm dạy, thậm chí chẳng dạy gì cả. Bây giờ người thấy bản lĩnh của con, có từng hối hận vì không dạy con cho tử tế không?”
 
-Tiều Phu bật cười: “Lời này, giọng điệu này của con, nghe như kẻ vì thầy bất công mà phản khỏi sư môn, trước khi quay về xử thầy mới nói vậy.”
+Tiều Phu bật cười: “Lời này, giọng điệu này của con, nghe như kẻ vì sư phụ bất công mà phản khỏi sư môn, trước khi quay về xử sư phụ mới nói vậy.”
 
-Tần Mục nghiêm mặt: “Con chỉ hỏi thầy có từng hối hận hay không.”
+Tần Mục nghiêm mặt: “Con chỉ hỏi sư phụ có từng hối hận hay không.”
 
 Tiều Phu Thánh Nhân nghiêm nghị, lắc đầu: “Chưa từng hối hận.”
 
@@ -44,7 +44,7 @@ Tần Mục hơi ngẩn ra.
 
 Tiều Phu Thánh Nhân nghiêm mặt nói: “Ta dạy theo tài năng từng người, vì vậy biết nên dạy Ngụy Tùy Phong cái gì, nên dạy Giang Bạch Khuê cái gì. Chỉ riêng con, ta không biết nên dạy gì. Con là Bá Thể độc nhất vô nhị, trời sinh anh minh thần võ, thần thanh chí sáng, tài học sâu như vực. Nếu ta cưỡng ép dạy con, ngược lại sẽ làm lỡ con. Quả nhiên không ngoài dự liệu của ta, con còn có tiền đồ hơn cả sư huynh sư đệ của con! Ta rất vui lòng.”
 
-Trên mặt Tần Mục lộ nụ cười: “Con biết mà, nguyên nhân thầy không muốn dạy con chính là vậy. Con đi đây!”
+Trên mặt Tần Mục lộ nụ cười: “Con biết mà, nguyên nhân sư phụ không muốn dạy con chính là vậy. Con đi đây!”
 
 Tiều Phu Thánh Nhân đưa mắt nhìn hắn đi xa. Qua rất lâu, ông mới thở ra một hơi đục: “Tiểu tử này lúc nào cũng có dáng vẻ khi sư diệt tổ. Nếu ta không tâng bốc nó một chút, nói không chừng đã bị nó xử rồi. Có điều nói đi cũng phải nói lại...”
 

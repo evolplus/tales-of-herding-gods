@@ -34,7 +34,7 @@ Còn Địa Mẫu hiện tại chỉ có một đoạn lõi Nguyên Mộc và m�
 
 Thành tựu cả đời của bà, có thể nói đều dùng để thành tựu Công Tôn Yến.
 
-Tần Mục làm quá tàn nhẫn. Mục đích của hắn không chỉ là trừ bỏ Địa Mẫu Nguyên Quân, đồng thời còn là tái tạo một Địa Mẫu Nguyên Quân mới!
+Tần Mục làm quá tàn nhẫn. Mục đích của hắn không chỉ là trừ khử Địa Mẫu Nguyên Quân, đồng thời còn là tái tạo một Địa Mẫu Nguyên Quân mới!
 
 Nếu không có Thiên Công và Thổ Bá ra mặt, vậy Địa Mẫu có sống sót hay không đã không còn cần thiết, bởi vì Diên Khang đã có một Địa Mẫu mới.
 

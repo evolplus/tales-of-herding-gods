@@ -126,7 +126,7 @@ Lâm Hiên Đạo chủ và các lão đạo sĩ Đạo môn hoảng sợ, nhìn
 
 Sơ Tổ Nhân Hoàng tiến lên kiểm tra một phen, nói: "Là thủ bút của Thiên Sư. Ông ấy từng tới đây, tính ra đường sống, sau đó dùng cành liễu dựng cây cầu này. Điểm cuối của cây cầu hẳn chính là Thái Minh Thiên!"
 
-Tần Mục hưng phấn nói: "Thiên Sư là thầy của khai sơn tổ sư Thiên Thánh giáo ta. Chư vị nếu muốn học thuật số, có thể tới Thiên Thánh giáo hoặc Thiên Thánh học cung của chúng ta!"
+Tần Mục hưng phấn nói: "Thiên Sư là sư phụ của khai sơn tổ sư Thiên Thánh giáo ta. Chư vị nếu muốn học thuật số, có thể tới Thiên Thánh giáo hoặc Thiên Thánh học cung của chúng ta!"
 
 Sắc mặt Lâm Hiên Đạo chủ tối sầm, hậm hực không nói. Kính Minh lão hòa thượng bên cạnh lộ ra một nụ cười, thầm nghĩ: "Giờ biết góc tường của Tần giáo chủ không dễ đào rồi chứ?"
 

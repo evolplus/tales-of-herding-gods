@@ -50,7 +50,7 @@ Giang Bạch Khuê đạp hoa đào, không ngừng tiến sâu vào rừng Đ�
 
 Nguyệt Thiên Tôn phối hợp với hắn. Hai người cùng nhau phá giải thần thông của Hoan Hỉ điện chủ. Nguyệt Thiên Tôn đưa hắn vào sâu trong rừng Đạo Thụ, càng lúc càng gần Hoan Hỉ Điện đã nứt.
 
-Trên bảo điện nứt đôi, Hoan Hỉ điện chủ nhìn tòa đại điện đã chia thành hai nửa, sắc mặt ảm đạm, nhẹ giọng nói: "Thầy từng nói với ta, trên đời có thể dùng đạo pháp của mình thành tựu bảo điện, chỉ lác đác mấy người. Bảo điện mạnh hơn Đạo Thụ, đạo hạnh cao hơn Đạo quả, là một con đường mới. Đạo Thụ Đạo quả đều chỉ là mô phỏng Thế Giới Thụ mà thôi, nhưng bảo điện lại là khe sâu trong ngực bậc thành đạo, là càn khôn trong lòng. Điện là tịnh thổ cuối cùng của bậc thành đạo, cũng là thành tựu chí cao."
+Trên bảo điện nứt đôi, Hoan Hỉ điện chủ nhìn tòa đại điện đã chia thành hai nửa, sắc mặt ảm đạm, nhẹ giọng nói: "Sư phụ từng nói với ta, trên đời có thể dùng đạo pháp của mình thành tựu bảo điện, chỉ lác đác mấy người. Bảo điện mạnh hơn Đạo Thụ, đạo hạnh cao hơn Đạo quả, là một con đường mới. Đạo Thụ Đạo quả đều chỉ là mô phỏng Thế Giới Thụ mà thôi, nhưng bảo điện lại là khe sâu trong ngực bậc thành đạo, là càn khôn trong lòng. Điện là tịnh thổ cuối cùng của bậc thành đạo, cũng là thành tựu chí cao."
 
 Thương Quân xách đao. Trên người hắn, vết thương lớn nhỏ không ngừng chảy máu. Uy năng Hoan Hỉ Điện gần như chấn nát toàn bộ tứ chi bách hài của hắn. Nhưng rốt cuộc hắn là bậc thành đạo, dùng pháp lực mạnh mẽ của bản thân cố định thân thể, để mình không đến mức vỡ nát.
 
@@ -60,11 +60,11 @@ Trong lịch sử mười sáu kỷ, hắn từng chịu vết thương còn ngh
 
 Chân còn lại của Hoan Hỉ điện chủ đã bị hắn chém đứt. Đạo thương khiến nữ tử này không ngừng chảy máu.
 
-"Thầy truyền cho ta vô thượng pháp, nhưng tư chất của ta ngu độn, trước sau không thể tham ngộ thấu triệt. Điện mà ông ấy nói thật ra là bảo điện do đại đạo ngưng tụ như Thái Thượng Điện, Vô Cực Điện, Lăng Tiêu Điện. Ông ấy muốn chúng ta đẩy cái cũ ra đưa cái mới vào, đi ra con đường của riêng mình, một con đường ngay cả ông ấy cũng không thể đi, đi tới cực hạn, trở thành công tử đủ sức một mình đảm đương một phương, trở thành đạo hữu của ông ấy, cùng ông ấy nâng đỡ nhau tiến bước. Nhưng ta không làm được."
+"Sư phụ truyền cho ta vô thượng pháp, nhưng tư chất của ta ngu độn, trước sau không thể tham ngộ thấu triệt. Điện mà ông ấy nói thật ra là bảo điện do đại đạo ngưng tụ như Thái Thượng Điện, Vô Cực Điện, Lăng Tiêu Điện. Ông ấy muốn chúng ta đẩy cái cũ ra đưa cái mới vào, đi ra con đường của riêng mình, một con đường ngay cả ông ấy cũng không thể đi, đi tới cực hạn, trở thành công tử đủ sức một mình đảm đương một phương, trở thành đạo hữu của ông ấy, cùng ông ấy nâng đỡ nhau tiến bước. Nhưng ta không làm được."
 
 Hoan Hỉ điện chủ thở dốc, điều chỉnh khí tức, giọng khàn khàn nói: "Điều ta có thể làm chỉ là dưới sự chỉ dạy của ông ấy, bước thêm một bước về phía trước. Bước này đã là cực hạn của ta, vì vậy ta chỉ có thể trở thành một trong các điện chủ của bảy mươi hai điện."
 
-Trên mặt bà ta lộ nụ cười: "Thầy từng nói với ta, tính ta quá nóng nảy, bảo ta suy nghĩ ba lần rồi mới làm. Ông ấy nói ta cười rất đẹp, rất thuần chân, vì vậy cho ta một đạo hiệu, gọi là Hoan Hỉ. Ông ấy hy vọng khi ta bốc đồng thì cười một cái, khi cười một cái thì nghĩ một chút, như vậy có thể thoát khỏi bốc đồng. Ông ấy hy vọng ta có thể cười mãi, giữ đạo tâm thuần chân. Từ khi tu hành tới nay, ta cũng như ông ấy mong đợi, thường cười đối mặt chuyện thiên hạ, việc ngu xuẩn cũng ít làm hơn."
+Trên mặt bà ta lộ nụ cười: "Sư phụ từng nói với ta, tính ta quá nóng nảy, bảo ta suy nghĩ ba lần rồi mới làm. Ông ấy nói ta cười rất đẹp, rất thuần chân, vì vậy cho ta một đạo hiệu, gọi là Hoan Hỉ. Ông ấy hy vọng khi ta bốc đồng thì cười một cái, khi cười một cái thì nghĩ một chút, như vậy có thể thoát khỏi bốc đồng. Ông ấy hy vọng ta có thể cười mãi, giữ đạo tâm thuần chân. Từ khi tu hành tới nay, ta cũng như ông ấy mong đợi, thường cười đối mặt chuyện thiên hạ, việc ngu xuẩn cũng ít làm hơn."
 
 Thương Quân lạnh nhạt nói: "Ngươi cười quả thật rất đẹp."
 
@@ -72,7 +72,7 @@ Tiếng đàn truyền tới từ rừng Đạo Thụ bên ngoài, loáng thoán
 
 Rừng đào lan rộng, phạm vi bao phủ càng lúc càng lớn.
 
-Hoan Hỉ điện chủ thở ra một hơi đục, nhưng máu tươi lại trào ra từ cổ họng bà ta. Bà ta điều hòa khí tức, một chân chậm rãi hạ thấp, khuỵu xuống. Nụ cười trên mặt biến mất: "Thầy nói, chờ đến lúc ta không cười, đó chính là lúc ta nguy hiểm nhất. Nguy hiểm không chỉ nhằm vào đối thủ của ta, mà cũng nhằm vào chính ta. Vì khi ta không cười, chính là lúc ta không bình tĩnh nhất."
+Hoan Hỉ điện chủ thở ra một hơi đục, nhưng máu tươi lại trào ra từ cổ họng bà ta. Bà ta điều hòa khí tức, một chân chậm rãi hạ thấp, khuỵu xuống. Nụ cười trên mặt biến mất: "Sư phụ nói, chờ đến lúc ta không cười, đó chính là lúc ta nguy hiểm nhất. Nguy hiểm không chỉ nhằm vào đối thủ của ta, mà cũng nhằm vào chính ta. Vì khi ta không cười, chính là lúc ta không bình tĩnh nhất."
 
 Sau lưng bà ta, từng tầng Đạo Cảnh ầm ầm bộc phát!
 

@@ -104,7 +104,7 @@ Nhưng tất cả bắt đầu thay đổi từ khi nào?
 
 Là từ lúc Tạo Vật Chủ phát hiện vị cổ thần đạo sinh là ả, cảm nhận được sức mạnh sinh dục của ả, rồi quỳ lạy ả, cầu ả che chở, khiến chủng tộc mình nhiều con nhiều phúc sao?
 
-Là từ lúc Tạo Vật Chủ toan mượn sức mạnh của ả để trừ bỏ dị kỷ sao?
+Là từ lúc Tạo Vật Chủ toan mượn sức mạnh của ả để thanh trừ dị kỷ sao?
 
 Là từ lúc Thái Sơ gặp ả, hai bên nảy sinh ái mộ sao?
 

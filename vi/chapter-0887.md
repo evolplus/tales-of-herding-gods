@@ -78,7 +78,7 @@ Nhưng kẻ còn sợ hãi hơn bà là Hạo Thiên Tôn.
 
 Mà tiếp tục liều mạng đánh tiếp, hắn sẽ phải nếm trái đắng này.
 
-Nhưng nếu không thể trừ bỏ Địa Mẫu, uy tín của hắn cũng sẽ chịu đả kích cực lớn.
+Nhưng nếu không thể trừ khử Địa Mẫu, uy tín của hắn cũng sẽ chịu đả kích cực lớn.
 
 Đến nay Thiên Đình vẫn không có chí tôn hạ giới giúp hắn, thậm chí ngay cả Hỏa Thiên Tôn, cái bóng từng lẽo đẽo theo sau hắn, cũng không hạ giới tương trợ. Những nhân vật trong Thiên Đình ngày thường đối xử với hắn như tri kỷ đạo hữu, lúc này dường như đều đang chờ một cơ hội, một cơ hội khiến hắn rợn người.
 

@@ -14,7 +14,7 @@ Vân Thiên Tôn lại bưng chén trà uống một ngụm, nói: "Như vậy c
 
 "Vậy Thổ Bá thì sao?"
 
-Thiếu niên kia nhướng mày, nói: "Địa Mẫu Nguyên Quân thì sao? Còn Thiên Công nữa! Những cổ thần này cũng đều phải chết! Sư tôn, sau khi trừ bỏ Thiên Đế cổ thần, nhuệ khí của người đã suy giảm rất nhiều. Bây giờ nên thừa thắng truy kích, liên thủ với Hạo Thiên Tôn, điều khiển thân xác Thiên Đế cổ thần chém Địa Mẫu, giết Thổ Bá, trừ Thiên Công!"
+Thiếu niên kia nhướng mày, nói: "Địa Mẫu Nguyên Quân thì sao? Còn Thiên Công nữa! Những cổ thần này cũng đều phải chết! Sư tôn, sau khi trừ khử Thiên Đế cổ thần, nhuệ khí của người đã suy giảm rất nhiều. Bây giờ nên thừa thắng truy kích, liên thủ với Hạo Thiên Tôn, điều khiển thân xác Thiên Đế cổ thần chém Địa Mẫu, giết Thổ Bá, trừ Thiên Công!"
 
 Vân Thiên Tôn hơi nhíu mày, nói: "Kẻ gây họa cho Nguyên giới không phải Thiên Công, Thổ Bá, Địa Mẫu, mà là chư thần dưới trướng Thiên Đế. Thiên Công chưởng quản Huyền Đô, chưởng quản mặt trời, mặt trăng, tinh tú, không có sai lầm. Thổ Bá chưởng quản U Đô, chưởng quản nơi về của người chết, cũng không có sai lầm. Địa Mẫu Nguyên Quân tuy kiêu ngạo, nhưng mấy năm nay cũng khá chiếu cố chúng sinh Nguyên giới, cũng không có sai lầm. Vì sao phải giết họ?"
 
@@ -36,7 +36,7 @@ Lăng Thiên Tôn nhìn theo Hiểu Vị Tô đi xa, lúc này mới bước và
 
 "Đệ tử này quá cực đoan!"
 
-Vân Thiên Tôn rất đau đầu, xoa xoa huyệt thái dương, nói: "Vậy mà muốn trừ bỏ sạch mọi cổ thần. Thiên Công, Địa Mẫu và Thổ Bá từng làm ác bao giờ? Trái lại, họ quản lý trật tự chư thiên vạn giới. Nếu họ chết, trên đời này sao trời xoay chuyển rối loạn, quần tinh hỗn độn, oan hồn khắp nơi, lệ quỷ hoành hành, chư thiên cũng sẽ người vật chết sạch. Khi đó mới là đại họa!"
+Vân Thiên Tôn rất đau đầu, xoa xoa huyệt thái dương, nói: "Vậy mà muốn trừ khử sạch mọi cổ thần. Thiên Công, Địa Mẫu và Thổ Bá từng làm ác bao giờ? Trái lại, họ quản lý trật tự chư thiên vạn giới. Nếu họ chết, trên đời này sao trời xoay chuyển rối loạn, quần tinh hỗn độn, oan hồn khắp nơi, lệ quỷ hoành hành, chư thiên cũng sẽ người vật chết sạch. Khi đó mới là đại họa!"
 
 "Ta không thích Hiểu Vị Tô này."
 

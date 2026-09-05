@@ -54,7 +54,7 @@ Tần Mục liếc quan tài đá một cái, cười nói: "Còn có lệnh lan
 
 Quan tài đá rung lên. Hiển nhiên đế thi Bắc Thượng Hoàng trong quan rất sợ Thái Đế, hoặc nói đúng hơn, hắn sợ Thiên Tôn.
 
-"Bản lĩnh Thái Đế vô song, ngươi có biết năm xưa để trừ bỏ hắn, bao nhiêu cổ thần đã chết không?"
+"Bản lĩnh Thái Đế vô song, ngươi có biết năm xưa để trừ khử hắn, bao nhiêu cổ thần đã chết không?"
 
 Giọng Địa Mẫu Nguyên Quân phẫn nộ truyền ra từ dưới nước: "Ngươi ngoan ngoãn ở lại Nguyên giới, yên tâm tu luyện là được, cứ khăng khăng đi chọc hắn. Ngươi chết chắc rồi, hết cứu rồi... Khoan đã, ta thấy hắn rồi. Rất nhiều xương trắng đang khiêng quan tài của hắn bay tới, tốc độ rất nhanh..."
 
@@ -62,7 +62,7 @@ Trong lòng Tần Mục khẽ động. Chỉ thấy mặt nước Dũng Giang đ
 
 "Chặn hắn, ta có thể thật sự chết."
 
-Địa Mẫu Nguyên Quân nói: "Năm xưa để trừ bỏ Thái Đế, đã xảy ra không dưới mười trận chiến. Ngay cả trận chiến cuối cùng cũng không thể chém chết hoàn toàn hắn. Thái Đế có cách khiến ta vĩnh viễn không thể phục sinh. Ta hiện nay không có thực lực cứng đối cứng với hắn, trừ phi ngươi phục sinh ta..."
+Địa Mẫu Nguyên Quân nói: "Năm xưa để trừ khử Thái Đế, đã xảy ra không dưới mười trận chiến. Ngay cả trận chiến cuối cùng cũng không thể chém chết hoàn toàn hắn. Thái Đế có cách khiến ta vĩnh viễn không thể phục sinh. Ta hiện nay không có thực lực cứng đối cứng với hắn, trừ phi ngươi phục sinh ta..."
 
 Tần Mục lạnh nhạt nói: "Nếu ta chết, ngươi vĩnh viễn không thể phục sinh."
 

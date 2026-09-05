@@ -64,7 +64,7 @@ Tuy vậy, đầu lâu của Chủ điện Linh Quan đã bị Thương Quân h�
 
 “Thanh đao này của Thương Quân thật là sắc bén vô song!” Tần Mục không nhịn được khen.
 
-Đạo của Thương Quân sinh ra vì sát lục. Mỗi chiêu mỗi thức của hắn đều nhằm trừ bỏ đối thủ nhanh nhất có thể, không có bất kỳ động tác thừa thãi nào, cũng không lãng phí chút sức nào.
+Đạo của Thương Quân sinh ra vì sát lục. Mỗi chiêu mỗi thức của hắn đều nhằm trừ khử đối thủ nhanh nhất có thể, không có bất kỳ động tác thừa thãi nào, cũng không lãng phí chút sức nào.
 
 Điều này khác với những đạo pháp thần thông khác.
 

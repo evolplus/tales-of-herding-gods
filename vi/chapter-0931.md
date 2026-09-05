@@ -4,7 +4,7 @@
 
 Vì thế, người chỉ dạy các sư đệ sư muội này chính là Đan Phượng Lai!
 
-Đan Phượng Lai có ân thầy với họ, mà họ cũng vô cùng kính trọng Đan Phượng Lai. Tình cảm ấy, người thường khó mà tưởng tượng.
+Đan Phượng Lai có ơn sư phụ với họ, mà họ cũng vô cùng kính trọng Đan Phượng Lai. Tình cảm ấy, người thường khó mà tưởng tượng.
 
 Nhiều sư đệ sư muội của Tổ Vương Cung chết ở đây như vậy, lòng hắn đau như dao cắt, nhưng cuối cùng vẫn cắn răng ép tiếng gầm xuống, nuốt ngược vào bụng!
 

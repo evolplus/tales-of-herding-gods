@@ -40,7 +40,7 @@ Lão nông lắc đầu với Đồ phu, nói:
 
 Lão nông nghĩ một lúc, nói:
 
-"Biết buông tay, ngươi là một người thầy tốt."
+"Biết buông tay, ngươi là một vị sư phụ tốt."
 
 Đồ phu cười nói:
 

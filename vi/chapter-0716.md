@@ -100,7 +100,7 @@ Thùy Điếu Ông rời đi cùng ông.
 
 Sơ Tổ Nhân Hoàng cũng cáo từ: "Ta cũng có việc quan trọng." Dứt lời cũng vội vã rời đi.
 
-Tần Mục chớp mắt, nhìn theo bọn họ rời đi, thầm nghĩ: "Tiều phu lão sư có việc thì cũng thôi, vì sao Sơ Tổ cũng nhiều việc như vậy? Ông ấy đang bận chuyện gì?"
+Tần Mục chớp mắt, nhìn theo bọn họ rời đi, thầm nghĩ: "Tiều Phu lão sư có việc thì cũng thôi, vì sao Sơ Tổ cũng nhiều việc như vậy? Ông ấy đang bận chuyện gì?"
 
 Đế Dịch Nguyệt nhìn cậu, cười nói: "Đệ đệ, ngươi cũng có việc sao? Nếu không có, chi bằng theo ta đi tìm Điền Thục Thiên Vương, giúp Diêm Vương tái tạo Phong Đô. Sau đó chúng ta lại đi gặp Thiên Âm nương nương. Bái hội Thiên Âm nương nương xong, chị lại dẫn ngươi đi khắp nơi, bái hội Thiên Công, Thổ Bá, rồi bái hội các cao nhân Đế Tọa khác, rất có lợi cho ngươi!"
 

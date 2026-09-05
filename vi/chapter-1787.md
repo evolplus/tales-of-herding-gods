@@ -1,6 +1,6 @@
 # Chương 1787: Tên của con
 
-"Xin thầy ban phúc cho Linh Quân." Tần Mục khom người bái.
+"Xin sư phụ ban phúc cho Linh Quân." Tần Mục khom người bái.
 
 "Cần gì ta ban phúc?"
 
@@ -8,7 +8,7 @@ Giọng Chủ nhân Di La Cung truyền tới: "Phúc phận ngươi cho con bé
 
 Trong lòng Tần Mục căng thẳng, muốn hỏi kỹ, nhưng Chủ nhân Di La Cung lại lần nữa rơi vào tịch diệt. Hắn lên tiếng hỏi, Chủ nhân Di La Cung từ đầu đến cuối không mở miệng nữa.
 
-Tần Mục thở dài. Hắn biết vị thầy này thần thông quảng đại đến mức không thể tưởng tượng, thậm chí có thể tính ra tương lai.
+Tần Mục thở dài. Hắn biết vị sư phụ này thần thông quảng đại đến mức không thể tưởng tượng, thậm chí có thể tính ra tương lai.
 
 Không chỉ như vậy, Chủ nhân Di La Cung thậm chí có thể từ dấu vết nhỏ nhặt tìm ra những thứ Tần Mục không thể phát hiện.
 
@@ -22,7 +22,7 @@ Nàng quay đầu nhìn lại, cửa cung đã đóng.
 
 Nam Tương Nguyên Quân thở dài, trong lòng bàng hoàng mất mát.
 
-Chủ nhân Di La Cung, người thầy của tất cả mọi người trong mười sáu vũ trụ kỷ nguyên, thật sự đã chết.
+Chủ nhân Di La Cung, vị sư phụ của tất cả mọi người trong mười sáu vũ trụ kỷ nguyên, thật sự đã chết.
 
 Tần Mục tới bên Kim Thuyền, mỉm cười nói: "Chúng ta tạm dừng ở đây mấy ngày. Ta cần đưa mình lên trạng thái đỉnh cao rồi hẵng trở về. Dọc đường này, chỉ e hung hiểm còn đáng sợ hơn lúc đến rất nhiều lần."
 

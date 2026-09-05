@@ -152,7 +152,7 @@ Công tử Tử Tiêu ấn kiếm. Uy lực đạo kiếm gần như không th�
 
 "Nhưng điều khiến ta kinh ngạc hơn là Hỗn Độn thần thông của ngươi."
 
-Công tử Tử Tiêu trầm giọng nói: "Khó trách thầy nói đạo Hỗn Độn của ngươi ngay cả ông cũng nhìn không hiểu lắm, quả thật siêu phàm nhập thánh, khiến người ta mở rộng tầm mắt. Nhưng ngươi chọn ta làm đối thủ đầu tiên của ngươi là lựa chọn sai lầm. Bởi vì ngươi cũng tu luyện kiếm đạo."
+Công tử Tử Tiêu trầm giọng nói: "Khó trách sư phụ nói đạo Hỗn Độn của ngươi ngay cả ông cũng nhìn không hiểu lắm, quả thật siêu phàm nhập thánh, khiến người ta mở rộng tầm mắt. Nhưng ngươi chọn ta làm đối thủ đầu tiên của ngươi là lựa chọn sai lầm. Bởi vì ngươi cũng tu luyện kiếm đạo."
 
 Bàn tay Tần Mục đặt trên Hỗn Độn Kiếm, mặt mang nụ cười. Trên Thế Giới Thụ sau lưng hắn, một Đạo Quả rực sáng, đó là kiếm đạo Đạo Quả. Tuy hắn chưa làm được Hỗn Độn thành đạo, nhưng kiếm đạo lại thành đạo trước một bước.
 

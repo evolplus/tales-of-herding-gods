@@ -104,7 +104,7 @@ Hỏa Thiên Tôn nhướng mày, đang định ra tay ngăn Kim Thuyền, Hạo
 
 Hỏa Thiên Tôn hơi ngẩn ra, không hiểu ý hắn.
 
-Hạo Thiên Tôn mỉm cười nói: "Ý định ban đầu của ta là trừ bỏ Lăng Thiên Tôn, không ngờ lại trúng người khác. Tần Nghiệp chết rồi."
+Hạo Thiên Tôn mỉm cười nói: "Ý định ban đầu của ta là trừ khử Lăng Thiên Tôn, không ngờ lại trúng người khác. Tần Nghiệp chết rồi."
 
 Thân thể Hỏa Thiên Tôn chấn động dữ dội, khom người nói: "Chúc mừng bệ hạ, chúc mừng bệ hạ!"
 

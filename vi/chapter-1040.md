@@ -36,7 +36,7 @@ Hỏa Thiên Tôn nói: "Thật ra, ngay từ giữa thời Long Hán, ta đã h
 
 Hắn cúi người nhìn xuống Tần Mục, duỗi bàn tay lớn ra trước mặt Tần Mục, nắm mạnh một cái, lạnh lùng nói: "Ngự Thiên Tôn chính là vì kỳ vọng cổ thần có thể bình đẳng sống chung với nhân tộc và sinh linh hậu thiên, đơn thuần tin vào cổ thần, cho nên hắn mới chết! Ta đi theo vị đại ca này nhiều năm như vậy, điều duy nhất học được chính là tuyệt đối không được tin cổ thần, bất kỳ cổ thần nào!"
 
-Hắn thẳng người, hờ hững nói: "Mục Thiên Tôn, ngươi may mắn. Sau khi đạt được danh hiệu Thiên Tôn, ngươi lập tức rời đi, không nhận chúc phúc của cổ thần. Những Thiên Tôn nhận chúc phúc cổ thần, có mấy người có kết cục tốt? Ngươi may mắn, chưa trải qua khổ nạn của thời Long Hán, còn ta đã trải qua. Tứ Đế chúc phúc cho ta, chẳng qua là vì muốn khống chế ta. Ta phản kháng, trừ bỏ Nam Đế trong Tứ Đế, chẳng lẽ không phải điều nên làm sao?"
+Hắn thẳng người, hờ hững nói: "Mục Thiên Tôn, ngươi may mắn. Sau khi đạt được danh hiệu Thiên Tôn, ngươi lập tức rời đi, không nhận chúc phúc của cổ thần. Những Thiên Tôn nhận chúc phúc cổ thần, có mấy người có kết cục tốt? Ngươi may mắn, chưa trải qua khổ nạn của thời Long Hán, còn ta đã trải qua. Tứ Đế chúc phúc cho ta, chẳng qua là vì muốn khống chế ta. Ta phản kháng, trừ khử Nam Đế trong Tứ Đế, chẳng lẽ không phải điều nên làm sao?"
 
 Ánh mắt hắn âm trầm, nói: "Ta biết ngươi tới đây vì chuyện gì. Ngươi muốn lợi dụng sức mạnh của cổ thần, muốn đối kháng Thiên Đình. Nhưng ngươi chưa từng nghĩ, Tứ Đế năm xưa chưa chắc không phải những nhân vật đáng sợ nhận huyết nhục tế tự của sinh linh hậu thiên. Thời đại bây giờ đã tốt hơn khi ấy rất nhiều!"
 
@@ -52,7 +52,7 @@ Khóe mắt Tần Mục run lên: "Hỏa Thiên Tôn, ngươi sống ở Thiên 
 
 Hỏa Thiên Tôn lại cúi người xuống, trong mắt cháy lên ngọn lửa hừng hực, luồng khí phun ra từ miệng hóa thành biển lửa cuồn cuộn, bay qua bên cạnh Tần Mục, nói: "Tương lai còn sẽ ngày càng tốt hơn. Bây giờ ta đã có thực lực bảo vệ nhân tộc, ta khác với những nhân tộc Thiên Tôn khác! Vân Thiên Tôn bại vong, Nguyệt Thiên Tôn quy ẩn, Lăng Thiên Tôn không biết biến thông, chết không chỗ chôn, U Thiên Tôn chỉ biết tự oán tự than trốn ở U Đô, Tần Thiên Tôn chỉ biết nghịch thiên mà đi, thất bại rồi liền giấu đầu lộ đuôi không dám hiện thân. Chỉ có ta!"
 
-"Mục Thiên Tôn, chỉ có ta vì nhân tộc vắt hết tâm huyết, cầu cho nhân tộc một cơ hội có thể sống tiếp! Vì cơ hội này, ta có thể hợp tác với kẻ khiến ta ghê tởm nhất, có thể lá mặt lá trái với những kẻ xảo trá khác! Vì cơ hội này, ta nhất định phải mượn sức họ diệt trừ cổ thần, trừ bỏ tất cả cổ thần!"
+"Mục Thiên Tôn, chỉ có ta vì nhân tộc vắt hết tâm huyết, cầu cho nhân tộc một cơ hội có thể sống tiếp! Vì cơ hội này, ta có thể hợp tác với kẻ khiến ta ghê tởm nhất, có thể lá mặt lá trái với những kẻ xảo trá khác! Vì cơ hội này, ta nhất định phải mượn sức họ diệt trừ cổ thần, trừ khử tất cả cổ thần!"
 
 Bàn tay hắn vươn về phía Tần Mục, chân thành nói: "Dừng biến pháp đi, đừng khiến ta khó xử ở Thiên Đình. Tới Thiên Đình giúp ta một tay. Ngươi là Mục Thiên Tôn, cường giả từng đánh bại ta năm xưa. Ta biết ngươi có tài cán. Ngươi ta liên thủ, sẽ khiến thời đại tốt đẹp hơn kia đến sớm hơn! Đến lúc đó, chúng ta phân chia quyền lực với Thiên Đình, chúng ta có thể che chở nhân tộc, nhân tộc sẽ không còn bị xem như tế phẩm!"
 

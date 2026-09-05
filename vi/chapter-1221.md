@@ -1,6 +1,6 @@
 # Chương 1221: Thái Đế sống lại
 
-“Tu vi của thầy thấp quá.” Tần Mục lắc đầu, đi về phía trước.
+“Tu vi của sư phụ thấp quá.” Tần Mục lắc đầu, đi về phía trước.
 
 Tiều Phu Thánh Nhân tức tối đi theo hắn, tay xách chiếc rìu giấy lớn đã bị bẻ cong, trong bụng đầy uất ức.
 
@@ -96,9 +96,9 @@ Bàn tay lớn ấy nhanh vô cùng, sắp chụp trúng Bỉ Ngạn Phương Ch
 
 Đế Dịch Nguyệt, Điền Thục, Diêm Vương, Ngư Ông, Thanh Hoàng, Đế Thích Thiên và các cường giả cùng đánh về phía bàn tay kia. Tiều Phu Thánh Nhân tháo rìu xuống, cũng định xông lên, lại bị Tần Mục kéo lại.
 
-“Thầy, thầy đừng góp vui nữa.”
+“Sư phụ, sư phụ đừng góp vui nữa.”
 
-Tần Mục bất đắc dĩ nói: “Tu vi của thầy quá thấp. Thầy đi xem lò đan cháy thế nào, hỏa lực có đủ hay không. Nếu không đủ thì thêm chút dược thạch...”
+Tần Mục bất đắc dĩ nói: “Tu vi của sư phụ quá thấp. Sư phụ đi xem lò đan cháy thế nào, hỏa lực có đủ hay không. Nếu không đủ thì thêm chút dược thạch...”
 
 Tiều Phu Thánh Nhân tức quá hóa cười.
 

@@ -66,7 +66,7 @@ Thuyền giấy của U Thiên Tôn lặng lẽ xuất hiện. U Thiên Tôn đ�
 
 Lúc này, bên cạnh Tà Vô Kỳ còn có một người, là Thái tử Đông Cung Minh Nhai của Thiên Đình hiện nay!
 
-Người khống chế đầu Thái Đế là Hạo Thiên Tôn. Hắn không quan tâm tới Tà Vô Kỳ. Năm xưa hắn xúi giục Tà Vô Kỳ tạo phản làm loạn, mượn tay Thiên Đế trừ bỏ vị huynh trưởng này của mình. Tà Vô Kỳ đã chết nhiều năm như vậy, không đáng lo.
+Người khống chế đầu Thái Đế là Hạo Thiên Tôn. Hắn không quan tâm tới Tà Vô Kỳ. Năm xưa hắn xúi giục Tà Vô Kỳ tạo phản làm loạn, mượn tay Thiên Đế trừ khử vị huynh trưởng này của mình. Tà Vô Kỳ đã chết nhiều năm như vậy, không đáng lo.
 
 Trong mắt hắn chỉ có Minh Nhai Thái Tử.
 

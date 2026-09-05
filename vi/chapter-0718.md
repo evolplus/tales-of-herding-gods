@@ -26,7 +26,7 @@ Lão Ngưu đổ nước trong điếu đi, nói: "Mấy hôm trước có tên 
 
 "Tên đốn củi?"
 
-Tần Mục giật nảy mình: "Tiều phu lão sư bị đánh bị thương? Một tháng chưa nhúc nhích? Ở thôn nào?"
+Tần Mục giật nảy mình: "Tiều Phu lão sư bị đánh bị thương? Một tháng chưa nhúc nhích? Ở thôn nào?"
 
 Lão Ngưu đứng dậy, móng trước chạm đất, vung vung đuôi, nói: "Ta dẫn ngươi đi, nhưng ngươi đừng hòng vớt hắn ra. Lão gia nói rồi, cứ để tên này thối rữa trong rãnh nước bẩn, ai dám vớt hắn ra thì phải chịu ba quyền của lão gia. Ba quyền của lão gia có thể đánh trời thủng ba lỗ!"
 
@@ -122,7 +122,7 @@ Tim Tần Mục thót lên, thái dương xuất hiện một giọt mồ hôi l
 
 Vị Vũ Đấu Thiên Sư này đúng là gan to bằng trời!
 
-"Vũ Đấu Thiên Sư muốn thế nào mới chịu bỏ qua cho Tiều phu lão sư?"
+"Vũ Đấu Thiên Sư muốn thế nào mới chịu bỏ qua cho Tiều Phu lão sư?"
 
 Tần Mục đột nhiên nghiêm mặt nói: "Giang hồ có quy củ của giang hồ, triều đình có quy củ của triều đình. Đã tới giang hồ, vậy theo quy củ giang hồ! Vãn bối Tần Mục tới cứu lão sư, xin Thiên Sư vạch đường!"
 

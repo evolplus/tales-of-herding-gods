@@ -92,7 +92,7 @@ Giọng Xích Minh Thần Tử truyền tới: "Xích Khê, dẫn đệ tử c�
 
 Ban Công Thố trên mặt đất co giật hai cái.
 
-Không lâu sau, Xích Minh Thần Tử nhận được tin: "Sứ giả Diên Khang tới tư thục, cùng một đám trẻ nghịch ngợm cầu học. Thầy giáo không biết phải làm sao, xin hỏi Thần Tử có cần đuổi bọn họ ra không?"
+Không lâu sau, Xích Minh Thần Tử nhận được tin: "Sứ giả Diên Khang tới tư thục, cùng một đám trẻ nghịch ngợm cầu học. Tiên sinh không biết phải làm sao, xin hỏi Thần Tử có cần đuổi bọn họ ra không?"
 
 Xích Minh Thần Tử ngạc nhiên, lắc đầu nói: "Diên Phong Đế hứa cho chúng ta lãnh địa, lại hứa cho chúng ta mở học viện, học cung. Ta không thể nhỏ mọn hơn Diên Phong Đế, cứ để hắn đi."
 

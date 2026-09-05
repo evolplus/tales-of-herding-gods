@@ -92,7 +92,7 @@ Lão giả tóc trắng mày trắng kia mở mắt, chậm rãi nói:
 
 "Đạo môn ta nên làm thế nào?"
 
-"Tìm ra thân phận của vị Ma giáo chủ này, chờ thời cơ trừ bỏ."
+"Tìm ra thân phận của vị Ma giáo chủ này, chờ thời cơ trừ khử."
 
 "Lĩnh pháp chỉ."
 

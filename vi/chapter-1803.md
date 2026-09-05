@@ -62,7 +62,7 @@ Trên mặt Vô Nhai lão nhân cũng có vết bầm chưa tan, cười lạnh 
 
 "Một Chủ nhân Di La Cung khác?"
 
-Tần Mục cười ha hả. Sắc mặt Vô Nhai lão nhân dần tái xanh. Tiếng cười của Tần Mục chậm rãi lắng xuống, hắn lắc đầu nói: "Vô Nhai đạo huynh, ta sẽ không trở thành Chủ nhân Di La Cung, hơn nữa Chủ nhân Di La Cung cũng không phải răm rắp nghe theo huynh. Huynh tuy tự khoe Đạo Thụ của Chủ nhân Di La Cung mô phỏng huynh, nhưng ngay cả huynh cũng phải gọi ông ấy một tiếng thầy. Không có ông ấy khai sáng đạo pháp, khai sáng Đạo Cảnh, huynh cũng chỉ là một gốc cây mà thôi, mơ mơ màng màng, hỗn hỗn độn độn. Là ông ấy thành tựu huynh, không phải huynh thành tựu ông ấy."
+Tần Mục cười ha hả. Sắc mặt Vô Nhai lão nhân dần tái xanh. Tiếng cười của Tần Mục chậm rãi lắng xuống, hắn lắc đầu nói: "Vô Nhai đạo huynh, ta sẽ không trở thành Chủ nhân Di La Cung, hơn nữa Chủ nhân Di La Cung cũng không phải răm rắp nghe theo huynh. Huynh tuy tự khoe Đạo Thụ của Chủ nhân Di La Cung mô phỏng huynh, nhưng ngay cả huynh cũng phải gọi ông ấy một tiếng sư phụ. Không có ông ấy khai sáng đạo pháp, khai sáng Đạo Cảnh, huynh cũng chỉ là một gốc cây mà thôi, mơ mơ màng màng, hỗn hỗn độn độn. Là ông ấy thành tựu huynh, không phải huynh thành tựu ông ấy."
 
 Sắc mặt Vô Nhai lão nhân càng xanh hơn, nhưng không phản bác.
 
