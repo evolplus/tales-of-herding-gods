@@ -74,7 +74,7 @@ Nghiên Thiên Phi hừ một tiếng, lặng thinh không nói.
 
 Tần Mục chống tay lên mũi thuyền, cười nói: “Còn hai cổ thần Thái Cực này cũng cùng Thái Sơ đều là cổ thần sinh từ trứng, xem như huynh muội. Bên này Hạo Thiên Tôn lại là con riêng của Thái Sơ Thiên Đế, tự lập môn hộ, tụ tập bốn vị Thiên Tôn. Mà trong bốn vị Thiên Tôn lại có Cung Thiên Tôn là tình nhân của Thái Sơ, hơn nữa còn là mẹ của Lang Hiên Thần Hoàng.”
 
-Hắn lại bật cười, cười đến lảo đảo không đứng vững: “Thái Tố lại là em gái của Thái Sơ! Ngoài tên nam nhân tiện hạ giết cha Tổ Thần Vương, Hỏa Thiên Tôn căm ghét cái ác như thù, cùng Hư Thiên Tôn toan giết cha ra, Thập Thiên Tôn này vậy mà đều là người một nhà các ngươi! Từ Long Hán đến nay, quyền lực luân chuyển, hóa ra vẫn chưa từng thoát khỏi sự khống chế của cả nhà các ngươi!”
+Hắn lại bật cười, cười đến lảo đảo không đứng vững: “Thái Tố lại là muội muội của Thái Sơ! Ngoài tên nam nhân tiện hạ giết cha Tổ Thần Vương, Hỏa Thiên Tôn căm ghét cái ác như thù, cùng Hư Thiên Tôn toan giết cha ra, Thập Thiên Tôn này vậy mà đều là người một nhà các ngươi! Từ Long Hán đến nay, quyền lực luân chuyển, hóa ra vẫn chưa từng thoát khỏi sự khống chế của cả nhà các ngươi!”
 
 Mọi người sắc mặt âm trầm.
 

@@ -56,7 +56,7 @@ Thiên Công và Xích Hoàng bị quật đến đầu óc choáng váng, vội
 
 Phong ấn trên bầu trời dần khép lại. Thiên Công và Xích Hoàng liếc nhau, lập tức lại bay lên, thử xông ra trước khi phong ấn khép lại.
 
-Khe nứt càng lúc càng nhỏ, mắt thấy sắp khép kín. Đúng lúc này, đột nhiên giọng đứa trẻ từ ngoài trời truyền tới: "Đỡ lấy em trai ta!"
+Khe nứt càng lúc càng nhỏ, mắt thấy sắp khép kín. Đúng lúc này, đột nhiên giọng đứa trẻ từ ngoài trời truyền tới: "Đỡ lấy đệ đệ ta!"
 
 Chỉ thấy từ khe nứt rơi xuống một người, tay chân múa loạn từ trên trời rơi xuống, lờ mờ là một thiếu niên.
 
@@ -74,7 +74,7 @@ Hai người đáp xuống đất, nhìn nhau, than dài thở ngắn.
 
 "Vừa rồi hình như có một người rơi từ ngoài trời xuống." Xích Hoàng đột nhiên nói.
 
-Thiên Công cũng nhớ ra. Hình như tên ma vương hỗn thế kia còn nói đỡ lấy em trai ta gì đó. Trong lòng ông không khỏi sinh ra một cảm giác không lành: "Chẳng lẽ người kia là..."
+Thiên Công cũng nhớ ra. Hình như tên ma vương hỗn thế kia còn nói đỡ lấy đệ đệ ta gì đó. Trong lòng ông không khỏi sinh ra một cảm giác không lành: "Chẳng lẽ người kia là..."
 
 Đang nói, một thiếu niên vóc người cao lớn đi tới, mơ mơ màng màng, hỏi hai người: "Hai vị trưởng lão, nơi này là đâu?"
 

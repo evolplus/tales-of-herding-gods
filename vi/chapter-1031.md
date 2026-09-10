@@ -46,7 +46,7 @@ Vũ Đế cười thành tiếng, lắc đầu nói: "Mục đệ đúng là ng�
 
 Tần Mục cười nói: "Anh rể cũng là người thật thà, chỉ là vụng miệng, khó biểu đạt tình cảm mà thôi."
 
-Long Kỳ Lân thầm khen một tiếng: "Vẫn là giáo chủ biết ăn nói. Trước mặt Huyền Đế thì gọi Vũ Đế là tẩu phu nhân, trước mặt Vũ Đế lại gọi Huyền Đế là anh rể, đều là giọng điệu của em trai ruột. Sau khi xem Hoạn Nhân Kinh của ta, bản lĩnh của ngài ấy càng ngày càng lợi hại, rất có xu thế đệ tử vượt sư phụ rồi!"
+Long Kỳ Lân thầm khen một tiếng: "Vẫn là giáo chủ biết ăn nói. Trước mặt Huyền Đế thì gọi Vũ Đế là tẩu phu nhân, trước mặt Vũ Đế lại gọi Huyền Đế là anh rể, đều là giọng điệu của đệ đệ ruột. Sau khi xem Hoạn Nhân Kinh của ta, bản lĩnh của ngài ấy càng ngày càng lợi hại, rất có xu thế đệ tử vượt sư phụ rồi!"
 
 "Không nhắc hắn nữa."
 

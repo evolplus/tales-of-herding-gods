@@ -28,7 +28,7 @@ Thiên Công mượn đôi mắt hắn quan sát hai nữ thi trong quan tài, t
 
 Tần Mục đột nhiên nói:
 
-"Thiên Công, ta nghe nói chị em Đế hậu giống nhau như đúc, có khi trong quan quách là em gái của Đế hậu."
+"Thiên Công, ta nghe nói chị em Đế hậu giống nhau như đúc, có khi trong quan quách là muội muội của Đế hậu."
 
 "Sẽ không phải nữ tử kia. Các nàng tuy là hai đóa song sinh trong Quy Khư, nhưng vẫn có khác biệt."
 

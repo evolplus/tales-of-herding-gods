@@ -22,7 +22,7 @@ Hóa thân Tần Phượng Thanh giơ tay chộp về phía nguyên thần của
 
 Tần Phượng Thanh tức nghẹn, giận dữ nói: "Ngươi dùng nguyên thần của hắn dụ ta ra, tìm ta làm việc, sao có thể không cho ta lợi lộc?"
 
-Tinh Ngạn nói: "Là em trai ngươi muốn tìm Thương Quân, ta chỉ thay hắn tìm Thương Quân mà thôi."
+Tinh Ngạn nói: "Là đệ đệ ngươi muốn tìm Thương Quân, ta chỉ thay hắn tìm Thương Quân mà thôi."
 
 Tần Phượng Thanh im lặng một lát, tức tối nói: "Đứa em hư! Ngươi chờ một chút, ta giúp ngươi tìm vị trí của Thương Quân!"
 
@@ -40,7 +40,7 @@ Tinh Ngạn khơi lên lòng tham của hắn. Nếu không cho hắn, chắc ch
 
 Tinh Ngạn nói: "Ta muốn lấy đầu của Tần giáo chủ, chỉ là hắn chắc chắn không muốn. Nếu ngươi có thể cho ta cái đầu của ngươi, ta liền tặng nguyên thần của cường giả thời tiền sử này cho ngươi."
 
-Tần Phượng Thanh mừng rỡ, cười nói: "Em trai đúng là ngốc, cắt đầu xuống rồi mọc một cái nữa là được! Ngươi chờ đó!"
+Tần Phượng Thanh mừng rỡ, cười nói: "Đệ đệ đúng là ngốc, cắt đầu xuống rồi mọc một cái nữa là được! Ngươi chờ đó!"
 
 Một lát sau, một tòa Thiên Địa Huyền Môn mở ra. Cái đầu chân thân của Tần Phượng Thanh lăn ra khỏi cánh cửa, kêu lên: "Đầu của ta cho ngươi rồi, đưa nguyên thần của tên kia cho ta!"
 
@@ -58,7 +58,7 @@ Tinh Ngạn mang đầu Tần Phượng Thanh lập tức chạy tới xưởng 
 
 Đợi hắn tới Bá Châu, cuối cùng hắn không nhịn được cơn giận trong lòng: "Cái đầu của Tần giáo chủ căn bản không thông minh như ta tưởng tượng!"
 
-Cái đầu kia đột nhiên mở miệng, đắc ý nói: "Đầu óc em trai ta quả thật không thông minh lắm. Ta đã phát hiện điều này từ lâu, giờ ngươi mới phát hiện, đủ thấy ngươi cũng rất ngốc."
+Cái đầu kia đột nhiên mở miệng, đắc ý nói: "Đầu óc đệ đệ ta quả thật không thông minh lắm. Ta đã phát hiện điều này từ lâu, giờ ngươi mới phát hiện, đủ thấy ngươi cũng rất ngốc."
 
 Tinh Ngạn tức nghẹn.
 
@@ -110,7 +110,7 @@ Thương Quân rời đi.
 
 Tinh Ngạn nghĩ một chút rồi cũng rời đi cùng hắn, nói: "Tần giáo chủ còn nợ ta một cỗ quan tài. Hơn nữa, cái đầu này không hợp dùng lắm."
 
-Cái đầu của Tần Phượng Thanh bay đi, cười nói: "Không hợp dùng thì ta thu về. Ngươi gặp em trai ta thì nói với hắn bốn mươi hai năm sắp tới hạn, ta muốn thấy người kia!"
+Cái đầu của Tần Phượng Thanh bay đi, cười nói: "Không hợp dùng thì ta thu về. Ngươi gặp đệ đệ ta thì nói với hắn bốn mươi hai năm sắp tới hạn, ta muốn thấy người kia!"
 
 "Bốn mươi hai năm sắp tới hạn? Ý gì?" Tinh Ngạn khó hiểu.
 

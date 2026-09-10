@@ -56,7 +56,7 @@ Trước kia Lão què vẫn luôn thích độc lai độc vãng. Nhưng từ k
 
 Sau này tái xuất giang hồ, Lão mù, Lão câm, Dược sư và những người khác đều có vô số chuyện phải làm, không ai làm bạn với lão. Tần Mục cũng không thường xuyên trở về, lão một mình chạy tới chạy lui đào mộ, sang các chư thiên khác thăm thú, cũng thấy vô vị.
 
-Bỗng một ngày, Lão què nhớ ra Tần Mục có một người em trai là Lam Ngự Điền, thế là chạy đến U Đô trộm Lam Ngự Điền ra.
+Bỗng một ngày, Lão què nhớ ra Tần Mục có một đệ đệ là Lam Ngự Điền, thế là chạy đến U Đô trộm Lam Ngự Điền ra.
 
 Vừa khéo Mã gia từ chức Như Lai, rời Tu Di Sơn, Lão què bèn mời vị thần bộ từng lừng danh này chỉ điểm nghề nghiệp cho mình, mỹ danh là cùng nhau tiến bộ.
 

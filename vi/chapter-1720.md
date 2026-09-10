@@ -68,7 +68,7 @@ Hai người vừa đi vừa nói. Thái Sơ nhìn xa về phương xa, nói: �
 
 Thân thể Thái Sơ khẽ chấn động, nhìn nàng chằm chằm, đột nhiên nói: “Ngươi không phải Nguyên Mẫu phu nhân! Nguyên Mẫu sẽ không nghiêm chỉnh phân tích lợi hại như thế!”
 
-Đế hậu nương nương đi về phía trước, nói: “Chúng ta làm vợ chồng một thời, đến bây giờ ngươi mới nhìn ra ta không phải con tiện nhân em gái kia? Ha ha, đàn ông à, lúc nào cũng suy nghĩ bằng nửa thân dưới... Thái Sơ, ngươi còn chưa phát hiện sao? Chủ lực của trận chiến này đã không phải chúng ta nữa, mà là Di La Cung! Trong trận chiến này, chúng ta chỉ cần giữ được mình là tốt.”
+Đế hậu nương nương đi về phía trước, nói: “Chúng ta làm vợ chồng một thời, đến bây giờ ngươi mới nhìn ra ta không phải con tiện nhân muội muội kia? Ha ha, đàn ông à, lúc nào cũng suy nghĩ bằng nửa thân dưới... Thái Sơ, ngươi còn chưa phát hiện sao? Chủ lực của trận chiến này đã không phải chúng ta nữa, mà là Di La Cung! Trong trận chiến này, chúng ta chỉ cần giữ được mình là tốt.”
 
 Thái Sơ bước nhanh đuổi theo nàng, hạ thấp giọng: “Sau khi các bậc thành đạo của Di La Cung tới, quyền thế của chúng ta sẽ hóa thành bọt nước mộng ảo!”
 

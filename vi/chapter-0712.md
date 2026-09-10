@@ -46,11 +46,11 @@ Sắc mặt lão âm sai âm trầm, hừ một tiếng.
 
 Tần Mục vội nói: "Lần này người chiêu hồn là lão sư của ta. Ta đang bận, không rảnh chiêu hồn nên bảo ông ấy làm. Ông ấy không hiểu, làm bừa, kinh động Phủ quân, xin thứ tội. Hay là đổi thành ta tự mình chiêu hồn?"
 
-Lão âm sai im lặng một lát, giọng cứng nhắc: "Không cần. Tuy phong ấn rất chắc, nhưng vẫn phải cẩn thận hành sự, tránh để hồn ngươi gọi về đều thành đồ ăn cho anh ngươi."
+Lão âm sai im lặng một lát, giọng cứng nhắc: "Không cần. Tuy phong ấn rất chắc, nhưng vẫn phải cẩn thận hành sự, tránh để hồn ngươi gọi về đều thành đồ ăn cho ca ca ngươi."
 
 Tần Mục cười nói: "Phủ quân yên tâm, lá liễu trên mi tâm ta dán rất tốt, chưa từng bóc ra. Anh ta không chạy ra được đâu."
 
-Sắc mặt lão âm sai dịu đi đôi chút, dặn: "Tốt nhất là vĩnh viễn đừng bóc ra. Ngươi thả anh ngươi ra, gây họa rồi vẫn là Thổ Bá phải thu dọn cho ngươi. Việc chiêu hồn lần này ta không truy cứu. U Đô có một quy củ, người chết trong đầu thất còn chưa tính là người chết, vẫn có thể hoàn dương, cho nên không phải U Đô sợ ngươi, cũng không phải ta nể mặt ngươi, mà thật sự có quy củ này. Ngươi cẩn thận một chút."
+Sắc mặt lão âm sai dịu đi đôi chút, dặn: "Tốt nhất là vĩnh viễn đừng bóc ra. Ngươi thả ca ca ngươi ra, gây họa rồi vẫn là Thổ Bá phải thu dọn cho ngươi. Việc chiêu hồn lần này ta không truy cứu. U Đô có một quy củ, người chết trong đầu thất còn chưa tính là người chết, vẫn có thể hoàn dương, cho nên không phải U Đô sợ ngươi, cũng không phải ta nể mặt ngươi, mà thật sự có quy củ này. Ngươi cẩn thận một chút."
 
 Tần Mục liên tục xưng vâng, nói: "Cung tiễn."
 

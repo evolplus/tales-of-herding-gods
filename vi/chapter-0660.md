@@ -124,13 +124,13 @@ Phân thân Thiên Công thúc toàn bộ sức mạnh, mạnh mẽ ném Tần M
 
 Tần Mục vừa kinh vừa mừng, lập tức dán lá liễu vàng lên mi tâm, phong ấn con mắt thứ ba của mình.
 
-"Em trai! Em trai xấu!"
+"Đệ đệ! Đệ đệ xấu!"
 
 Trong mi tâm cậu, cự anh giận đến giậm chân, hết lần này tới lần khác nhảy lên, thử trốn khỏi phong ấn. Nhưng lá liễu vàng đã nối thành một thể với phong ấn Thổ Bá và trấn áp lão Phật, mặc cho hắn thần thông quảng đại cũng không thể phá phong.
 
-"Em trai xấu, ăn!"
+"Đệ đệ xấu, ăn!"
 
-Qua một lát, cự anh ngồi phịch xuống đất, chộp lấy Xích Hoàng bị đánh thương tích đầy mình, giật rơi một cánh tay ném xuống đất, tức phồng má nói: "Bắt được em trai xấu, liền ăn!" Dứt lời, lại giật rơi một cánh tay.
+Qua một lát, cự anh ngồi phịch xuống đất, chộp lấy Xích Hoàng bị đánh thương tích đầy mình, giật rơi một cánh tay ném xuống đất, tức phồng má nói: "Bắt được đệ đệ xấu, liền ăn!" Dứt lời, lại giật rơi một cánh tay.
 
 Xích Hoàng bị xé đến bốn phần năm mảnh. Sau một tòa núi lớn ở xa, phân thân Thiên Công áo trắng tóc trắng mày trắng thò đầu ra. Lão nhân kinh hồn táng đảm, đè thấp giọng nói: "Xích Hoàng, nhịn, đừng động. Hắn giật một lúc không còn hứng thú, sẽ không chơi ngươi nữa, nhất định phải nhịn..."
 
