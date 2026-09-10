@@ -148,6 +148,6 @@ Tần Mục cười lạnh: "Vào lúc Diên Khang cần Vô Ưu Hương bảo v
 
 Oán giận của hắn đối với Khai Hoàng chưa từng hoàn toàn tiêu tan, nói: "Diên Khang từ đầu đến cuối đều là phàm phu tục tử bị ông ấy vứt bỏ, không phải vứt bỏ một lần, mà là hai lần! Người cứu dân chúng Diên Khang chưa bao giờ là ông ấy, mà là Sơ Tổ."
 
-Hắn đứng lên, lơ lửng trên vai Lãng Uyển Thần Vương, chân đạp hư không, ngang bằng dái tai của nữ tử này, nói: "Chị, thần thức của chị rộng lớn, hãy thông báo cho tất cả mọi người ở Vô Ưu Hương, nói rằng Thần Vương và Thánh Anh của tộc Tạo Vật Chủ muốn gặp Khai Hoàng một lần, định ra hòa bình vạn đời cho hai tộc! Hỏi ông ấy có dám tới không!"
+Hắn đứng lên, lơ lửng trên vai Lãng Uyển Thần Vương, chân đạp hư không, ngang bằng dái tai của nữ tử này, nói: "Tỷ tỷ, thần thức của tỷ tỷ rộng lớn, hãy thông báo cho tất cả mọi người ở Vô Ưu Hương, nói rằng Thần Vương và Thánh Anh của tộc Tạo Vật Chủ muốn gặp Khai Hoàng một lần, định ra hòa bình vạn đời cho hai tộc! Hỏi ông ấy có dám tới không!"
 
 [Xem chương tiếp theo](chapter-0985.md)

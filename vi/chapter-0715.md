@@ -42,7 +42,7 @@ Bốn phía tượng đá đã được xây gạch đá vây lại, nhưng ngo�
 
 Đế Dịch Nguyệt thấy vậy mà vẫn còn dân chúng tới dâng hương cầu khấn, không khỏi lắc đầu, nói: "Tượng đá sống lại thì sẽ giáng kiếp cho Diên Khang. Những dân chúng không có tu vi thực lực này chắc chắn sẽ chết ngay đợt tai kiếp đầu tiên. Cúng bái Tai Thần giáng kiếp để giết chính mình, là đạo lý gì?"
 
-Tần Mục nói: "Chị, đây chính là chỗ khó khi phá thần miếu trong lòng. Thần càng đáng sợ, ngược lại càng khiến dân ngu kính sợ, càng dễ được cúng bái. Quốc sư cải cách dân tục chính là để phá thần trong lòng dân chúng. Dù là thần thông giả hay thần ma, đều phải được con người sử dụng, phục vụ con người."
+Tần Mục nói: "Tỷ tỷ, đây chính là chỗ khó khi phá thần miếu trong lòng. Thần càng đáng sợ, ngược lại càng khiến dân ngu kính sợ, càng dễ được cúng bái. Quốc sư cải cách dân tục chính là để phá thần trong lòng dân chúng. Dù là thần thông giả hay thần ma, đều phải được con người sử dụng, phục vụ con người."
 
 Lông vũ của tượng đá này đã chuyển biến từ đá thành lông vũ thật sự, rõ ràng đã hấp thu không ít khí huyết người chết, mơ hồ có dấu hiệu sống lại.
 
@@ -124,7 +124,7 @@ Nàng búng ngón tay. Nữ thần đầu chim đột nhiên thân bất do kỷ
 
 Đế Dịch Nguyệt giơ tay, nhẹ nhàng phất qua cửa động không gian, không gian khôi phục bằng phẳng, không thấy chút dấu vết nào.
 
-Tần Mục lo lắng nói: "Chị, chị để nàng để lại một cánh rồi mới đi, có để lại hậu họa không? Nàng nhất định sẽ ghi hận chị."
+Tần Mục lo lắng nói: "Tỷ tỷ, tỷ tỷ để nàng để lại một cánh rồi mới đi, có để lại hậu họa không? Nàng nhất định sẽ ghi hận tỷ tỷ."
 
 Đế Dịch Nguyệt cười nói: "Hậu họa đương nhiên là có, nhưng mấy sư đệ sư muội nhỏ này ghi hận thì ta không để trong lòng. Đáng ngại là mấy vị sư phụ của ta đều là những nhân vật hung ác. Chủ yếu là ta lười, lười đi tìm các tượng đá ấy. Tiểu sư đệ tiểu sư muội chịu thiệt chắc chắn sẽ về nói với Bắc Đế, Nam Đế. Bắc Đế Nam Đế biết ta ở đây, liền biết không thể giáng kiếp. Cưỡng ép giáng kiếp, đệ tử của họ chắc chắn sẽ chịu thiệt, nên họ sẽ triệu hồi những tượng đá khác, khỏi để mỗi đệ tử đều đứt một cánh tay. Còn ta cũng đỡ phải đi tìm từng tượng đá một, vẹn cả đôi đường."
 
@@ -136,7 +136,7 @@ Tần Mục đã nhặt cánh lên. Đế Dịch Nguyệt kinh ngạc, quan sát
 
 Đế Dịch Nguyệt kinh ngạc nói: "Thiên Hỏa Đại Đạo ngươi dùng Thái Vi Toán Kinh suy tính ra?"
 
-Tần Mục gật đầu, cười nói: "Em từ nhỏ quen sống thanh bần. Vị tỷ tỷ vừa rồi hẳn là cao thủ cảnh giới Trảm Thần Đài, cánh của nàng chắc có thể luyện chế thần đao và thần kiếm không tệ, nên em cất trước."
+Tần Mục gật đầu, cười nói: "Ta từ nhỏ quen sống thanh bần. Vị tỷ tỷ vừa rồi hẳn là cao thủ cảnh giới Trảm Thần Đài, cánh của nàng chắc có thể luyện chế thần đao và thần kiếm không tệ, nên ta cất trước."
 
 Cậu bỏ cánh vào túi Thao Thiết, sắp xếp ra một khoảng trống, tránh để Chu Tước Thánh Hỏa đốt bảo vật trong túi Thao Thiết của cậu thành tro.
 

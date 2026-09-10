@@ -104,11 +104,11 @@ Muốn vận dụng uy lực của Thanh Long Châu, cần thiết lập liên h
 
 Độc trên người Long Kỳ Lân lại giảm bớt không ít, đã có thể đứng dậy. Hắn vội vẫy đuôi, chiếc đuôi rồng thật dài phía sau quét bụi khắp bốn phía, kêu lên: "Giáo chủ, đưa châu cho ta!"
 
-Tần Mục không để ý tới hắn, tiện tay ném Thanh Long Châu cho tiểu nha đầu Hùng Kỳ Nhi, cười nói: "Cái này cho em chơi."
+Tần Mục không để ý tới hắn, tiện tay ném Thanh Long Châu cho tiểu nha đầu Hùng Kỳ Nhi, cười nói: "Cái này cho muội chơi."
 
 Hùng Kỳ Nhi nắm lấy Thanh Long Châu, cười ngọt ngào nói: "Cảm ơn ca ca!"
 
-Long Kỳ Lân nước dãi chảy ào ào, vẫy đuôi với Hùng Kỳ Nhi: "Chị ơi, cho ta chơi viên châu một chút đi! Chị yên tâm, ta tuyệt đối không ăn, ta dám cam đoan!"
+Long Kỳ Lân nước dãi chảy ào ào, vẫy đuôi với Hùng Kỳ Nhi: "Tỷ tỷ, cho ta chơi viên châu một chút đi! Tỷ tỷ yên tâm, ta tuyệt đối không ăn, ta dám cam đoan!"
 
 Tần Mục vội lấy ra mấy bình ngọc đặt dưới miệng gã này hứng long diên hương, thầm nghĩ: "Hứng thêm mấy bình, về kinh thành bán đi, lại có tiền rồi... Ừm, lần này về thôn trước, đón Linh Nhi tới. Nàng quản tiền giỏi hơn ta nhiều."
 

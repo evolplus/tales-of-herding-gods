@@ -82,7 +82,7 @@ Tần Mục nhìn thấy ông, cơn hoảng loạn trong lòng bỗng tan biến
 
 Quốc sư Diên Khang nhận lấy Sinh Tử Bộ, thản nhiên nói: "Sư phụ còn chuyện quan trọng khác. Nhưng thúc động Sinh Tử Bộ thế nào, ta cũng hiểu."
 
-Pháp lực của ông bùng phát. Sinh Tử Bộ đột nhiên xoạt một tiếng mở ra, ánh sáng chói lọi, treo cao trên không. Một màn sáng chiếu xuống, phủ lên đám thần ma xương trắng Uất Liêu. Ông nói: "Sư đệ có thể bảo mọi người rút gương đi rồi."
+Pháp lực của ông bùng phát. Sinh Tử Bộ đột nhiên xoạt một tiếng mở ra, ánh sáng chói lọi, treo cao trên không. Một màn sáng chiếu xuống, phủ lên đám thần ma xương trắng Uất Liêu. Ông nói: "Sư huynh có thể bảo mọi người rút gương đi rồi."
 
 Tần Mục kinh nghi bất định, hạ lệnh cho mọi người rút gương. Chỉ thấy một cuốn Sinh Tử Bộ khác bay tới, cũng có ánh sáng chiếu xuống, nhưng đám Uất Liêu vẫn bình yên vô sự.
 

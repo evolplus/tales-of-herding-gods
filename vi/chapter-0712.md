@@ -78,15 +78,15 @@ Tần Mục chuyên tâm suy tính thiết kế phù văn tạo hóa, đầu cũ
 
 Đế Dịch Nguyệt tròn mắt, dở khóc dở cười: "Dễ nói chuyện? Ngươi không biết Thiên Tề Nhân Thánh Vương là nhân vật số hai của U Đô, chỉ dưới Thổ Bá sao? Nếu ông ta dễ nói chuyện, những thần ma bị ông ta đánh chết câu hồn chẳng phải sẽ khóc đến sống lại? Chỉ cần phạm vào quy tắc U Đô, dù hủy diệt một thế giới, vị Nhân Thánh Vương này cũng không tiếc!"
 
-Tần Mục thiết kế xong phù văn tạo hóa, thử nghiệm một phen, lắc đầu nói: "Chắc chắn là lời đồn. Phủ quân là một lão nhân hiền lành, chưa bao giờ nổi giận. Chị, đừng cử động, em sắp làm phép chữa thương cho chị."
+Tần Mục thiết kế xong phù văn tạo hóa, thử nghiệm một phen, lắc đầu nói: "Chắc chắn là lời đồn. Phủ quân là một lão nhân hiền lành, chưa bao giờ nổi giận. Tỷ tỷ, đừng cử động, ta sắp làm phép chữa thương cho tỷ tỷ."
 
 Đế Dịch Nguyệt vội đứng yên, không nhúc nhích.
 
-Tần Mục định ra tay, cảm thấy không thuận lắm, đành nói: "Chị cao quá, vẫn nên nằm xuống, em mới tiện động thủ."
+Tần Mục định ra tay, cảm thấy không thuận lắm, đành nói: "Tỷ tỷ cao quá, vẫn nên nằm xuống, ta mới tiện động thủ."
 
 Đế Dịch Nguyệt nghe lời nằm ngang, lơ lửng giữa không trung, cách mặt đất năm thước.
 
-Mái tóc đẹp của nàng như tua rua chảy xuống, rất có độ rũ. Y phục đen trên người cũng như lụa trơn buông xuống. Tần Mục liếc bộ ngực dù đang nằm vẫn nhô cao của nàng, thầm khen: "Chị thật đẹp."
+Mái tóc đẹp của nàng như tua rua chảy xuống, rất có độ rũ. Y phục đen trên người cũng như lụa trơn buông xuống. Tần Mục liếc bộ ngực dù đang nằm vẫn nhô cao của nàng, thầm khen: "Tỷ tỷ thật đẹp."
 
 Thiếu niên đơn thuần tuy cũng nhìn mặt, nhưng vì thuở nhỏ được các lão nhân Tàn Lão Thôn dạy dỗ, cậu cố chấp cho rằng không thể chỉ nhìn mặt, còn phải nhìn ngực.
 
@@ -114,7 +114,7 @@ Cậu khống chế pháp lực của mình, khiến biến hóa của phù văn
 
 Phù văn cuối cùng của Tần Mục sáng tắt bất định, cuối cùng tản đi. Đế Dịch Nguyệt giơ tay sờ trán, kinh ngạc không thôi, cười nói: "Đại pháp sư quả nhiên có tạo hóa thuật xảo đoạt thiên công!"
 
-Tần Mục cười nói: "Chị lật người lại, sau đầu còn một lỗ thủng chưa tu bổ... Chậm thôi, coi chừng não chảy ra. Dược sư gia gia, tạo hóa thuật không thể thay thế y thuật, cũng không thể thay thế Dược sư."
+Tần Mục cười nói: "Tỷ tỷ lật người lại, sau đầu còn một lỗ thủng chưa tu bổ... Chậm thôi, coi chừng não chảy ra. Dược sư gia gia, tạo hóa thuật không thể thay thế y thuật, cũng không thể thay thế Dược sư."
 
 Cậu chữa sau đầu cho Đế Dịch Nguyệt, nói: "Tạo hóa thuật thứ nhất là rất khó tinh thông. Muốn tu luyện đến bước như con cũng không phải không thể, chỉ cần thiên tư xuất chúng như con, tốn mấy vạn năm chăm chỉ khổ luyện, phần lớn cũng làm được."
 
@@ -122,6 +122,6 @@ Người khác tuy không biết chỗ khó của tạo hóa thuật, nhưng c�
 
 "Hơn nữa, thân thể người là một đại hệ thống. Thân xác thần ma chính là một tiểu thế giới. Tạo hóa thuật có thể tu bổ cơ thể, nhưng duy trì cân bằng hệ thống thân thể người và cân bằng thế giới thân xác thần ma thì vẫn cần Dược sư."
 
-Tần Mục tản phù văn, lấy ra một chiếc gương nhỏ đưa cho Đế Dịch Nguyệt, nói: "Chị xem thử có giống trước kia không?"
+Tần Mục tản phù văn, lấy ra một chiếc gương nhỏ đưa cho Đế Dịch Nguyệt, nói: "Tỷ tỷ xem thử có giống trước kia không?"
 
 [Xem chương tiếp theo](chapter-0713.md)

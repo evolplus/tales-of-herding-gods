@@ -4,13 +4,13 @@
 
 "Đợi đã!"
 
-Tần Mục vội ngăn nàng lại, nói: "Đừng động! Khi chị cười, khóe mắt có một nếp nhăn rất nhỏ, em giúp chị xóa nó."
+Tần Mục vội ngăn nàng lại, nói: "Đừng động! Khi tỷ tỷ cười, khóe mắt có một nếp nhăn rất nhỏ, ta giúp tỷ tỷ xóa nó."
 
 Đế Dịch Nguyệt vội đứng yên bất động. Tần Mục ghé tới, đầu ngón tay bắn ra phù văn nhỏ xíu, kích hoạt da nơi khóe mắt nàng, vuốt phẳng nếp nhăn, khiến làn da nơi khóe mắt phượng của nàng trở nên mịn màng trắng nõn.
 
 Đế Dịch Nguyệt chớp mắt, giơ gương lên soi thêm mấy lượt, mỉm cười trước gương, phát hiện nếp nhăn nhỏ nơi khóe mắt quả nhiên biến mất, trong lòng rất vui.
 
-Tần Mục khen: "Chị thật đẹp."
+Tần Mục khen: "Tỷ tỷ thật đẹp."
 
 Đế Dịch Nguyệt mừng không kìm được, còn hơi thẹn thùng.
 

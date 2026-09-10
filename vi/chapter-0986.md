@@ -38,7 +38,7 @@ Tần Mục và Lãng Uyển Thần Vương tiễn họ. Khai Hoàng vội nói:
 
 Tần Mục nhìn theo họ bước ra khỏi bình đài. Tần Hán Trân quay đầu nhỏ giọng nói: "Đừng về!" Dứt lời, ông cùng Khai Hoàng, Yên Vân Hề trở về Vô Ưu Hương.
 
-"Chị, định ra hiệp ước hòa bình với Vô Ưu Hương, liệu có kích thích bất mãn trong nội bộ Tạo Vật Chủ không?" Tần Mục nghiêng đầu hỏi nữ tử bên cạnh.
+"Tỷ tỷ, định ra hiệp ước hòa bình với Vô Ưu Hương, liệu có kích thích bất mãn trong nội bộ Tạo Vật Chủ không?" Tần Mục nghiêng đầu hỏi nữ tử bên cạnh.
 
 Lãng Uyển Thần Vương lắc đầu, nói: "Ngươi là Thánh Anh, quyết định của ngươi chính là quyết định của mọi Tạo Vật Chủ, cũng là quyết định của các tiên linh. Họ sẽ không phản đối ngươi. Nói ra thì tộc Tạo Vật Chủ chúng ta thật ra là kẻ thất bại, chỉ trốn ở đây mà thôi, không có dã tâm lớn, đều là những người cầu bình an, cầu sinh tồn."
 

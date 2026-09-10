@@ -50,9 +50,9 @@ Tần Mục tỉnh táo trở lại, vội lấy lá liễu dán lên mi tâm, t
 
 "Lão sư, Sơ Tổ, mọi người đều sống lại rồi?"
 
-Cậu vừa mừng vừa kinh ngạc, rồi nhìn sang Đế Dịch Nguyệt, vội chỉnh lại áo mũ, lấy ra một chiếc gương soi, lúc này mới hành lễ: "Lão sư, vị chị tiên nữ này là ai?"
+Cậu vừa mừng vừa kinh ngạc, rồi nhìn sang Đế Dịch Nguyệt, vội chỉnh lại áo mũ, lấy ra một chiếc gương soi, lúc này mới hành lễ: "Lão sư, vị tiên nữ tỷ tỷ này là ai?"
 
-"Chị tiên nữ?"
+"Tiên nữ tỷ tỷ?"
 
 Đế Dịch Nguyệt vui như nở hoa, ấn tượng xấu về Tần Mục lúc nãy lập tức tan biến, cười nói: "Thiên Sư, nhị đồ đệ của ngươi có mắt nhìn không tệ, hơn Khai Hoàng nhiều, cũng hơn ngươi nhiều, đúng là nhân tài! Ngươi thu đồ đệ này không sai."
 
@@ -72,7 +72,7 @@ Tiều phu, Phược Nhật La, Xích Khê và Sơ Tổ đều có sắc mặt k
 
 Đế Dịch Nguyệt chẳng để ý, cười nói: "Đệ đệ... ôi chao, ta còn chưa thể gọi ngươi là đệ đệ. Ngươi là đệ tử của Đại Thiên Sư, lại là hậu nhân Khai Hoàng, nếu ta gọi ngươi là đệ đệ, chẳng phải bối phận của ta thấp hơn bọn họ sao?"
 
-Tần Mục nói: "Chị à, chúng ta cứ ai kết giao với người nấy chẳng phải được rồi sao?"
+Tần Mục nói: "Tỷ tỷ, chúng ta cứ ai kết giao với người nấy chẳng phải được rồi sao?"
 
 Đế Dịch Nguyệt vui như nở hoa, khen: "Ý này hay. Từ nay cứ quyết định vậy, chúng ta là tỷ đệ, còn với người khác thì ai luận giao tình của người nấy."
 
@@ -82,23 +82,23 @@ Mà tim của Đế Dịch Nguyệt cũng đã ngừng đập, máu không còn 
 
 Chỉ là nguyên thần của nàng quá mạnh, vẫn có thể khống chế thân thể này, khiến nàng trông như người sống.
 
-"Thương thế của chị nặng quá."
+"Thương thế của tỷ tỷ nặng quá."
 
 Tần Mục nói: "Sao lại bị thương nặng như vậy?"
 
-Đế Dịch Nguyệt ảm đạm nói: "Gặp người không tốt. Chị gả cho một kẻ phụ lòng, kết quả bị kẻ phụ lòng ấy hại. Đây không phải thương, người chết sao tính là bị thương?"
+Đế Dịch Nguyệt ảm đạm nói: "Gặp người không tốt. Tỷ tỷ gả cho một kẻ phụ lòng, kết quả bị kẻ phụ lòng ấy hại. Đây không phải thương, người chết sao tính là bị thương?"
 
 Tần Mục cẩn thận kiểm tra vết thương của nàng. Cậu áp sát như vậy cũng không nghe được hơi thở của Đế Dịch Nguyệt. Trong vết thương của nàng còn tàn dư thần thông, uy lực thần thông cực kỳ mạnh, khiến cậu không dám chạm vào.
 
 "Là thương thế, còn cứu được. Tuy rất nặng, nhưng chưa nghiêm trọng đến hết cách."
 
-Tần Mục kiểm tra một lượt, vòng ra sau đầu Đế Dịch Nguyệt, nhìn vào trong lỗ thủng quan sát, nói: "Chỉ là tàn dư thần thông nơi miệng vết thương thì em không xử lý được. Chị có thể tự xử lý chỗ bị thương không?"
+Tần Mục kiểm tra một lượt, vòng ra sau đầu Đế Dịch Nguyệt, nhìn vào trong lỗ thủng quan sát, nói: "Chỉ là tàn dư thần thông nơi miệng vết thương thì ta không xử lý được. Tỷ tỷ có thể tự xử lý chỗ bị thương không?"
 
 Đế Dịch Nguyệt kinh ngạc, vận huyền công xóa đi tàn dư thần thông Âm Thiên Tử lưu lại trong vết thương, tò mò nói: "Ta là cảnh giới Đế Tọa, ngươi là cảnh giới Thiên Nhân. Ngươi có thủ đoạn gì có thể trị thương cho Đế Tọa?"
 
 Tần Mục lắc mình, hiện ra ba đầu sáu tay, giơ tay phóng một đạo kiếm quang chém xuống cái đầu bên trái của mình.
 
-Đế Dịch Nguyệt giật nảy mình. Tần Mục xách cái đầu bên trái của chính mình, cười nói: "Chị xem."
+Đế Dịch Nguyệt giật nảy mình. Tần Mục xách cái đầu bên trái của chính mình, cười nói: "Mời tỷ tỷ xem."
 
 Cổ cậu lay động, vậy mà lại mọc ra một cái đầu nữa!
 
@@ -136,21 +136,21 @@ Hàng vạn sĩ tử và cường giả Diên Khang đều khổ công nghiên c
 
 Nhưng ngoài Tiều phu ra, gần như không ai biết Tần Mục đã sớm đặt chân lên đỉnh núi cao nhất.
 
-Tần Mục tản đi ba đầu sáu tay, cười nói: "Thương thế của chị, với người khác thì rất khó trị, nhưng với em lại không quá khó. Chị có nghiên cứu về tạo hóa thuật không?"
+Tần Mục tản đi ba đầu sáu tay, cười nói: "Thương thế của tỷ tỷ, với người khác thì rất khó trị, nhưng với ta lại không quá khó. Tỷ tỷ có nghiên cứu về tạo hóa thuật không?"
 
 Đế Dịch Nguyệt lắc đầu: "Có nghiên cứu sơ qua, nhưng tạo nghệ không sâu, không bằng Đại Thiên Sư."
 
 Đại Thiên Sư trong miệng nàng chính là Tiều Phu Thánh Nhân.
 
-Tần Mục đi qua đi lại, nói: "Thân xác của chị đã chết, thời gian tử vong hẳn đã rất lâu, nhưng được bảo tồn rất tốt, rất tươi mới, như vừa chết vậy. Nhưng chị đi lại giữa nhân gian, thời gian kéo dài càng lâu thì thân xác càng dễ mục rữa. Nếu thật sự mục rữa, vậy mới là chết thật. Thế này..."
+Tần Mục đi qua đi lại, nói: "Thân xác của tỷ tỷ đã chết, thời gian tử vong hẳn đã rất lâu, nhưng được bảo tồn rất tốt, rất tươi mới, như vừa chết vậy. Nhưng tỷ tỷ đi lại giữa nhân gian, thời gian kéo dài càng lâu thì thân xác càng dễ mục rữa. Nếu thật sự mục rữa, vậy mới là chết thật. Thế này..."
 
-Cậu ngẩng đầu cười: "Em dùng Tạo Hóa Huyền Công giúp chị chữa trị! Đợi chị sống lại, chị có thể tự từ từ lĩnh ngộ tạo hóa thuật."
+Cậu ngẩng đầu cười: "Ta dùng Tạo Hóa Huyền Công giúp tỷ tỷ chữa trị! Đợi tỷ tỷ sống lại, tỷ tỷ có thể tự từ từ lĩnh ngộ tạo hóa thuật."
 
 Đế Dịch Nguyệt kinh ngạc: "Ngươi thật sự có thể chữa thân xác của cường giả Đế Tọa? Ta là cảnh giới Đế Tọa!"
 
 Tần Mục đầy tự tin: "Lương y như từ mẫu..."
 
-"Phi, chiếm tiện nghi của chị." Đế Dịch Nguyệt liếc trắng cậu, nhưng chẳng có vẻ gì là giận.
+"Phi, chiếm tiện nghi của tỷ tỷ." Đế Dịch Nguyệt liếc trắng cậu, nhưng chẳng có vẻ gì là giận.
 
 Tiều phu, Phược Nhật La và những người khác nhìn nhau.
 

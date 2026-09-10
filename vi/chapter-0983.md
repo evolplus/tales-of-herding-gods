@@ -48,7 +48,7 @@ Tần Mục cười nói: "Nếu ta trở thành một Thái Đế khác, ai bi�
 
 Thúc Quân trừng to mắt, lần này tròng mắt không nhảy ra, nói: "Ngươi nói vậy mà lại rất có lý, chỉ là ngươi thật sự tốt bụng như thế sao? Ta không tin. Tiểu tử ngươi quá gian trá."
 
-Tần Mục mỉm cười, nói với Lãng Uyển Thần Vương: "Chị, hãy để những Tạo Vật Chủ này nghỉ ngơi một thời gian, khôi phục thể lực và thần thức. Đợi họ khôi phục xong, chúng ta sẽ đi Vô Ưu Hương."
+Tần Mục mỉm cười, nói với Lãng Uyển Thần Vương: "Tỷ tỷ, hãy để những Tạo Vật Chủ này nghỉ ngơi một thời gian, khôi phục thể lực và thần thức. Đợi họ khôi phục xong, chúng ta sẽ đi Vô Ưu Hương."
 
 Lãng Uyển Thần Vương kinh ngạc: "Tất cả Tạo Vật Chủ đều đi Vô Ưu Hương?"
 

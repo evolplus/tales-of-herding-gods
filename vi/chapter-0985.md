@@ -118,7 +118,7 @@ Tần Mục nhìn Lãng Uyển Thần Vương. Lãng Uyển Thần Vương khẽ
 
 Tần Mục nói: "Vùng đất Thái Hư thuộc về Tạo Vật Chủ, Vô Ưu Hương không được nhúng tay. U Đô Thần Tử làm Thổ Bá của Thái Hư U Đô, xử sự cần công chính, xác lập sinh tử luân hồi, không được tùy theo yêu ghét mà nuốt linh hồn. Nếu Vô Ưu Hương có thể làm được, hai tộc hòa thuận chung sống, cùng chống cường địch."
 
-Nói tới đây, hắn nhìn Lãng Uyển Thần Vương, nói: "Chị còn gì cần bổ sung không?"
+Nói tới đây, hắn nhìn Lãng Uyển Thần Vương, nói: "Tỷ tỷ còn gì cần bổ sung không?"
 
 Ánh mắt Lãng Uyển Thần Vương lóe lên, nói: "Vô Ưu Hương tới lãnh địa Tạo Vật Chủ lập học viện, học cung, truyền thụ thần thông đạo pháp. Đổi lại, Tạo Vật Chủ cũng có thể lập học cung, học viện trong Vô Ưu Hương, truyền thụ con đường tu luyện thần thức."
 

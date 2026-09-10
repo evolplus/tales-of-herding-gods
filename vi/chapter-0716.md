@@ -102,15 +102,15 @@ Sơ Tổ Nhân Hoàng cũng cáo từ: "Ta cũng có việc quan trọng." Dứt
 
 Tần Mục chớp mắt, nhìn theo bọn họ rời đi, thầm nghĩ: "Tiều Phu lão sư có việc thì cũng thôi, vì sao Sơ Tổ cũng nhiều việc như vậy? Ông ấy đang bận chuyện gì?"
 
-Đế Dịch Nguyệt nhìn cậu, cười nói: "Đệ đệ, ngươi cũng có việc sao? Nếu không có, chi bằng theo ta đi tìm Điền Thục Thiên Vương, giúp Diêm Vương tái tạo Phong Đô. Sau đó chúng ta lại đi gặp Thiên Âm nương nương. Bái hội Thiên Âm nương nương xong, chị lại dẫn ngươi đi khắp nơi, bái hội Thiên Công, Thổ Bá, rồi bái hội các cao nhân Đế Tọa khác, rất có lợi cho ngươi!"
+Đế Dịch Nguyệt nhìn cậu, cười nói: "Đệ đệ, ngươi cũng có việc sao? Nếu không có, chi bằng theo ta đi tìm Điền Thục Thiên Vương, giúp Diêm Vương tái tạo Phong Đô. Sau đó chúng ta lại đi gặp Thiên Âm nương nương. Bái hội Thiên Âm nương nương xong, tỷ tỷ lại dẫn ngươi đi khắp nơi, bái hội Thiên Công, Thổ Bá, rồi bái hội các cao nhân Đế Tọa khác, rất có lợi cho ngươi!"
 
 Tần Mục hết sức động lòng.
 
 Nếu có thể đi theo cường giả Đế Tọa như Đế Dịch Nguyệt khắp nơi bái hội thần thánh trời sinh, bái hội cao thủ Đế Tọa, vậy nhất định sẽ mở mang tầm mắt!
 
-"Chỗ em còn có kiếm hoàn phải luyện chế..."
+"Chỗ ta còn có kiếm hoàn phải luyện chế..."
 
-Tần Mục do dự một chút, nói: "Chị không bằng đi gặp Thiên Âm nương nương trước. Đợi bên em luyện xong kiếm hoàn, em sẽ tới Phong Đô tìm chị."
+Tần Mục do dự một chút, nói: "Tỷ tỷ chi bằng đi gặp Thiên Âm nương nương trước. Đợi bên ta luyện xong kiếm hoàn, ta sẽ tới Phong Đô tìm tỷ tỷ."
 
 Đế Dịch Nguyệt cười nói: "Cũng được. Ta đi tìm tên Điền Thục kia trước. Hắn nhát gan, lúc này không biết đang trốn ở đâu. Ngươi luyện kiếm xong, nếu không tìm thấy chúng ta ở Phong Đô thì đi Thiên Âm giới."
 

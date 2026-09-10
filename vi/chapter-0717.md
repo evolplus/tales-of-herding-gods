@@ -138,7 +138,7 @@ Hai loại phù văn này có thể bảo đảm nếu cậu lại gặp vụ n�
 
 Vũ Chiêu Thanh cẩn thận thăm dò ý Tần Mục, cười nói: "Hiện giờ Diên Khang không còn uy hiếp thiên tai, có phải nên cân nhắc cho các thế giới chư thiên rồi không?"
 
-Tần Mục hiểu rõ trong lòng, cười nói: "Hiện giờ Diên Khang vừa ổn định, trăm việc chờ làm lại, Hoàng đế không đủ binh lực đi bình định Thiên Vũ thế giới. Thiên Vũ thế giới giống Đại Khư, ban ngày còn tính bình thường, ban đêm thì bóng tối xâm nhập. Hiện giờ bóng tối còn chưa được bình định, chị không bằng đợi thêm ít ngày. Đợi Thiên Âm nương nương triệt để bình định dư hoạn của Thiên Âm giới, các người có thể trở về Thiên Vũ thế giới."
+Tần Mục hiểu rõ trong lòng, cười nói: "Hiện giờ Diên Khang vừa ổn định, trăm việc chờ làm lại, Hoàng đế không đủ binh lực đi bình định Thiên Vũ thế giới. Thiên Vũ thế giới giống Đại Khư, ban ngày còn tính bình thường, ban đêm thì bóng tối xâm nhập. Hiện giờ bóng tối còn chưa được bình định, tỷ tỷ chi bằng đợi thêm ít ngày. Đợi Thiên Âm nương nương triệt để bình định dư hoạn của Thiên Âm giới, các người có thể trở về Thiên Vũ thế giới."
 
 Vũ Chiêu Thanh đành nói: "Thiếp thân chờ tin điện hạ."
 
