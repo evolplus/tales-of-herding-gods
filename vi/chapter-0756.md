@@ -94,11 +94,11 @@ Trong quan truyền tới tiếng trống thùng thùng, sát khí bừng bừng
 
 Tần Mục định thần, lặng lẽ bóc lá liễu ở mi tâm, hạ giọng:
 
-"Ca ca, con tới gặp mẹ rồi..."
+"Ca ca, ta tới gặp mẹ rồi..."
 
 Viền mắt hắn đột nhiên cay xè, lộ ra một nụ cười dịu dàng:
 
-"Huynh từng gặp mẹ, nhưng con chưa từng gặp. Mẹ từng ôm huynh, hôn huynh, nhưng chưa từng ôm con, hôn con. Nếu không phải huynh phạm đại họa, con cũng sẽ không vì vậy mà không thể gặp cha, không thể gặp mẹ..."
+"Huynh từng gặp mẹ, nhưng ta chưa từng gặp. Mẹ từng ôm huynh, hôn huynh, nhưng chưa từng ôm ta, hôn ta. Nếu không phải huynh phạm đại họa, ta cũng sẽ không vì vậy mà không thể gặp cha, không thể gặp mẹ..."
 
 Trong con mắt thứ ba ở mi tâm hắn, trên đại lục chữ Tần, quái nhi đầu to ngồi đó, ngẩng đầu nhìn trời.
 
@@ -108,11 +108,11 @@ Phân thân Thiên Công và tư duy Xích Hoàng không khỏi căng thẳng. P
 
 Giọng Tần Mục truyền tới:
 
-"Ai không muốn tuổi thơ của mình là quây quần dưới gối cha mẹ? Ai không muốn thuở nhỏ có cha mẹ ở bên? Nhưng con không có. Ca ca, con tới gặp mẹ rồi, huynh phải bù đắp cho con. Hôm nay..."
+"Ai không muốn tuổi thơ của mình là quây quần dưới gối cha mẹ? Ai không muốn thuở nhỏ có cha mẹ ở bên? Nhưng ta không có. Ca ca, ta tới gặp mẹ rồi, huynh phải bù đắp cho ta. Hôm nay..."
 
 Thân thể hắn lắc lư, giọng hơi khàn:
 
-"Con cần mượn sức mạnh của ca ca! Con không khống chế được ma tính, huynh có thể. Huynh không khống chế được thần thông, con có thể. Ca ca, Tần Phượng Thanh, ra đây!"
+"Ta cần mượn sức mạnh của ca ca! Ta không khống chế được ma tính, huynh có thể. Huynh không khống chế được thần thông, ta có thể. Ca ca, Tần Phượng Thanh, ra đây!"
 
 Phân thân Thiên Công và tư duy Xích Hoàng đồng loạt giận dữ quát lớn:
 
@@ -120,7 +120,7 @@ Phân thân Thiên Công và tư duy Xích Hoàng đồng loạt giận dữ qu�
 
 Trên không đại lục, bầu trời chấn động. Tư duy của Tần Mục chọc thủng thiên khung:
 
-"Ca ca, hòa làm một với con đi, chúng ta cùng đi gặp mẹ!"
+"Ca ca, hòa làm một với ta đi, chúng ta cùng đi gặp mẹ!"
 
 Quái nhi đầu to phóng thẳng lên trời, bay ra ngoài trời.
 
