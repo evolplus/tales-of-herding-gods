@@ -52,7 +52,7 @@ Hư Sinh Hoa tò mò nói: "Tần giáo chủ, lần này huynh mời chúng ta 
 
 Tần Mục kể đại khái trải nghiệm của mình ở Thiên Âm giới, nói: "Chư quân đều là những nhân vật thông minh tài trí hơn ta. Ta khó giải quyết nan đề của Thiên Âm nương nương, có lẽ các ngươi có thể nghĩ ra cách."
 
-Mọi người trợn to mắt, hơi khó tin. Tiều Phu Thánh Nhân biết Tần Mục theo Điếu Ngư Ông đi câu mặt trời câu mặt trăng, nhưng không ngờ Điếu Ngư Ông không thấy bóng dáng, còn tiểu tử này vậy mà chạy đến Thiên Âm giới!
+Mọi người trợn to mắt, hơi khó tin. Tiều Phu Thánh Nhân biết Tần Mục theo Điếu Ngư ông đi câu mặt trời câu mặt trăng, nhưng không ngờ Điếu Ngư ông không thấy bóng dáng, còn tiểu tử này vậy mà chạy đến Thiên Âm giới!
 
 "Năm đó ta phái năm mươi tám vị thần nhân Thiên tự bộ đi thăm dò Thiên Âm giới, không một ai sống trở về, vậy mà hắn cứ thế xông vào."
 

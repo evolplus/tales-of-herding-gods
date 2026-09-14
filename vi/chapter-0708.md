@@ -98,7 +98,7 @@ Người này là ai, đáp án đã hiện ra rất rõ!
 
 Trong lòng Âm Thiên Tử kinh giận:
 
-"Ta bị người có chuẩn bị tính kế kẻ vô tâm. Người này chỉ e chỉ có thể là tên đốn củi đứng đầu Tứ Đại Thiên Sư của ngụy triều! Đúng rồi, nếu ta là hắn, ta muốn tính kế cao thủ như ta, chắc chắn phải làm tới mức vạn vô nhất thất. Ta tuyệt đối sẽ không chỉ điều động hai người Diêm Vương và Điền Thục. Nếu muốn đánh, ta cần tập hợp tất cả cao thủ có thù với ta. Người có thù sâu nhất với ta chính là Thiên Âm nương nương..."
+"Ta bị người có chuẩn bị tính kế kẻ vô tâm. Người này chỉ e chỉ có thể là lão đốn củi đứng đầu Tứ Đại Thiên Sư của ngụy triều! Đúng rồi, nếu ta là hắn, ta muốn tính kế cao thủ như ta, chắc chắn phải làm tới mức vạn vô nhất thất. Ta tuyệt đối sẽ không chỉ điều động hai người Diêm Vương và Điền Thục. Nếu muốn đánh, ta cần tập hợp tất cả cao thủ có thù với ta. Người có thù sâu nhất với ta chính là Thiên Âm nương nương..."
 
 Hắn vừa nghĩ tới đây, trong Minh Đô có từng vị thần ma bay tới, tiến lên tương trợ. Âm Thiên Tử dựng hết lông tóc, vội phất tay quát:
 

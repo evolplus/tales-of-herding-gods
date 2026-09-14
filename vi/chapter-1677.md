@@ -72,7 +72,7 @@ Yên Vân Hề cười khẽ một tiếng, cưỡi con lừa Lữ Tranh, dẫn 
 
 “Tử Hề Thiên Sư đúng là giống đàn bà.”
 
-Vũ Đấu Thiên Sư Trác Trà thật lòng khen: “Có điều chiến lực của nàng quả thật mạnh mẽ vô biên! Tên đốn củi, đã đến lượt ta chưa?”
+Vũ Đấu Thiên Sư Trác Trà thật lòng khen: “Có điều chiến lực của nàng quả thật mạnh mẽ vô biên! Lão đốn củi, đã đến lượt ta chưa?”
 
 Bên cạnh Chúc Thiếu Bình, từng lộ đại quân được phái ra. Tiều Phu Thánh Nhân lệnh cho các lộ đại quân ba mươi ba tầng trời Vô Ưu Hương nghênh chiến, thậm chí cả tộc nhân họ Tần thuộc mạch Tần Hán Trân cũng phái ra, riêng Trác Trà là không phái.
 
@@ -112,7 +112,7 @@ Trong đó, nổi bật nhất là Cửu Ngục Đài!
 
 Hắn như trút được gánh nặng, đột nhiên cao giọng nói: “Tất cả tướng sĩ nghe lệnh, tế trọng khí Diên Khang!”
 
-Ngư Ông Hàn Đường khắp người đầy thương tích, liên thủ cùng hai con côn đỏ lớn đối kháng Tả Thiếu Tể Nghiêm Thắng. Nghiêm Thắng là cường giả Đế Tọa, thực lực vượt xa ông. Hàn Đường tinh thông đạo ngự thú, không ngừng khống chế các loại cự thú khác nhau giao chiến với Nghiêm Thắng, nhưng ông chỉ có phần chịu đòn, không có khả năng phản kích.
+Ngư ông Hàn Đường khắp người đầy thương tích, liên thủ cùng hai con côn đỏ lớn đối kháng Tả Thiếu Tể Nghiêm Thắng. Nghiêm Thắng là cường giả Đế Tọa, thực lực vượt xa ông. Hàn Đường tinh thông đạo ngự thú, không ngừng khống chế các loại cự thú khác nhau giao chiến với Nghiêm Thắng, nhưng ông chỉ có phần chịu đòn, không có khả năng phản kích.
 
 Tướng sĩ dưới trướng ông cũng nhiều người bị thương, nhiều người tử trận. Cứ tiếp tục như vậy, chắc chắn là kết cục toàn quân bị diệt.
 
@@ -172,7 +172,7 @@ Lãng Uyển nâng bàn tay lên: “Nhưng bây giờ, ta biết rồi. Cô cũ
 
 Tiều Phu Thánh Nhân lau nước mắt bên tóc mai. Sau lưng hắn, Vũ Đấu Thiên Sư Trác Trà thấy thế cục trước mắt, không khỏi nhiệt huyết sôi trào, rục rịch muốn động.
 
-Nhưng Tiều Phu trước sau vẫn không hạ lệnh cho hắn xuất kích. Ban đầu Trác Trà còn nhịn được, nhưng nhịn đến cuối cùng không nhịn nổi nữa, quát: “Tên đốn củi, đã đến lượt ta chưa?”
+Nhưng Tiều Phu trước sau vẫn không hạ lệnh cho hắn xuất kích. Ban đầu Trác Trà còn nhịn được, nhưng nhịn đến cuối cùng không nhịn nổi nữa, quát: “Lão đốn củi, đã đến lượt ta chưa?”
 
 Tiều Phu lắc đầu.
 

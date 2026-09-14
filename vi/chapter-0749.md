@@ -118,7 +118,7 @@ Nơi xa, rất nhiều thần thông giả đang tìm kiếm bên cạnh Dũng G
 
 Mọi người vội nghênh đón. Chạy phía trước là một con trâu già, toàn thân là vảy xanh, trên lưng trâu là một nông phu trẻ tuổi, khổng vũ hữu lực, chỉ là vóc người không cao.
 
-Phía sau là một cô gái cầm quạt xếp, còn có một người câu cá, trong sọt có hai con hồng côn nhỏ đang thò đầu thò cổ, cuối cùng là một chàng tiều phu.
+Phía sau là một cô gái cầm quạt xếp, còn có một lão câu cá, trong sọt có hai con hồng côn nhỏ đang thò đầu thò cổ, cuối cùng là một chàng tiều phu.
 
 Họ chạy về phía Khai Hoàng. Chàng tiều phu chạy chậm nhất, thở hồng hộc nói:
 
@@ -128,7 +128,7 @@ Họ chạy về phía Khai Hoàng. Chàng tiều phu chạy chậm nhất, th�
 
 Nông phu kia nhảy khỏi lưng trâu, hung hăng đấm ông một quyền. Khai Hoàng bị đánh lảo đảo, nhe răng kêu đau. Nông phu vội nói:
 
-"Đừng giả vờ nữa. Trước kia chúng ta đánh nhau rất nhiều lần, đều là ngươi đánh ta kêu oai oái. Ngươi biến mất nhiều ngày rồi, người câu cá truy tung ngươi tới đây, sau đó lại không tìm được tung tích ngươi."
+"Đừng giả vờ nữa. Trước kia chúng ta đánh nhau rất nhiều lần, đều là ngươi đánh ta kêu oai oái. Ngươi biến mất nhiều ngày rồi, lão câu cá truy tung ngươi tới đây, sau đó lại không tìm được tung tích ngươi."
 
 Khai Hoàng lộ nụ cười, cười nói:
 

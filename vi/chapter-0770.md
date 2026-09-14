@@ -10,7 +10,7 @@ Quan trọng nhất là, Vũ Đấu Thiên Sư Trác Trà cũng từng giảng d
 
 Hư Sinh Hoa nói:
 
-“Vũ Đấu Thiên Sư chờ ngươi trả trâu. Ông ấy chờ ngươi mấy tháng, kết quả ngươi không trả trâu cho ông ấy, ông ấy rất tức giận, nói cả nhà đốn củi đều là lừa đảo, bèn cưỡi Long béo đi.”
+“Vũ Đấu Thiên Sư chờ ngươi trả trâu. Ông ấy chờ ngươi mấy tháng, kết quả ngươi không trả trâu cho ông ấy, ông ấy rất tức giận, nói cả nhà lão đốn củi đều là lừa đảo, bèn cưỡi Long béo đi.”
 
 Tần Mục đi dạo thưởng ngoạn khắp Thượng Thương học cung. Ngự Thiên Tôn thì bị kéo đi nghe giảng. Nghe vậy, hắn thất thanh:
 

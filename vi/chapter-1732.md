@@ -130,7 +130,7 @@ Thiên Đao Đồ phu thu đao, đi trong vũng máu. Đột nhiên một tướ
 
 Tướng sĩ dưới trướng ông tự lấy thuốc trị thương của mình ra, chia cho thương binh Vô Ưu Hương. Đồ phu tới bên cạnh Văn Thiên Các. Văn Thiên Các lắc đầu, miễn cưỡng nhấc ngón tay lên:
 
-"Cứu người trồng ruộng trước..."
+"Cứu lão trồng ruộng trước..."
 
 Đồ phu vội tới hướng ông chỉ. Chỉ thấy Vũ Đấu Thiên Sư Trác Trà ngã trên đất, bảo vệ Yên Vân Hề dưới thân. Đồ phu dùng sức dời Vũ Đấu Thiên Sư ra, lại thấy lão nông này đã tắt thở, còn Yên Vân Hề vẫn còn một hơi.
 

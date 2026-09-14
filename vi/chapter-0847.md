@@ -56,7 +56,7 @@ Lão nông thở dài, lắc đầu.
 
 Mặt lão nông nhăn thành từng nếp, khô khốc nói:
 
-"Ta khá ngu, ngồi ở Dũng Giang bao ngày cũng không cảm ứng được sức Thiên Hà. Đại khái tên đốn củi kia nói không sai, ta luyện cơ bắp vào trong đầu rồi."
+"Ta khá ngu, ngồi ở Dũng Giang bao ngày cũng không cảm ứng được sức Thiên Hà. Đại khái lão đốn củi kia nói không sai, ta luyện cơ bắp vào trong đầu rồi."
 
 Đồ phu dở khóc dở cười.
 

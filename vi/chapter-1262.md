@@ -68,7 +68,7 @@ Lữ Tranh vẫn còn đang gọi cứu mạng, còn ở cửa vào, đám Yên 
 
 "Dù là ta đi vào cũng khó địch lại loại sợi tơ này. Chỉ cần bị dính lên người, tiến vào Thần Tàng, Thiên Cung, liền không thể thoát khỏi."
 
-Vũ Đấu Thiên Sư Trác Trà trầm giọng nói: "Loại sợi đạo văn này chí nhu, bám lên người liền không thể hất ra. Gã đốn củi, ta đoán Tịch Thiên Quân và Xích Đế cũng chẳng lấy ra được cách giải quyết nào, ngươi có thủ đoạn gì không?"
+Vũ Đấu Thiên Sư Trác Trà trầm giọng nói: "Loại sợi đạo văn này chí nhu, bám lên người liền không thể hất ra. Lão đốn củi, ta đoán Tịch Thiên Quân và Xích Đế cũng chẳng lấy ra được cách giải quyết nào, ngươi có thủ đoạn gì không?"
 
 Xích Đế Tề Hạ Du nghe vậy, nói: "Dùng Thiên Hỏa có được không?"
 

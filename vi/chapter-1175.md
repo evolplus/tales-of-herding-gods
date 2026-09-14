@@ -78,7 +78,7 @@ Xích Tú Thần Nhân nói: “Bởi vì khi kiếp nạn Diên Khang xảy ra,
 
 Xích Tú Thần Nhân nói: “Ngươi có ân với họ, cho nên họ không dám đến gặp ngươi.”
 
-Tần Mục mỉm cười nói: “Vậy còn Ngư Ông và Thanh Hoàng? Ngư Ông Thiên Sư và Thanh Hoàng Thiên Vương có ân với ta, hẳn không đến mức không dám gặp ta.”
+Tần Mục mỉm cười nói: “Vậy còn Ngư ông và Thanh Hoàng? Ngư Ông Thiên Sư và Thanh Hoàng Thiên Vương có ân với ta, hẳn không đến mức không dám gặp ta.”
 
 Xích Tú Thần Nhân dẫn hắn đi về phía trước, nói: “Thanh Hoàng phái thần long của Long thôn đi trợ giúp ngươi, thật ra là trợ giúp Thái Hoàng Thiên. Thái Hoàng Thiên là dư bộ Khai Hoàng, không tính là giúp ngươi. Ngươi lại giúp Thái Hoàng Thiên, cho nên ông ấy nợ ngươi. Ngư Ông Thiên Sư cũng như vậy. Ngư Ông Thiên Sư giúp ngươi đến Giếng Mặt Trời, Giếng Mặt Trăng câu mặt trời, câu mặt trăng, cũng là giúp Mục Nhật giả, Mục Nguyệt giả dưới trướng Khai Hoàng, không phải giúp ngươi, mà là giúp Khai Hoàng. Họ đều hổ thẹn với ngươi, cho nên cũng không dám gặp ngươi.”
 

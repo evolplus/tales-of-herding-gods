@@ -24,7 +24,7 @@ Huyền Đế nói: “Xung quanh pho tượng này vốn là kiếm học việ
 
 “Có điều sau khi thời đại Khai Hoàng hạ màn, Thiên Đình hạ lệnh phá bỏ Chân Vũ Kiếm Viện, chỉ còn pho tượng đá này được giữ lại.”
 
-Huyền Đế nói: “Những đệ tử Chân Vũ Kiếm Viện ấy nếu nghe tin ngươi tới, nhất định sẽ rất vui. Tần Nghiệp còn dẫn theo hai cô gái và một người đốn củi. Một người tên Đế Dịch Nguyệt, một người tên Yên Vân Hề, người đốn củi tên Văn Thiên Các, rất lễ phép. Đế Dịch Nguyệt theo ta học Huyền Vũ đại đạo, Yên Vân Hề thì theo ta tu hành trận pháp, người đốn củi theo ta học thuật số. Bọn họ đều vô cùng thông minh, thành tựu về sau đều vượt qua ta. Ta cũng học được rất nhiều từ bọn họ.”
+Huyền Đế nói: “Những đệ tử Chân Vũ Kiếm Viện ấy nếu nghe tin ngươi tới, nhất định sẽ rất vui. Tần Nghiệp còn dẫn theo hai cô gái và một lão đốn củi. Một người tên Đế Dịch Nguyệt, một người tên Yên Vân Hề, lão đốn củi tên Văn Thiên Các, rất lễ phép. Đế Dịch Nguyệt theo ta học Huyền Vũ đại đạo, Yên Vân Hề thì theo ta tu hành trận pháp, lão đốn củi theo ta học thuật số. Bọn họ đều vô cùng thông minh, thành tựu về sau đều vượt qua ta. Ta cũng học được rất nhiều từ bọn họ.”
 
 “Tử Hề Thiên Sư và Tiều Phu lão sư cũng từng tới đây?”
 

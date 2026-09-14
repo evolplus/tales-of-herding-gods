@@ -6,13 +6,13 @@ Tần Mục chỉ hận không thể lập tức gặp vị Thiên Sư này, ch�
 
 "Không phải."
 
-Ông lão câu cá lắc đầu nói: "Trong bốn vị Thiên Sư, có thể được gọi là thánh nhân chỉ có một mình ông ấy."
+Ngư ông lắc đầu nói: "Trong bốn vị Thiên Sư, có thể được gọi là thánh nhân chỉ có một mình ông ấy."
 
 Tần Mục hơi ngẩn ra, nói: "Nhưng trong bốn vị Thiên Sư, tu vi thực lực của Tiều Phu lão sư là thấp nhất chứ?"
 
-Ông lão câu cá như cười như không: "Nếu thánh nhân được xét theo võ lực cao thấp, vậy thời Khai Hoàng đâu đâu cũng là thánh nhân rồi. Tiều Phu thành thánh không phải vì tu vi thực lực của ông ấy, mà vì công nghiệp và tư tưởng của ông ấy. Ông ấy đặt xuống nền móng cho cơ nghiệp hai vạn năm của thời Khai Hoàng. Bốn vị Thiên Sư lấy ông ấy đứng đầu. Đáng tiếc chỉ có hai vạn năm."
+Ngư ông như cười như không: "Nếu thánh nhân được xét theo võ lực cao thấp, vậy thời Khai Hoàng đâu đâu cũng là thánh nhân rồi. Tiều Phu thành thánh không phải vì tu vi thực lực của ông ấy, mà vì công nghiệp và tư tưởng của ông ấy. Ông ấy đặt xuống nền móng cho cơ nghiệp hai vạn năm của thời Khai Hoàng. Bốn vị Thiên Sư lấy ông ấy đứng đầu. Đáng tiếc chỉ có hai vạn năm."
 
-Tần Mục còn định hỏi tiếp, nhưng ông lão câu cá chuyên tâm câu mặt trăng, không nói thêm về những Thiên Sư khác.
+Tần Mục còn định hỏi tiếp, nhưng Ngư ông chuyên tâm câu mặt trăng, không nói thêm về những Thiên Sư khác.
 
 "Vì sao Tiều Phu lão sư lại trở thành đứng đầu Tứ đại Thiên Sư? Còn một vị Thiên Sư là ai?"
 
@@ -26,7 +26,7 @@ Viêm Tinh Tinh tiến lên khẽ an ủi, nói: "Chó lớn đừng sợ, họ 
 
 Tần Mục vội hành lễ, nói: "Phủ Quân, ta không nỡ nhìn những nghĩa sĩ này phơi xác nơi hoang dã, cho nên mời hồn phách của họ về thân thể mình. Sau khi mời họ tự an táng bản thân, ta sẽ để họ quay lại U Đô. Có tội, có tội!"
 
-Sắc mặt âm sai hơi dịu xuống. Ông ta nhìn ông lão câu cá đang câu mặt trăng, buộc mặt trăng, có phần kiêng dè, nói: "Tần Phượng Thanh, ta cũng không phải kẻ không nói lý, nhưng ngươi không thể năm lần bảy lượt tới U Đô của ta đòi người. Ngươi làm vậy, ta rất khó ăn nói trước mặt Thổ Bá! Hồn phách những người này, sau khi ngươi mượn đi thì mau chóng trả lại. Nhưng Thổ Bá vẫn sẽ ghi thêm một lỗi trên đầu ngươi."
+Sắc mặt âm sai hơi dịu xuống. Ông ta nhìn Ngư ông đang câu mặt trăng, buộc mặt trăng, có phần kiêng dè, nói: "Tần Phượng Thanh, ta cũng không phải kẻ không nói lý, nhưng ngươi không thể năm lần bảy lượt tới U Đô của ta đòi người. Ngươi làm vậy, ta rất khó ăn nói trước mặt Thổ Bá! Hồn phách những người này, sau khi ngươi mượn đi thì mau chóng trả lại. Nhưng Thổ Bá vẫn sẽ ghi thêm một lỗi trên đầu ngươi."
 
 Tần Mục để những Mục Nguyệt giả sống lại tự đào mộ, cách Thừa Thiên Chi Môn nói với âm sai: "Diên Phong hoàng đế có một quyển sổ nhỏ ghi số lần chém đầu, chẳng lẽ Thổ Bá cũng có một quyển sổ nhỏ? Phủ Quân, trên quyển sổ nhỏ của ta đã ghi bao nhiêu chữ chính rồi?"
 
@@ -52,7 +52,7 @@ Tần Mục cười lạnh nói: "Thổ Bá cũng sợ Hắc Đế Minh Đô sao
 
 Âm sai giận dữ: "Cái gì gọi là chẳng dám lên tiếng?"
 
-Tai ông lão câu cá giật giật. Ông siết chặt cần câu trong tay, tùy thời chuẩn bị cứu người, thầm nghĩ: "Con cháu Tần gia quá không biết nặng nhẹ. Âm sai này là phân thân của Thiên Tề Nhân Thánh Vương, hắn bất kính với ông ta, lại còn ngay trước mặt ông ta bất kính với Thổ Bá, e rằng Thiên Tề Phủ Quân sẽ không tha cho hắn..."
+Tai Ngư ông giật giật. Ông siết chặt cần câu trong tay, tùy thời chuẩn bị cứu người, thầm nghĩ: "Con cháu Tần gia quá không biết nặng nhẹ. Âm sai này là phân thân của Thiên Tề Nhân Thánh Vương, hắn bất kính với ông ta, lại còn ngay trước mặt ông ta bất kính với Thổ Bá, e rằng Thiên Tề Phủ Quân sẽ không tha cho hắn..."
 
 Tần Mục đổi sang vẻ mặt tươi cười: "Ta chỉ nói Thổ Bá không khỏi quá nghẹn khuất, dù sao cũng nên nói một câu."
 
@@ -60,7 +60,7 @@ Tần Mục đổi sang vẻ mặt tươi cười: "Ta chỉ nói Thổ Bá khô
 
 Tần Mục ngắc ngứ không nói.
 
-Ông lão câu cá căng thẳng vô cùng. Cơ thịt sau lưng ông căng cứng, cả những dây thần kinh to cũng bị ông kéo căng như dây đàn, thầm nghĩ: "Lần thứ hai bất kính với Thổ Bá, Thiên Tề Phủ Quân tuyệt đối không nhịn nổi!"
+Ngư ông căng thẳng vô cùng. Cơ thịt sau lưng ông căng cứng, cả những dây thần kinh to cũng bị ông kéo căng như dây đàn, thầm nghĩ: "Lần thứ hai bất kính với Thổ Bá, Thiên Tề Phủ Quân tuyệt đối không nhịn nổi!"
 
 Qua một lát, âm sai thở dài: "Không phải Thổ Bá không làm, mà thật sự không thể làm. Thực lực Minh Đô đối với Thổ Bá không đáng đau ngứa, nhưng thực lực Thiên Đình thì quá khổng lồ."
 
@@ -80,7 +80,7 @@ Tần Mục lộ vẻ tủi thân, thất vọng nói: "Thổ Bá không thể c
 
 Tần Mục vén lá liễu, lộ ra con mắt thứ ba. Âm sai lập tức thấy trong đồng tử của con mắt này đột nhiên có thêm một đồng tử chồng lên, đó là mắt của một người khác đang tò mò nhìn lén ra ngoài.
 
-Ông lão câu cá lặng lẽ quay đầu, tò mò nhìn con mắt thứ ba của Tần Mục, thậm chí quên thu dây câu.
+Ngư ông lặng lẽ quay đầu, tò mò nhìn con mắt thứ ba của Tần Mục, thậm chí quên thu dây câu.
 
 Ông rất muốn xem trong mắt Tần Mục rốt cuộc có phong ấn Thổ Bá hay không, có phân thân Thiên Công hay không, có tư duy Xích Hoàng và Đại Phạn Thiên Vương Phật hay không.
 
@@ -108,19 +108,19 @@ Tần Mục xấu hổ, lộ vẻ thẹn thùng, lấy Sinh Tử Bộ ra đưa c
 
 Tần Mục tản Thừa Thiên Chi Môn, thở phào nhẹ nhõm, hưng phấn lật xem Sinh Tử Bộ, xem thần thông âm sai lão giả lưu lại trên quyển sổ.
 
-Ông lão câu cá ngắc ngứ nói: "Vị Thiên Tề Phủ Quân này nói chuyện thẳng thắn vậy sao? Ôm đầu ta mà gặm? Con cháu Tần gia, ca ca ngươi dữ lắm à?"
+Ngư ông ngắc ngứ nói: "Vị Thiên Tề Phủ Quân này nói chuyện thẳng thắn vậy sao? Ôm đầu ta mà gặm? Con cháu Tần gia, ca ca ngươi dữ lắm à?"
 
 Tần Mục gật đầu liên tục: "Siêu hung tàn! Ông tuyệt đối không được chọc huynh ấy!"
 
-Ông lão câu cá câu lên một vầng trăng. Nguyên thần của ông xoa nắn vầng trăng một phen, luyện mặt trăng chỉ còn lớn bằng cái mâm, rồi thản nhiên nói: "Ngươi thấy thực lực của ta thế nào?"
+Ngư ông câu lên một vầng trăng. Nguyên thần của ông xoa nắn vầng trăng một phen, luyện mặt trăng chỉ còn lớn bằng cái mâm, rồi thản nhiên nói: "Ngươi thấy thực lực của ta thế nào?"
 
 Tần Mục khen: "Thiên Sư vĩ lực vô song, thực lực rất mạnh, mạnh hơn Tiều Phu lão sư rất nhiều lần."
 
-Ông lão câu cá nói: "Chọc nổi ca ca ngươi không?"
+Ngư ông nói: "Chọc nổi ca ca ngươi không?"
 
 Tần Mục gãi đầu nói: "Lần trước con bị ca ca con ném vào trong mắt nhốt lại, thấy phân thân Thiên Công và phân thân Xích Hoàng bị huynh ấy đánh cho ngoan ngoãn phục tùng."
 
-Sắc mặt ông lão câu cá vàng như đất, không nói nữa, chuyên tâm câu mặt trăng. Chỉ là cánh tay vốn luôn vững vàng vô cùng của ông hơi run rẩy.
+Sắc mặt Ngư ông vàng như đất, không nói nữa, chuyên tâm câu mặt trăng. Chỉ là cánh tay vốn luôn vững vàng vô cùng của ông hơi run rẩy.
 
 Tần Mục tiếp tục xem thần thông trên Sinh Tử Bộ. Sinh Tử Bộ vốn sáng như gương, nhưng hiện giờ vị trí trung tâm có thêm một cụm phù văn trông như lộn xộn không theo quy luật.
 

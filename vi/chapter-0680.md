@@ -18,19 +18,19 @@ Viêm Tinh Tinh đặt Sinh Tử Bộ lên đùi, hai tay vuốt lại tóc mai,
 
 Tần Mục cười nói: "U Đô ngữ ta đều hiểu. Ảo diệu phù văn trên này không làm khó được ta. Khó là biến hóa đường vân và cấu trúc chồng lớp trong đó, những thứ liên lụy bên trong thì ta không hiểu. Ta nghiên cứu thần thông U Đô chưa sâu, may mà ta quen biết rất nhiều nhân vật tài hoa xuất chúng, có thể mời họ cùng nghiên cứu, nhất định có thể giải được ảo diệu của môn thần thông này!"
 
-Ông lão câu cá đứng dậy, thu ghế con đi tới, nói: "Để ta xem."
+Ngư ông đứng dậy, thu ghế con đi tới, nói: "Để ta xem."
 
-Viêm Tinh Tinh vội đứng dậy, đưa Sinh Tử Bộ cho ông. Ông lão câu cá lật xem một lượt, đầu váng mắt hoa, lắc đầu nói: "Xem không hiểu. Có lẽ kẻ đốn củi có thể xem hiểu, ông ấy biết nhiều thứ hơn."
+Viêm Tinh Tinh vội đứng dậy, đưa Sinh Tử Bộ cho ông. Ngư ông lật xem một lượt, đầu váng mắt hoa, lắc đầu nói: "Xem không hiểu. Có lẽ lão đốn củi có thể xem hiểu, ông ấy biết nhiều thứ hơn."
 
-Tần Mục nhìn về phía Giếng Mặt Trăng, chỉ thấy bên cạnh Giếng Mặt Trăng buộc rất nhiều mặt trăng nhỏ, tỏa ánh sáng trong trẻo. Ông lão câu cá vậy mà trong thời gian ngắn như thế đã câu ra nhiều mặt trăng như vậy, bản lĩnh quả nhiên phi phàm.
+Tần Mục nhìn về phía Giếng Mặt Trăng, chỉ thấy bên cạnh Giếng Mặt Trăng buộc rất nhiều mặt trăng nhỏ, tỏa ánh sáng trong trẻo. Ngư ông vậy mà trong thời gian ngắn như thế đã câu ra nhiều mặt trăng như vậy, bản lĩnh quả nhiên phi phàm.
 
-Ông lão câu cá thu lưỡi câu, dây câu. Hai con cá đỏ nhỏ lại nhảy vào giỏ cá của ông.
+Ngư ông thu lưỡi câu, dây câu. Hai con cá đỏ nhỏ lại nhảy vào giỏ cá của ông.
 
-Ông lão câu cá phất tay, nói: "Mặt trời, mặt trăng đã câu ra rồi, ta cũng nên rời đi. Các ngươi đi cùng ta, cưỡi hồng côn trở về, hay mượn đường Giếng Mặt Trăng về?"
+Ngư ông phất tay, nói: "Mặt trời, mặt trăng đã câu ra rồi, ta cũng nên rời đi. Các ngươi đi cùng ta, cưỡi hồng côn trở về, hay mượn đường Giếng Mặt Trăng về?"
 
 Tần Mục bàn bạc với Viêm Tinh Tinh một phen, nói: "Ngư Ông Thiên Sư cứ nhìn chằm chằm con mắt ở mi tâm ta, ta lo ông ấy sẽ không nhịn được mà gỡ ra câu ca ca ta, cho nên chúng ta từ Giếng Mặt Trăng tiến vào Tinh Hải trở về, đường này gần hơn."
 
-Ông lão câu cá phất tay, đeo giỏ cá xoay người rời đi.
+Ngư ông phất tay, đeo giỏ cá xoay người rời đi.
 
 "Nhất định phải hòa hòa mỹ mỹ nhé!" Hai con cá đỏ nhỏ thò đầu ra, vẫy vây cá với bọn họ.
 

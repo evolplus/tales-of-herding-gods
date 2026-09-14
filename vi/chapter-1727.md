@@ -20,7 +20,7 @@ Khi Nguyệt Thiên Tôn và Lãng Uyển Thần Vương chạy về, Tiều Phu
 
 "Vô Ưu Hương! Xuất binh..."
 
-Từng cổng Thần thành trong thung lũng Lam Phong mở ra. Những tướng sĩ còn sót lại của Vô Ưu Hương xuất chinh. Đế Dịch Nguyệt, Thanh Hoàng, Đế Thích Thiên, Điền Thục, Yên Vân Hề, Trác Trà, Ngư Ông cùng những lão tướng sống sót của Khai Hoàng Thiên Đình, mỗi người dẫn đại quân rời thung lũng Lam Phong, tiến về phía đại doanh Thiên Đình.
+Từng cổng Thần thành trong thung lũng Lam Phong mở ra. Những tướng sĩ còn sót lại của Vô Ưu Hương xuất chinh. Đế Dịch Nguyệt, Thanh Hoàng, Đế Thích Thiên, Điền Thục, Yên Vân Hề, Trác Trà, Ngư ông cùng những lão tướng sống sót của Khai Hoàng Thiên Đình, mỗi người dẫn đại quân rời thung lũng Lam Phong, tiến về phía đại doanh Thiên Đình.
 
 Rất nhiều lực sĩ thiên thần dốc sức nâng quan quách của Tần Mục lên, đi ở phía trước nhất.
 

@@ -94,9 +94,9 @@ Trong đốc tạo xưởng, Diên Phong Đế và Quốc sư Diên Khang bị �
 
 Tần Mục gọi Long Kỳ Lân, cùng Đế Dịch Nguyệt và mọi người đã đi xa. Diên Phong Đế nhìn thấy Long Kỳ Lân từ xa, nghi hoặc nói: "Tần ái khanh tới lúc nào? Vì sao lại đi rồi? Trẫm và Quốc sư ở đây, hắn cũng không chào một tiếng đã đi! Người đâu, lấy bút mực tới! Hôm nay là đại hỷ sự, thần thanh khí sảng, trẫm muốn viết cho hắn một chữ Chính thật to!"
 
-Tiều phu rất nhanh cáo từ rời đi, nói: "Ta còn đang tìm Nông phu, liên lạc với những người khác, không thể ở lại đây. Câu cá, chúng ta đi."
+Tiều phu rất nhanh cáo từ rời đi, nói: "Ta còn đang tìm Nông phu, liên lạc với những người khác, không thể ở lại đây. Lão câu cá, chúng ta đi."
 
-Thùy Điếu Ông rời đi cùng ông.
+Ngư ông rời đi cùng ông.
 
 Sơ Tổ Nhân Hoàng cũng cáo từ: "Ta cũng có việc quan trọng." Dứt lời cũng vội vã rời đi.
 

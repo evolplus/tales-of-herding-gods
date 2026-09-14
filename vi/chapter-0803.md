@@ -60,7 +60,7 @@ Dũng Giang Long Vương của Hoạn Long Quân là do hắn phong, hơn nữa 
 
 Tần Mục đầy tự tin, nói:
 
-"Vũ Đấu Thiên Sư có thể dễ dàng hủy Thần Kiều Thần Tàng. Tỷ tỷ Đế Dịch Nguyệt, Tử Hề Thiên Sư, Vương Phật, Sơ Tổ, Diêm Vương, Ngư Ông sư thúc, Điền Thục, hẳn đều có năng lực này."
+"Vũ Đấu Thiên Sư có thể dễ dàng hủy Thần Kiều Thần Tàng. Tỷ tỷ Đế Dịch Nguyệt, Tử Hề Thiên Sư, Vương Phật, Sơ Tổ, Diêm Vương, Ngư ông sư thúc, Điền Thục, hẳn đều có năng lực này."
 
 Thôn trưởng lắc đầu nói:
 

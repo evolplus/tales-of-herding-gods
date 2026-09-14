@@ -90,7 +90,7 @@ Ngư Ông Thiên Sư ngơ ngác nhìn hắn: “Ngươi... được rồi, khôn
 
 Tần Mục lộ nụ cười, nói: “Lần này ta đến, một là để thăm các ngươi, hai là tìm Đế Dịch Nguyệt Thiên Vương, mượn Minh Đô Thiên Môn của bà ấy để đối phó thần thông của Âm Thiên Tử. Thiên Sư biết bà ấy ở đâu không?”
 
-Ngư Ông Thiên Sư thăm dò: “Ngươi không đi gặp những người khác sao? Ví dụ Thanh Hoang lão nhân, ví dụ Đế Thích Thiên Vương, còn cả kẻ đốn củi nữa.”
+Ngư Ông Thiên Sư thăm dò: “Ngươi không đi gặp những người khác sao? Ví dụ Thanh Hoang lão nhân, ví dụ Đế Thích Thiên Vương, còn cả lão đốn củi nữa.”
 
 Tần Mục do dự một chút rồi gật đầu: “Ta sẽ đi gặp họ.”
 

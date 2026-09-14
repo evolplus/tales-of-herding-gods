@@ -124,7 +124,7 @@ Sắc mặt Long Kỳ Lân và Thủy Kỳ Lân như đất. Một lát sau, Lon
 
 "Lữ đại ca, ăn linh đan không?"
 
-Dưới cây Nguyên Mộc, Tiều phu, thư sinh, lão nông và ngư ông vây quanh Tần Mục thành một vòng, không ngừng đi quanh hắn. Một lát sau, lão nông đi xuống, ngư phu cũng dừng chân. Thư sinh dùng quạt lông gõ trán, đều chìm vào khổ tư.
+Dưới cây Nguyên Mộc, Tiều phu, thư sinh, lão nông và Ngư ông vây quanh Tần Mục thành một vòng, không ngừng đi quanh hắn. Một lát sau, lão nông đi xuống, Ngư ông cũng dừng chân. Thư sinh dùng quạt lông gõ trán, đều chìm vào khổ tư.
 
 Tiều phu cẩn thận quan sát quầng sáng sau đầu Tần Mục. Một lát sau, ông nói:
 

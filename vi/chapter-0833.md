@@ -46,7 +46,7 @@ Truyền tống thần thông là do Tiều phu truyền xuống, truyền cho T
 
 Hai bên có chỗ tương thông, vì vậy Tần Mục nghi ngờ Tiều phu từng thấy đại na di không gian của Đạo môn.
 
-Vốn dĩ hắn hơi hoảng, nhưng hiện tại đã bình tĩnh lại, rất nhanh chải rõ đầu mối, thầm nghĩ: "Ngư ông Thiên Sư nói thế hệ trước đều già đời cáo... ừm, trí tuệ thông đạt, quả nhiên là vậy. Thần thông đại na di không gian này chắc chắn là Đạo Tổ mượn sức mạnh thiên tượng thi triển ra. Ông ấy không muốn ta và Tiêu Thuần Phong thay ông quyết định lập trường của Đạo môn, vì vậy đưa chúng ta đi, tự mình đưa ra quyết đoán."
+Vốn dĩ hắn hơi hoảng, nhưng hiện tại đã bình tĩnh lại, rất nhanh chải rõ đầu mối, thầm nghĩ: "Ngư Ông Thiên Sư nói thế hệ trước đều già đời cáo... ừm, trí tuệ thông đạt, quả nhiên là vậy. Thần thông đại na di không gian này chắc chắn là Đạo Tổ mượn sức mạnh thiên tượng thi triển ra. Ông ấy không muốn ta và Tiêu Thuần Phong thay ông quyết định lập trường của Đạo môn, vì vậy đưa chúng ta đi, tự mình đưa ra quyết đoán."
 
 Cuối cùng ánh sáng tan đi. Tần Mục thấy ánh sáng quanh mình dần dần lùi lại, thân ảnh Tiêu Thuần Phong, thiếu nữ áo đỏ và Lâm Hiên Đạo Chủ cũng hiện ra từ trong luồng sáng đang rút đi.
 

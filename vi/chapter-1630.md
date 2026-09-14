@@ -104,7 +104,7 @@ Thiên Cung trôi trên mây. Phía dưới là vô số Kê bà long ngẩng đ
 
 Thiên Hà chảy qua trên trời. Tần Mục lại dùng đại pháp lực dời một mảnh lục địa tới, đặt bên cạnh Thiên Hà, thả mấy con trâu kia nuôi trên bờ sông. Núi xanh nước biếc, mây trắng thong dong, rất có ý thơ.
 
-Linh Dục Tú thả hai con tiểu Hồng Côn mà ngư ông Hàn Đường tặng vào trong Thiên Hà. Hai con tiểu Hồng Côn ngậm núm vú bơi qua bơi lại bên bờ, không nỡ rời đi.
+Linh Dục Tú thả hai con tiểu Hồng Côn mà Ngư ông Hàn Đường tặng vào trong Thiên Hà. Hai con tiểu Hồng Côn ngậm núm vú bơi qua bơi lại bên bờ, không nỡ rời đi.
 
 Linh Dục Tú vừa mới đi, đã nghe trong Thiên Hà vang lên hai tiếng răng rắc thật lớn. Chỉ thấy hai con Hồng Côn lớn dài mấy chục trượng nhảy khỏi mặt nước, há miệng ăn hai con trâu đang gặm cỏ bên bờ. Hai con trâu còn lại vội co giò bỏ chạy.
 

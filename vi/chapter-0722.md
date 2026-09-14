@@ -18,7 +18,7 @@ Tần Mục bước vào điện. Trong điện là một nông phụ, đám H�
 
 "Ta tham ngộ tinh thần võ đạo đã mất bao lâu?" Tần Mục nhìn mặt đất, chỉ thấy trên sàn đại điện này có vài vết máu, nhưng vết máu đã khô.
 
-"Đệ tử của kẻ đốn củi, ngươi mất mười ngày mới qua tòa đại điện thứ nhất?"
+"Đệ tử của lão đốn củi, ngươi mất mười ngày mới qua tòa đại điện thứ nhất?"
 
 Phụ nhân kia thân hình to ngang vạm vỡ, cười nói: "Thực lực của ta mạnh hơn ông ấy. Vậy cửa của ta, ngươi định dùng bao lâu?"
 

@@ -62,7 +62,7 @@ Tần Mục cười ha hả, mồ hôi lại càng lúc càng nhiều.
 
 Vân Thiên Tôn nhìn hắn, nói: “Ta có thể giúp ngươi chặn Nhị công tử, U Thiên Tôn chặn Hư Thiên Tôn, Nguyệt Thiên Tôn đi chống Tổ Thần Vương, Thái Thủy ngăn Thái Cực cổ thần, Lãng Uyển đi ngăn Thái Sơ, Thương Quân đi giết Nguyên Mẫu phu nhân. Như vậy, bên cạnh Hạo Thiên Đế không còn thành đạo giả, không còn trở ngại. Ngươi đi giết Hạo Thiên Đế, đại cục có thể định!”
 
-Tần Mục nhìn thẳng vào hắn, giọng khàn đi: “Khi đó, Hạo Thiên Đế đúng là chết rồi. Nhưng cổ thần Tứ Đế, Đế Dịch Nguyệt, Điền Thục, Đế Thích Thiên, Thanh Hoàng, Tiều Phu, Nông Phu, Thư Sinh, Ngư Ông, Long Phi, Giang Bạch Khuê, Ngụy Tùy Phong, Diên Phong Đế, Công Tôn Yến, Sơ Tổ, Xích Hoàng, Minh Hoàng, Thiên Âm nương nương, Tần Phượng Thanh, Thiên Công, A Sửu! Tất cả đều chết!”
+Tần Mục nhìn thẳng vào hắn, giọng khàn đi: “Khi đó, Hạo Thiên Đế đúng là chết rồi. Nhưng cổ thần Tứ Đế, Đế Dịch Nguyệt, Điền Thục, Đế Thích Thiên, Thanh Hoàng, Tiều Phu, Nông Phu, Thư Sinh, Ngư ông, Long Phi, Giang Bạch Khuê, Ngụy Tùy Phong, Diên Phong Đế, Công Tôn Yến, Sơ Tổ, Xích Hoàng, Minh Hoàng, Thiên Âm nương nương, Tần Phượng Thanh, Thiên Công, A Sửu! Tất cả đều chết!”
 
 Hắn càng nói càng nhanh, cuối cùng lạnh lùng nói: “Lãng Uyển đi giết Thái Sơ, thật ra cũng là đi chịu chết! Lãng Uyển có thần thức mạnh nhất trừ huynh ra. Thái Sơ giết nàng, lấy được thần thức của nàng, nói không chừng có thể làm được Thái Sơ thành đạo, cho nên hắn nhất định sẽ đi, mà Lãng Uyển cũng nhất định sẽ chết! Còn huynh, cũng chết! Chiến thắng như vậy có ích gì?”
 

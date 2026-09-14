@@ -94,7 +94,7 @@ Dĩ nhiên, trong lòng Tần Mục, thân xác Thiên Đế Thái Sơ mới là
 
 Bàn tay lớn ấy nhanh vô cùng, sắp chụp trúng Bỉ Ngạn Phương Chu. Vũ Đấu Thiên Sư Trác Trà gầm lên, tóc dựng ngược, hai quyền chấn động rồi bay khỏi thuyền, xông về phía bàn tay lớn của Thái Đế.
 
-Đế Dịch Nguyệt, Điền Thục, Diêm Vương, Ngư Ông, Thanh Hoàng, Đế Thích Thiên và các cường giả cùng đánh về phía bàn tay kia. Tiều Phu Thánh Nhân tháo rìu xuống, cũng định xông lên, lại bị Tần Mục kéo lại.
+Đế Dịch Nguyệt, Điền Thục, Diêm Vương, Ngư ông, Thanh Hoàng, Đế Thích Thiên và các cường giả cùng đánh về phía bàn tay kia. Tiều Phu Thánh Nhân tháo rìu xuống, cũng định xông lên, lại bị Tần Mục kéo lại.
 
 “Sư phụ, sư phụ đừng góp vui nữa.”
 

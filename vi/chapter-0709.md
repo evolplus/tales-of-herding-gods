@@ -38,7 +38,7 @@ Cửa kẽo kẹt một tiếng, tự động mở ra.
 
 Tiều Phu Thánh Nhân đi ra ngoài, ngay trước mặt thủ vệ đi tới bên một nhà lao khác, phất tay. Nhà lao mở ra, xiềng xích khóa Sơ Tổ Nhân Hoàng lần lượt rơi xuống.
 
-Sơ Tổ Nhân Hoàng nhảy ra khỏi ngục, đánh chết thủ vệ Minh Ngục nhào tới, phá vỡ những nhà lao khác, cứu Phược Nhật La, Thùy Điếu Ông, Xích Khê và những người khác ra ngoài.
+Sơ Tổ Nhân Hoàng nhảy ra khỏi ngục, đánh chết thủ vệ Minh Ngục nhào tới, phá vỡ những nhà lao khác, cứu Phược Nhật La, Ngư ông, Xích Khê và những người khác ra ngoài.
 
 "Chư quân hãy phá ngục dọc đường, thả tất cả phạm nhân ra. Hỗn loạn gây ra cho Minh Đô càng lớn càng tốt!"
 
@@ -50,9 +50,9 @@ Mọi người gật đầu, dọc đường xông phá qua các cửa ải, đ�
 
 Minh Ngục này là nhà ngục nghiêm ngặt nhất của Minh Đô, giam giữ thần ma bất kính với Thiên Đình. Những thần ma này bị tước đoạt thân xác, nguyên thần bị giam ở đây chịu khổ.
 
-Thủ vệ trong Minh Ngục rất nhiều, dù sao thứ bị giam đều là nhân vật nguy hiểm. Nhưng bọn họ gặp phải những kẻ dữ như Thùy Điếu Ông, Xích Khê và Phược Nhật La, vừa lên đã không nói hai lời thi triển sát chiêu.
+Thủ vệ trong Minh Ngục rất nhiều, dù sao thứ bị giam đều là nhân vật nguy hiểm. Nhưng bọn họ gặp phải những kẻ dữ như Ngư ông, Xích Khê và Phược Nhật La, vừa lên đã không nói hai lời thi triển sát chiêu.
 
-Thùy Điếu Ông vung lưỡi câu, câu hồn phách ra, mỗi câu đều chuẩn. Xích Khê ba đầu sáu tay, ma công của Phược Nhật La càng kinh diễm. Ba người đánh cho Minh Ngục trời long đất lở, gặp đối thủ không giải quyết được thì còn có Sơ Tổ Nhân Hoàng.
+Ngư ông vung lưỡi câu, câu hồn phách ra, mỗi câu đều chuẩn. Xích Khê ba đầu sáu tay, ma công của Phược Nhật La càng kinh diễm. Ba người đánh cho Minh Ngục trời long đất lở, gặp đối thủ không giải quyết được thì còn có Sơ Tổ Nhân Hoàng.
 
 Từ sau khi Sơ Tổ Nhân Hoàng đi ra khỏi nhà tù trong tâm cảnh, tu vi thực lực càng lúc càng mạnh, có xu thế đột phá Trảm Thần Đài tiến vào cảnh giới Ngọc Kinh.
 
@@ -102,7 +102,7 @@ Nhưng vị đại đệ tử này đến nay vẫn không thấy tung tích, kh
 
 Ông nói tới đây thì trầm mặc, rất lo lắng cho cảnh ngộ của Khai Sơn Tổ Sư.
 
-Thùy Điếu Ông khen:
+Ngư ông khen:
 
 "Đại đệ tử của ngươi quả thật rất ghê gớm, thế mà có thể thần không biết quỷ không hay xông vào đây, tìm ra tung tích Đế Dịch Nguyệt. Hai đệ tử còn lại của ngươi cũng đều không phải người thường. Diên Khang Quốc sư ta đã gặp, tài hoa tuyệt đại, còn hơn ngươi năm đó. Chỉ là nhị đệ tử của ngươi hơi nghịch. Nhưng nói đi cũng phải nói lại, hành động lần này của ngươi giấu nhị đệ tử, xem hắn như mồi nhử, thật sự ổn sao?"
 
@@ -122,7 +122,7 @@ Mỗi lần chiếu sáng, phong ấn trong sắc lệnh liền giải khai mộ
 
 Qua rất lâu, Tiều Phu Thánh Nhân giơ bàn tay lên, nhẹ nhàng bóc sắc lệnh xuống.
 
-Mọi người tuy tán thưởng thủ đoạn của ông, nhưng cũng không quá kinh ngạc. Là tên đốn củi đứng đầu Tứ Đại Thiên Sư, Tiều phu nổi tiếng bác học rộng nghe. Dưới trời gần như không có phong ấn nào ông không phá được!
+Mọi người tuy tán thưởng thủ đoạn của ông, nhưng cũng không quá kinh ngạc. Là lão đốn củi đứng đầu Tứ Đại Thiên Sư, Tiều phu nổi tiếng bác học rộng nghe. Dưới trời gần như không có phong ấn nào ông không phá được!
 
 Cửa nhà lao kẽo kẹt mở ra, âm thanh rất chói tai. Một luồng gió lạnh ập vào mặt, thổi động y phục mọi người. Chẳng mấy chốc, lông mày, râu tóc của họ đều phủ đầy vụn băng.
 

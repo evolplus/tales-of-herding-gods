@@ -104,7 +104,7 @@ Còn cự thú chạy trên mặt đất thì gầm rống liên hồi, kéo Qu�
 
 Lâm Quan Thành là tòa thần thành đầu tiên trên đoạn nhai gần Thái Hoàng Thiên. Thần thành rộng lớn, tướng sĩ trong thành đã sớm chuẩn bị đầy đủ, nhưng thấy cự thú tuôn đến như thủy triều, các tướng sĩ vẫn không khỏi sắc mặt tái nhợt.
 
-Ngư Ông Hàn Đường thấy vậy, lập tức đứng dậy nói: “Ba vị sư huynh, đến lượt ta xuất chinh rồi!”
+Ngư ông Hàn Đường thấy vậy, lập tức đứng dậy nói: “Ba vị sư huynh, đến lượt ta xuất chinh rồi!”
 
 Tiều Phu Thánh Nhân nói: “Chủ Thú giới Long Hao không đáng tin. Người này sợ cường quyền, đệ phải cẩn thận hắn trở mặt.”
 
@@ -122,7 +122,7 @@ Nguyên thần của hắn từ sau lưng dâng lên, tọa trấn trong Thiên 
 
 Năm tòa Thiên Khố Lâu xoay tròn, bay về phía trước, vượt qua đại quân Ngũ Xa Thiên Đình. Năm tiếng nổ ầm ầm vang lên, chúng đập xuống đại quân bộ Hàn Đường trước Lâm Quan Thành!
 
-Ngư Ông Hàn Đường quát vang. Ông cùng thần binh thần tướng dưới trướng dốc toàn lực điều khiển những thái cổ cự thú này, tinh khí thần của người và thú hợp nhất, lớn mạnh tinh khí thần của mình, kết thành trận thế, lần lượt ngăn năm tòa Thiên Khố Lâu!
+Ngư ông Hàn Đường quát vang. Ông cùng thần binh thần tướng dưới trướng dốc toàn lực điều khiển những thái cổ cự thú này, tinh khí thần của người và thú hợp nhất, lớn mạnh tinh khí thần của mình, kết thành trận thế, lần lượt ngăn năm tòa Thiên Khố Lâu!
 
 Năm tòa Thiên Khố Lâu rơi xuống đất, năm loại bảo liễn chiến xa từ trong lầu tuôn ra, xông thẳng vào quân trận.
 
@@ -130,11 +130,11 @@ Trong giỏ cá sau lưng Hàn Đường, hai con cá đỏ nhỏ bay ra, hóa t
 
 Những chiến xa bảo liễn kia chỉ lo lao về phía trước, xông tới Lâm Quan Thành. Đòn công kích của họ, đỡ được thì đỡ, đỡ không được thì chết. Nhất thời thương vong thảm trọng.
 
-Ngư Ông Hàn Đường lại không hề buông lỏng chút nào, đột nhiên cao giọng nói: “Cẩn thận thú quân xung phong!”
+Ngư ông Hàn Đường lại không hề buông lỏng chút nào, đột nhiên cao giọng nói: “Cẩn thận thú quân xung phong!”
 
 Thái cổ cự thú kéo Quảng Xa ầm ầm húc tới!
 
-Cự thú va chạm cự thú, đất rung núi chuyển. Ngư Ông Hàn Đường bay lên không, hạ xuống lưng một con côn đỏ, cao giọng nói: “Nghe hiệu lệnh của ta, tế phù lục ngự thú!”
+Cự thú va chạm cự thú, đất rung núi chuyển. Ngư ông Hàn Đường bay lên không, hạ xuống lưng một con côn đỏ, cao giọng nói: “Nghe hiệu lệnh của ta, tế phù lục ngự thú!”
 
 Tướng sĩ dưới trướng ông lần lượt vỗ túi vải, vô số phù lục bay lên, dán vào trán cự thú của địch quân.
 

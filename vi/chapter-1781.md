@@ -142,7 +142,7 @@ Chuyện nàng lừa tình cảm Bạch Ngọc Quỳnh là chuyện cũ năm xư
 
 Bạch Ngọc Quỳnh sóng vai đi cùng nàng, đột nhiên nói: "Ta gặp Mạnh Thiên Sư sau khi chuyển thế rồi. Hiện giờ huynh ấy rất tốt, có sự nghiệp và lý niệm của riêng mình. Với trí tuệ của huynh ấy, tương lai huynh ấy sẽ có thành tựu khác kiếp trước. Ta nghe nói chuyện Trác Trà rồi, ngươi có đi tìm hắn không?"
 
-Yên Vân Hề nghe vậy, sắc mặt ảm đạm: "Gã trồng ruộng sau khi chuyển thế không thích ta..."
+Yên Vân Hề nghe vậy, sắc mặt ảm đạm: "Lão trồng ruộng sau khi chuyển thế không thích ta..."
 
 Bạch Ngọc Quỳnh ngạc nhiên, che miệng cười thầm: "Tử Hề, ngươi cũng có ngày hôm nay!"
 

@@ -108,45 +108,45 @@ Tần Mục nhìn vào trong giỏ cá, lại thấy chuyện càng cổ quái h
 
 Trong lòng hắn rất khó hiểu.
 
-Tiều Phu Thánh Nhân tới bên tượng đá ông lão câu cá, lấy một nén hương ra, thắp lên cắm cạnh tượng đá, nói: "Sư huynh, nên tỉnh rồi."
+Tiều Phu Thánh Nhân tới bên tượng đá Ngư ông, lấy một nén hương ra, thắp lên cắm cạnh tượng đá, nói: "Sư huynh, nên tỉnh rồi."
 
 Khói hương lượn lờ như linh xà, chui vào lỗ mũi tượng đá.
 
-Qua một lát, lỗ mũi của tượng đá dần từ đá biến thành máu thịt, rồi lan ra từ quanh lỗ mũi. Chẳng mấy chốc, chất đá trên người ông lão câu cá dần rút đi, máu thịt da dẻ cùng y phục đều trở nên sống động.
+Qua một lát, lỗ mũi của tượng đá dần từ đá biến thành máu thịt, rồi lan ra từ quanh lỗ mũi. Chẳng mấy chốc, chất đá trên người Ngư ông dần rút đi, máu thịt da dẻ cùng y phục đều trở nên sống động.
 
 Cần câu trong tay ông cũng từng chút một trút bỏ chất đá, rồi từ cần câu lan tới dây câu, dây câu cũng duỗi ra!
 
 Tiếp đó, chiếc giỏ cá đặt bên chân ông trong đầm nước cũng trút bỏ chất đá. Chỉ nghe hai tiếng quẫy nước bì bõm, hai con cá trong giỏ vậy mà cũng sống lại, đỏ au, lăn hai cái trong giỏ.
 
-Tần Mục và Viêm Tinh Tinh nhìn đến nhập thần. Chỉ thấy ông lão câu cá duỗi lưng, nhích chiếc ghế con dưới mông, nói: "Ngủ thật no. Kẻ đốn củi, ngươi gọi ta tỉnh có chuyện gì?"
+Tần Mục và Viêm Tinh Tinh nhìn đến nhập thần. Chỉ thấy Ngư ông duỗi lưng, nhích chiếc ghế con dưới mông, nói: "Ngủ thật no. Lão đốn củi, ngươi gọi ta tỉnh có chuyện gì?"
 
 Tiều Phu Thánh Nhân cười nói: "Câu mặt trời, câu mặt trăng."
 
-Ông lão câu cá tháo nón xuống, thổi bụi trên đó, lại đội về đầu, nói: "Mặt trời trong Giếng Mặt Trời? Mặt trăng trong Giếng Mặt Trăng? Với bản lĩnh của ngươi, câu lên cũng không khó, cần gì gọi ta tỉnh?"
+Ngư ông tháo nón xuống, thổi bụi trên đó, lại đội về đầu, nói: "Mặt trời trong Giếng Mặt Trời? Mặt trăng trong Giếng Mặt Trăng? Với bản lĩnh của ngươi, câu lên cũng không khó, cần gì gọi ta tỉnh?"
 
 "Ta còn có chuyện khác phải làm, không thể phân tâm, cho nên đành gọi sư huynh tỉnh."
 
 Tiều Phu Thánh Nhân thở dài nói: "Hai vạn năm trôi qua, lại tới thời đại mới. Sư huynh không nên tiếp tục ngủ say nữa."
 
-Ông lão câu cá đứng dậy, nhấc giỏ cá đeo sau lưng, thu dây câu, xách cần câu, xoay người đối diện đám Tần Mục, Viêm Tinh Tinh.
+Ngư ông đứng dậy, nhấc giỏ cá đeo sau lưng, thu dây câu, xách cần câu, xoay người đối diện đám Tần Mục, Viêm Tinh Tinh.
 
 Đầu ông rất lớn, cổ trông rất ngắn, chiếc nón trên đầu vừa vặn kẹt trên búi tóc. Gương mặt ông trông già hơn Tiều Phu rất nhiều, trên mặt đầy nếp nhăn ngang, đôi mắt lại rất to.
 
-Tần Mục và Viêm Tinh Tinh hành lễ. Ông lão câu cá nói: "Hai đứa nhỏ này là..."
+Tần Mục và Viêm Tinh Tinh hành lễ. Ngư ông nói: "Hai đứa nhỏ này là..."
 
 "Cậu bé là con cháu Tần thị từ Vô Ưu Hương, cô bé là Thái Dương Thủ đương thời."
 
 Tiều Phu nói: "Mục nhi, vị này là Ngư Ông Thiên Sư, một trong bốn vị Thiên Sư của Khai Hoàng Thiên Đình năm xưa."
 
-Ông lão câu cá khoát tay cười nói: "Thời đại Khai Hoàng đã kết thúc hai vạn năm rồi, còn Thiên Sư gì nữa? Kẻ đốn củi, ta không mặt dày như ngươi, còn treo danh hiệu Thiên Sư trên người. Con cháu Tần thị của Vô Ưu Hương tới Đại Khư, chẳng lẽ Khai Hoàng định phản công rồi?"
+Ngư ông khoát tay cười nói: "Thời đại Khai Hoàng đã kết thúc hai vạn năm rồi, còn Thiên Sư gì nữa? Lão đốn củi, ta không mặt dày như ngươi, còn treo danh hiệu Thiên Sư trên người. Con cháu Tần thị của Vô Ưu Hương tới Đại Khư, chẳng lẽ Khai Hoàng định phản công rồi?"
 
 Sắc mặt Tiều Phu ảm đạm.
 
-Ông lão câu cá nhìn thấy, lắc đầu nói: "Vô Ưu Hương đã biến thành ổ an nhàn, Khai Hoàng đại khái là tâm đã già, sẽ không bước ra khỏi ổ an nhàn này nữa. Đi thôi, chúng ta đi câu mặt trời!"
+Ngư ông nhìn thấy, lắc đầu nói: "Vô Ưu Hương đã biến thành ổ an nhàn, Khai Hoàng đại khái là tâm đã già, sẽ không bước ra khỏi ổ an nhàn này nữa. Đi thôi, chúng ta đi câu mặt trời!"
 
 Tiều Phu nói với Tần Mục: "Mục nhi, con đi cùng ông ấy, ta còn có chuyện khác phải làm." Nói xong, ông xoay người rời đi, rất nhanh biến mất không thấy.
 
-Ông lão câu cá cũng thu chiếc ghế con lại, cất bước ra ngoài khe núi, nói: "Hai đứa nhỏ các ngươi, theo kịp nhé."
+Ngư ông cũng thu chiếc ghế con lại, cất bước ra ngoài khe núi, nói: "Hai đứa nhỏ các ngươi, theo kịp nhé."
 
 Tần Mục và Viêm Tinh Tinh vội theo sau. Viêm Tinh Tinh khẽ nói: "Trong giỏ còn hai con cá..."
 

@@ -52,7 +52,7 @@ Sắc mặt Dược sư đau khổ. Thôn trưởng đây là muốn ông bán s
 
 "Mục Thiên Tôn."
 
-Tiều Phu Văn Thiên Các, thư sinh Yên Vân Hề, lão nông Trác Trà và ngư ông Hàn Đường chào Tần Mục. Tần Mục đáp lễ, hỏi Tiều Phu: "Lão sư sao lại tới đây?"
+Tiều Phu Văn Thiên Các, thư sinh Yên Vân Hề, lão nông Trác Trà và Ngư ông Hàn Đường chào Tần Mục. Tần Mục đáp lễ, hỏi Tiều Phu: "Lão sư sao lại tới đây?"
 
 Tiều Phu nói: "Đệ nhất Thiên Vương Đế Dịch Nguyệt kế nhiệm chức Khai Hoàng, vì vậy chúng ta tới báo cho Mục Thiên Tôn. Mục Thiên Tôn có muốn đi dự lễ không?"
 

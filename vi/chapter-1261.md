@@ -104,7 +104,7 @@ Da mặt hắn dày đến mức cũng khiến người ta phải than thở.
 
 Tiều Phu Thánh Nhân nói: "Chúng ta là địch hay bạn, phải xem có khả năng giết Hạo Thiên Tôn hay không. Đã vậy, sao ta không đi tới trung tâm đạo kén xem thử?"
 
-Ông đi đầu tiến lên. Vũ Đấu Thiên Sư Trác Trà vội đến bên cạnh ông, thấp giọng nói: "Ta bảo vệ ngươi. Gã đốn củi, ngươi cảm thấy Hạo Thiên Tôn đã khôi phục được mấy phần thực lực?"
+Ông đi đầu tiến lên. Vũ Đấu Thiên Sư Trác Trà vội đến bên cạnh ông, thấp giọng nói: "Ta bảo vệ ngươi. Lão đốn củi, ngươi cảm thấy Hạo Thiên Tôn đã khôi phục được mấy phần thực lực?"
 
 Tiều Phu Thánh Nhân thì thầm: "Đừng nói khôi phục mấy phần, dù chỉ nửa phần thực lực, tất cả chúng ta cùng xông lên cũng chết chắc. Lợi thế duy nhất hiện giờ là Hạo Thiên Tôn đang hôn mê. Hắn ở trong trạng thái hôn mê, vậy thì có khả năng giết hắn! Thiên Hà Thần Tàng của ngươi luyện thành rồi chứ?"
 

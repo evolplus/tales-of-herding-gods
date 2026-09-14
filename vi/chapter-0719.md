@@ -62,7 +62,7 @@ Tần Mục cũng nhìn quanh bốn phía. Non sông tươi đẹp thu hết và
 
 "Đệ tử Văn Thiên Các, ngươi là cảnh giới Thiên Nhân đúng không?"
 
-Lão nông chậm rãi nói: "Tứ đại Thiên Sư Khai Hoàng Thiên Đình, tên đốn củi đứng đầu, ta xưa nay không phục hắn. Hắn có bản lĩnh gì mà leo lên đầu lão tử? Tứ đại Thiên Sư, hắn xếp thứ nhất, ta xếp thứ ba. Thư sinh Tử Hề xếp thứ hai thì ta tâm phục khẩu phục, nhưng tên đốn củi có tài đức gì? Dựa vào một cái miệng bò lên đầu ta, thư sinh và tên câu cá? Cho nên ta không phục hắn."
+Lão nông chậm rãi nói: "Tứ đại Thiên Sư Khai Hoàng Thiên Đình, lão đốn củi đứng đầu, ta xưa nay không phục hắn. Hắn có bản lĩnh gì mà leo lên đầu lão tử? Tứ đại Thiên Sư, hắn xếp thứ nhất, ta xếp thứ ba. Thư sinh Tử Hề xếp thứ hai thì ta tâm phục khẩu phục, nhưng lão đốn củi có tài đức gì? Dựa vào một cái miệng bò lên đầu ta, thư sinh và lão câu cá? Cho nên ta không phục hắn."
 
 Tần Mục từ trên cao nhìn xuống đại lục chư thiên, chỉ thấy rất nhiều thanh niên trai tráng đang chạy về phía này, tốc độ rất nhanh.
 
@@ -76,7 +76,7 @@ Lão nông thản nhiên nói: "Hai vạn năm trước, Đế Dịch Nguyệt m
 
 Tim Tần Mục thót lên, da đầu tê dại: "Vũ Đấu Thiên Sư đã tu luyện tới cảnh giới Đế Tọa rồi! Ba quyền của ông ấy, ta thật sự không đỡ nổi. Ca ca ta e cũng không được..."
 
-Lão nông cười lạnh nói: "Ta từng đánh với thư sinh. Võ lực hắn không địch lại ta, nhưng lần nào cũng có thể khiến ta phục sát đất, cho nên ta khâm phục hắn. Người ta đó mới là bản lĩnh thật, còn tên đốn củi múa mép mấy câu đã leo lên đầu ta, ta không phục. Lần này hắn chạy tới mời ta xuất sơn. Mời ta xuất sơn cũng không sao, tới so tài một chút chứ. Kết quả ta còn chưa dùng sức, hắn đã nằm trong rãnh nước bẩn."
+Lão nông cười lạnh nói: "Ta từng đánh với thư sinh. Võ lực hắn không địch lại ta, nhưng lần nào cũng có thể khiến ta phục sát đất, cho nên ta khâm phục hắn. Người ta đó mới là bản lĩnh thật, còn lão đốn củi múa mép mấy câu đã leo lên đầu ta, ta không phục. Lần này hắn chạy tới mời ta xuất sơn. Mời ta xuất sơn cũng không sao, tới so tài một chút chứ. Kết quả ta còn chưa dùng sức, hắn đã nằm trong rãnh nước bẩn."
 
 Tần Mục mỉm cười, trên trán toát mồ hôi lạnh.
 
@@ -106,7 +106,7 @@ Tần Mục vội nói: "Thiên Sư, ta vẫn là cảnh giới Thiên Nhân, kh
 
 "Quyết đấu công bằng?"
 
-Lão nông quay đầu, gương mặt đầy nếp nhăn lộ vẻ châm chọc: "Trận chiến giữa Vực Ngoại Thiên Đình và Khai Hoàng Thiên Đình, đã từng công bằng sao? Đánh tới Lăng Tiêu Bảo Điện, ta cho ngươi cứu tên đốn củi đi!"
+Lão nông quay đầu, gương mặt đầy nếp nhăn lộ vẻ châm chọc: "Trận chiến giữa Vực Ngoại Thiên Đình và Khai Hoàng Thiên Đình, đã từng công bằng sao? Đánh tới Lăng Tiêu Bảo Điện, ta cho ngươi cứu lão đốn củi đi!"
 
 Trên Thần Kiều, những thần tộc đến từ đại lục chư thiên nhao nhao theo sau Lão Ngưu, thần thái cung kính. Lão Ngưu không nhanh không chậm đi theo lão nông về phía Nam Thiên Môn.
 

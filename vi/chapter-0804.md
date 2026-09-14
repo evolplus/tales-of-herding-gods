@@ -114,7 +114,7 @@ Nàng nhìn về phía Đế Thích Thiên Vương Phật, lạnh lùng nói:
 
 "Lý Du Nhiên Lý Thiên Vương cũng ghê gớm, thân là đệ tam Thiên Vương, vậy mà lại có tình với Xích Đế Tề Hạ Du của ngụy triều! Khai Hoàng bảo ngươi xây Vô Ưu Hương, ngươi lại bị tình vây khốn, chạy đi làm hòa thượng! Là Chiến Tranh Thiên Vương, ngươi chạy mất, những người dạy học như chúng ta phải cắn răng xông lên, không bại mới lạ!"
 
-"Thanh Hoàng thì không nói ông ấy, ông ấy tuổi cao, là trưởng giả. Nhưng Điền Thục ngươi thì sao? Cuối đại chiến, ngươi bị Tả Thiếu Bật Diêm Thiếu Thanh của ngụy triều dụ dỗ, bị hắn lừa vào Đế Khuyết Thần Đao. Không có ngươi, những người dạy học như chúng ta liều kiểu gì? Ta biết bày trận, ta dạy trận pháp, dạy cầm kỳ thư họa, nhưng ta chưa từng dẫn binh! Kẻ trồng ruộng, kẻ đốn củi, kẻ câu cá, ai từng dẫn binh?"
+"Thanh Hoàng thì không nói ông ấy, ông ấy tuổi cao, là trưởng giả. Nhưng Điền Thục ngươi thì sao? Cuối đại chiến, ngươi bị Tả Thiếu Bật Diêm Thiếu Thanh của ngụy triều dụ dỗ, bị hắn lừa vào Đế Khuyết Thần Đao. Không có ngươi, những người dạy học như chúng ta liều kiểu gì? Ta biết bày trận, ta dạy trận pháp, dạy cầm kỳ thư họa, nhưng ta chưa từng dẫn binh! Lão trồng ruộng, lão đốn củi, lão câu cá, ai từng dẫn binh?"
 
 Nàng cười lạnh nói:
 

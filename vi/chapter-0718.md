@@ -22,9 +22,9 @@ Tần Mục cười nói: "Ta là đệ tử của Tiều phu Thiên Sư. Tứ �
 
 "Lão gia chỉ là người cày ruộng, có gì đáng gặp?"
 
-Lão Ngưu đổ nước trong điếu đi, nói: "Mấy hôm trước có tên đốn củi tới tìm ông ấy, bị ông ấy đánh bị thương, nằm ở rãnh nước bẩn đầu thôn một tháng chưa nhúc nhích. Ngươi đã là đệ tử của tên đốn củi, gọi ta một tiếng sư huynh là được, không cần xưng đạo huynh."
+Lão Ngưu đổ nước trong điếu đi, nói: "Mấy hôm trước có lão đốn củi tới tìm ông ấy, bị ông ấy đánh bị thương, nằm ở rãnh nước bẩn đầu thôn một tháng chưa nhúc nhích. Ngươi đã là đệ tử của lão đốn củi, gọi ta một tiếng sư huynh là được, không cần xưng đạo huynh."
 
-"Tên đốn củi?"
+"Lão đốn củi?"
 
 Tần Mục giật nảy mình: "Tiều Phu lão sư bị đánh bị thương? Một tháng chưa nhúc nhích? Ở thôn nào?"
 
@@ -126,7 +126,7 @@ Vị Vũ Đấu Thiên Sư này đúng là gan to bằng trời!
 
 Tần Mục đột nhiên nghiêm mặt nói: "Giang hồ có quy củ của giang hồ, triều đình có quy củ của triều đình. Đã tới giang hồ, vậy theo quy củ giang hồ! Vãn bối Tần Mục tới cứu lão sư, xin Thiên Sư vạch đường!"
 
-Mí mắt rũ của lão nông nâng lên, hắc hắc cười: "Quy củ giang hồ? Hay lắm! Ta cũng muốn xem tên múa mép kia dạy ngươi được bao nhiêu bản lĩnh! Tên đốn củi hèn mọn dựa vào cái miệng thành đứng đầu Tứ đại Thiên Sư, ngươi hẳn không chỉ học được cái miệng của hắn chứ?"
+Mí mắt rũ của lão nông nâng lên, hắc hắc cười: "Quy củ giang hồ? Hay lắm! Ta cũng muốn xem tên múa mép kia dạy ngươi được bao nhiêu bản lĩnh! Lão đốn củi hèn mọn dựa vào cái miệng thành đứng đầu Tứ đại Thiên Sư, ngươi hẳn không chỉ học được cái miệng của hắn chứ?"
 
 Tần Mục cười ha hả, áo quần không gió mà tự động, bay phần phật: "Nói ra thật hổ thẹn, vãn bối từ khi xuất đạo tới nay, xưa nay luôn dùng nắm đấm giải quyết vấn đề, một đường võ đấu mà tới, chưa từng thua người!"
 

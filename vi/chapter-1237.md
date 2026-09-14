@@ -22,7 +22,7 @@ Tần Mục tới thần thành nơi Đông Lạc Sư Môn của Mạnh Vân Quy
 
 Tần Mục trầm ngâm, rơi vào suy tư.
 
-Tiều phu, thư sinh, lão nông, ngư ông. Tiều phu Văn Thiên Các là người tổng lãnh đại cục biến pháp Khai Hoàng, nắm giữ phương hướng chủ yếu. Thư sinh Yên Vân Hề chủ trì biến pháp quân chính. Lão nông chủ trì biến đổi sinh kế lê dân. Ngư ông chủ trì biến đổi thần thông đạo pháp.
+Tiều phu, thư sinh, lão nông, Ngư ông. Tiều phu Văn Thiên Các là người tổng lãnh đại cục biến pháp Khai Hoàng, nắm giữ phương hướng chủ yếu. Thư sinh Yên Vân Hề chủ trì biến pháp quân chính. Lão nông chủ trì biến đổi sinh kế lê dân. Ngư ông chủ trì biến đổi thần thông đạo pháp.
 
 Tứ đại Thiên Sư của Thiên Đình thì chú trọng chiến lực, không có bất kỳ nhu cầu biến đổi nào.
 

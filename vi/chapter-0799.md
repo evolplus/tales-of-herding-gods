@@ -22,7 +22,7 @@ Lão nông tuy miệng cứng, nhưng từ lâu đã bị Tần Mục và Hư Si
 
 "Ghét nhất là những người đầu óc linh hoạt này, động một chút lại nói ta cũng rất ngu, ta cũng không dụng công, ta cũng chưa học, ta chỉ suy nghĩ một chút, rồi lấy ra cho ngươi hai mươi sáu cách giải. Những tên xấu xa này, chỉ hận không thể viết mấy chữ 'ta thông minh hơn ngươi' lên mặt, chờ ngươi khen hắn!"
 
-Thời trẻ ông đã nếm đủ đả kích. Tiều phu, thư sinh, ngư ông, mỗi người đều thông minh hơn ông, khiến ông cảm thấy mình là người ngốc nhất trong bốn người.
+Thời trẻ ông đã nếm đủ đả kích. Tiều phu, thư sinh, Ngư ông, mỗi người đều thông minh hơn ông, khiến ông cảm thấy mình là người ngốc nhất trong bốn người.
 
 Loại đả kích này đi cùng hai vạn năm thời đại Khai Hoàng, khiến ông đầy bụng oán khí.
 
@@ -128,7 +128,7 @@ Không lâu sau, Địa Nguyên Đạo Quả nhăn nheo lại thành hình!
 
 Lão nông lắc đầu, nói:
 
-"Địa Mẫu ban phúc và quả này đều quá cổ quái. Đợi tên đốn củi tới, để hắn nghiên cứu."
+"Địa Mẫu ban phúc và quả này đều quá cổ quái. Đợi lão đốn củi tới, để hắn nghiên cứu."
 
 Tần Mục thầm thở dài, lấy lại tinh thần, nói:
 
@@ -224,11 +224,11 @@ Lão Ngưu chặn ông lại, hỏi:
 
 Lão nông hừ lạnh một tiếng:
 
-"Ở chỗ này không sảng khoái, ngày nào cũng bị người thông minh đả kích. Ta thà chạy từng chuyến. Tên đốn củi tới rồi, ta đi trước!"
+"Ở chỗ này không sảng khoái, ngày nào cũng bị người thông minh đả kích. Ta thà chạy từng chuyến. Lão đốn củi tới rồi, ta đi trước!"
 
 Chỉ nghe giọng Tiều Phu Thánh Nhân từ xa truyền tới, cười nói:
 
-"Tên trồng ruộng, ngươi ngày nào cũng bị ai đả kích?"
+"Lão trồng ruộng, ngươi ngày nào cũng bị ai đả kích?"
 
 Lão nông siết chặt nắm đấm, sắc mặt bất thiện.
 

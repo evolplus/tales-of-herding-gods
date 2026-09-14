@@ -82,7 +82,7 @@ Lão nông liếc hắn một cái, nói: "Ngươi đã lấy võ nhập đạo,
 
 Tần Mục không đi, ngắc ngứ nói: "Nghe thử cũng chẳng có gì ghê gớm. Hơn nữa Hồ huynh có thể tu thành một tầng thần tàng, ta cũng có công rất lớn. Ta chỉ nghe thôi, lại không luyện."
 
-Gân xanh nổi lên trên trán lão nông: "Ngươi là đệ tử kẻ đốn củi, ta sẽ không dạy ngươi, nếu không lại bị kẻ đốn củi nhận vơ công lao."
+Gân xanh nổi lên trên trán lão nông: "Ngươi là đệ tử lão đốn củi, ta sẽ không dạy ngươi, nếu không lại bị lão đốn củi nhận vơ công lao."
 
 Tần Mục còn định nói nữa, lão nông nói với lão ngưu: "Tam Đa, ngươi đưa hắn đi gặp Thiên Âm nương nương."
 

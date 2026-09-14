@@ -46,7 +46,7 @@ Còn hiện tại, đối mặt với bàn tay lớn của Thái Đế, nhiệt 
 
 Ngưu Tam Đa sải bước, tiếng ầm ầm như điện chớp sấm rền. Chỉ mấy bước hắn đã lao tới mép Bỉ Ngạn Phương Chu, tung mình nhảy lên, thẳng đến bàn tay lớn của Thái Đế.
 
-Đế Dịch Nguyệt bay ngược tới trước mặt, bị đánh bật trở về. Trác Trà xòe năm ngón, nhẹ nhàng đỡ sau lưng nàng, hóa giải sức mạnh của Thái Đế, trầm giọng nói: “Cảnh giới Lăng Tiêu và Đế Tọa thì lên, người câu cá, kẻ đốn củi, các ông lui về!”
+Đế Dịch Nguyệt bay ngược tới trước mặt, bị đánh bật trở về. Trác Trà xòe năm ngón, nhẹ nhàng đỡ sau lưng nàng, hóa giải sức mạnh của Thái Đế, trầm giọng nói: “Cảnh giới Lăng Tiêu và Đế Tọa thì lên, lão câu cá, lão đốn củi, các ông lui về!”
 
 Ngư Ông Thiên Sư Hàn Đường thu cần câu, kéo Tiều Phu Thánh Nhân lại. Mặt Tiều Phu Thánh Nhân đỏ bừng, xách rìu lớn nói: “Ta có thể đánh một trận...”
 

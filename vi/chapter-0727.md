@@ -8,7 +8,7 @@ Quốc sư Diên Khang trước kia là lý trí tuyệt đối, thậm chí nga
 
 Còn Quốc sư Diên Khang hiện giờ thì có thêm vài phần hơi người.
 
-"Khi ấy ta đã phát hiện kẻ cày ruộng có chút bất mãn với ta, mà ta quả thực cũng không có tâm tư cho tình cảm cá nhân. Cô gái kia đúng là rất ưu tú, dung mạo cũng xinh đẹp. Bất kể nhìn từ phương diện nào, nàng đều là bạn đời tốt nhất. Nhưng Khai Hoàng giao trọng trách biến pháp cho ta, nếu ta dùng quyền thế Khai Hoàng trao cho để ve vãn thiếu nữ, chẳng phải phụ lòng Khai Hoàng giao phó sao?"
+"Khi ấy ta đã phát hiện lão trồng ruộng có chút bất mãn với ta, mà ta quả thực cũng không có tâm tư cho tình cảm cá nhân. Cô gái kia đúng là rất ưu tú, dung mạo cũng xinh đẹp. Bất kể nhìn từ phương diện nào, nàng đều là bạn đời tốt nhất. Nhưng Khai Hoàng giao trọng trách biến pháp cho ta, nếu ta dùng quyền thế Khai Hoàng trao cho để ve vãn thiếu nữ, chẳng phải phụ lòng Khai Hoàng giao phó sao?"
 
 Tiều Phu thong thả nói: "Vì vậy ta nói với cô gái kia: Vân Hề, ta không phải người để nàng gửi gắm cả đời. Việc Khai Hoàng giao phó can hệ trọng đại, trên đời còn có quá nhiều thứ chờ ta thay đổi, cho nên ta chỉ có thể phụ tấm thâm tình."
 
@@ -16,7 +16,7 @@ Tần Mục nghe đến nhập thần, cười nói: "Sư phụ, giữa nhà và
 
 "Nàng tên là Yên Vân Hề, là một nữ tử, một nữ tử rất mê người."
 
-Hiển nhiên Tiều Phu đang hồi tưởng vị nữ tử xuất chúng thoát tục ấy, ngẩn ngơ xuất thần, hiếm khi dịu dàng, khẽ nói: "Nàng cũng rất thông minh, rất tài hoa. Nàng có thể để mắt tới ta, trong lòng ta cũng rất vui. Nhưng ta kính trọng nàng nhiều hơn ái mộ. Nàng lại hỏi ta, Thiên Các, Trác Trà có lòng ái mộ nàng, có phải người đáng gửi gắm cả đời hay không? Trác Trà chính là kẻ cày ruộng. Ta cười nói với nàng..."
+Hiển nhiên Tiều Phu đang hồi tưởng vị nữ tử xuất chúng thoát tục ấy, ngẩn ngơ xuất thần, hiếm khi dịu dàng, khẽ nói: "Nàng cũng rất thông minh, rất tài hoa. Nàng có thể để mắt tới ta, trong lòng ta cũng rất vui. Nhưng ta kính trọng nàng nhiều hơn ái mộ. Nàng lại hỏi ta, Thiên Các, Trác Trà có lòng ái mộ nàng, có phải người đáng gửi gắm cả đời hay không? Trác Trà chính là lão trồng ruộng. Ta cười nói với nàng..."
 
 Sắc mặt Tiều Phu cổ quái: "Ta nói, tình yêu Trác Trà dành cho võ đạo vượt trên tình yêu dành cho nàng. Ông ấy đối với võ đạo là chân ái, đối với nàng chỉ là ham thích nhất thời. Trác Trà không phải người đáng gửi gắm. Ta nói bằng thân phận bạn bè, phân tích tính cách Trác Trà, nhìn vẫn rất chuẩn. Nghĩ lại thì câu này sau đó truyền tới tai Trác Trà, cho nên ông ấy luôn nhìn ta không vừa mắt."
 
@@ -30,7 +30,7 @@ Tiều Phu tiếp tục nói: "Sau này Yên Vân Hề không gả cho ai, còn 
 
 Tần Mục thất thanh nói: "Vũ Đấu Thiên Sư chính là nhân vật lấy võ nhập đạo tu thành Đế Tọa, sao lại không nhận ra Yên Vân Hề nữ giả nam trang?"
 
-Tiều Phu cười nói: "Bản lĩnh của Yên Vân Hề cực cao, hơn nữa lanh lợi cổ quái. Nàng không muốn để ông ấy nhận ra thì ông ấy không nhận ra được. Hơn nữa kẻ cày ruộng đầy đầu đều là cơ bắp, có nhãn lực gì chứ? Yên Vân Hề còn đánh ông ấy rất nhiều lần, ông ấy cũng không nhận ra, trái lại đối với người ta ngoan ngoãn phục tùng, còn đối với ta thì trợn mắt lạnh mày."
+Tiều Phu cười nói: "Bản lĩnh của Yên Vân Hề cực cao, hơn nữa lanh lợi cổ quái. Nàng không muốn để ông ấy nhận ra thì ông ấy không nhận ra được. Hơn nữa lão trồng ruộng đầy đầu đều là cơ bắp, có nhãn lực gì chứ? Yên Vân Hề còn đánh ông ấy rất nhiều lần, ông ấy cũng không nhận ra, trái lại đối với người ta ngoan ngoãn phục tùng, còn đối với ta thì trợn mắt lạnh mày."
 
 "Đánh Vũ Đấu Thiên Sư rất nhiều lần?"
 
@@ -94,7 +94,7 @@ Hơn nữa, các võ giả Đẩu Ngưu giới như Hồ Bất Quy từng nói, 
 
 "Cường giả Đế Tọa, đúng là thần thông quảng đại."
 
-Tần Mục liếc lão nông một cái. Lão nông dắt con lão ngưu đi tới, nói với thôn dân: "Lần này ta ra ngoài dạo một chút, đi cùng họ gặp kẻ tên Hư Sinh Hoa kia, xem có bản lĩnh thật hay không. Nếu có bản lĩnh thật, vậy ta sẽ tới Diên Khang đi dạo. Nếu Hư Sinh Hoa không có bản lĩnh, sau này các ngươi gặp kẻ đốn củi thì bắt ông ta lại, ta một quyền đánh chết, rồi quay về ẩn cư."
+Tần Mục liếc lão nông một cái. Lão nông dắt con lão ngưu đi tới, nói với thôn dân: "Lần này ta ra ngoài dạo một chút, đi cùng họ gặp kẻ tên Hư Sinh Hoa kia, xem có bản lĩnh thật hay không. Nếu có bản lĩnh thật, vậy ta sẽ tới Diên Khang đi dạo. Nếu Hư Sinh Hoa không có bản lĩnh, sau này các ngươi gặp lão đốn củi thì bắt ông ta lại, ta một quyền đánh chết, rồi quay về ẩn cư."
 
 Mọi người xưng phải, nói: "Thiên Sư yên tâm, chúng ta ở lại nơi này trông coi Đẩu Ngưu Cung. Nếu gặp Đại Thiên Sư thì sẽ bắt ông ấy lại."
 
@@ -110,7 +110,7 @@ Long Kỳ Lân giật mình, cảm nhận từng luồng lạnh lẽo từ trên
 
 Nguyên thần Tần Mục xuất khiếu, liên hệ với Hư Sinh Hoa, nói với Hồ Bất Quy: "Hư Sinh Hoa lúc này đã tới Tây Thổ, đang xây dựng Thượng Thương học cung. Chúng ta có thể tới Tây Thổ gặp hắn."
 
-Tinh thần Hồ Bất Quy đại chấn. Lão nông ngồi trên lưng trâu, dáng vẻ bình thản như thần, nói: "Nếu Hư Sinh Hoa không ra gì, vậy đánh chết kẻ đốn củi."
+Tinh thần Hồ Bất Quy đại chấn. Lão nông ngồi trên lưng trâu, dáng vẻ bình thản như thần, nói: "Nếu Hư Sinh Hoa không ra gì, vậy đánh chết lão đốn củi."
 
 Tần Mục cười nói: "Tài hoa của Hư huynh tràn đầy. Nếu không có ta, hắn chính là kỳ tài đứng đầu thiên hạ. Vũ Đấu Thiên Sư gặp hắn, nhất định sẽ rất vui."
 

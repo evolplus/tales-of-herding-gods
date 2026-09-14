@@ -32,7 +32,7 @@ Giang Bạch Khuê và Diên Phong Đế nhìn xuống dưới lầu thành, ch�
 
 Giang Bạch Khuê nhảy xuống từ trên lầu thành, chắp hai tay sau lưng đứng trước mặt kẻ điên kia, thản nhiên nói: “Ta tự nhiên lợi hại.”
 
-Kẻ điên kia vừa bắt chấy vừa ngẩng mắt nhìn ông một cái, cười hắc hắc nói: “Đệ tử của gã đốn củi Văn Thiên Các? Nói chuyện quả nhiên kiêu khí ngất trời.”
+Kẻ điên kia vừa bắt chấy vừa ngẩng mắt nhìn ông một cái, cười hắc hắc nói: “Đệ tử của lão đốn củi Văn Thiên Các? Nói chuyện quả nhiên kiêu khí ngất trời.”
 
 Hắn đứng dậy, bỏ con chấy vào miệng cắn một cái, vang lên tiếng lép bép, rồi phun ra, nói: “Văn Thiên Các đứng trước mặt ta cũng không có khí phách như ngươi, hắn từng chịu thiệt trong tay ta. Tứ đại Thiên Sư của Thiên Đình kéo tới, người nào cũng là hạng trí tuệ hơn người. Ngươi và Tử Hề liên thủ, cũng không thể địch nổi bọn họ.”
 
@@ -44,7 +44,7 @@ Kẻ điên kia cười nói: “Vô Ưu Hương có được mấy người? T�
 
 Giang Bạch Khuê nhíu mày.
 
-Kẻ điên kia cười nói: “Bản lĩnh của ngươi không tệ nhỉ? Gã đốn củi Văn Thiên Các đã ngạo khí bức người, cậy tài khinh đời, ngươi dường như còn kiêu ngạo hơn hắn một chút.”
+Kẻ điên kia cười nói: “Bản lĩnh của ngươi không tệ nhỉ? Lão đốn củi Văn Thiên Các đã ngạo khí bức người, cậy tài khinh đời, ngươi dường như còn kiêu ngạo hơn hắn một chút.”
 
 Giang Bạch Khuê khiêm tốn nói: “Ta không phải người lợi hại nhất Diên Khang. Ta có một vị sư huynh, cùng cảnh giới thì trước sau luôn vững vàng hơn ta một bậc. Nhưng so với những người khác, bọn họ là hình tam giác, còn ta là một đường thẳng.”
 

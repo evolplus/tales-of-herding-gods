@@ -2,7 +2,7 @@
 
 Vách đứt Nguyên giới, sát khí ngập trời.
 
-Tứ đại Thiên Sư của Vô Ưu Hương là Tiều phu, Thư sinh, Lão nông và Ngư Ông đứng trên lầu thành Ngọc Lũy Thành, nhìn xa về phía trước.
+Tứ đại Thiên Sư của Vô Ưu Hương là Tiều phu, Thư sinh, Lão nông và Ngư ông đứng trên lầu thành Ngọc Lũy Thành, nhìn xa về phía trước.
 
 Vách đứt cao vút, kéo dài không biết bao nhiêu vạn dặm, như một đường hào trời, chia Nguyên giới thành hai nửa đông tây.
 
@@ -42,7 +42,7 @@ Yên Vân Hề nói: “Thiên Hà thủy sư là đại quân thần ma mạnh 
 
 Ngư Ông Thiên Sư khẽ nâng tay. Chỉ thấy trong Thiên Hà có một đàn cá bay ra, chừng bốn năm trăm con, bay quanh ông mấy vòng, thì thầm bên tai ông.
 
-Qua một lát, Ngư Ông Hàn Đường nói: “Nhưng lần này, trong Thiên Hà thủy sư có cài thêm Thượng Phụ Cát Vân Thiên trong Thiên Đình Nhị Phụ, Tả Thiếu Tể trong Tứ Tể, Lục Giáp, Thượng Thư, Tả Xu, Hữu Xu, ngoài ra còn có Ngũ Xa đại quân của Thiên Đình phụ trợ, năm lộ đại quân tiến công từ hai cánh.”
+Qua một lát, Ngư ông Hàn Đường nói: “Nhưng lần này, trong Thiên Hà thủy sư có cài thêm Thượng Phụ Cát Vân Thiên trong Thiên Đình Nhị Phụ, Tả Thiếu Tể trong Tứ Tể, Lục Giáp, Thượng Thư, Tả Xu, Hữu Xu, ngoài ra còn có Ngũ Xa đại quân của Thiên Đình phụ trợ, năm lộ đại quân tiến công từ hai cánh.”
 
 Đàn cá kia lại tự bay lên, lao vào Thiên Hà rồi vui vẻ bơi đi.
 
@@ -54,7 +54,7 @@ Yên Vân Hề cười nói: “Ta biết. Đáng tiếc, nếu ngươi chịu d
 
 Vũ Đấu Thiên Sư Trác Trà đột nhiên nói: “Không đúng. Chỉ dựa vào những sức mạnh này, quả thật có thể địch lại Vô Ưu Hương, nhưng muốn như bẻ cành khô nghiền nát Vô Ưu Hương thì không thể. Dù sao U Thiên Tôn tọa trấn ở đây, còn có Lãng Uyển Thần Vương cũng ở đây, đó chính là hai đại Thiên Tôn. Nếu hai đại Thiên Tôn ra tay...”
 
-Tiều Phu Thánh Nhân nhìn về phía Ngư Ông Hàn Đường. Hàn Đường lắc đầu nói: “Tuy ta có thể khống chế thủy thú Thiên Hà, giám sát động tĩnh thủy sư, nhưng nếu có Thiên Tôn ẩn trong đó, những thủy thú này lại không nhìn ra được.”
+Tiều Phu Thánh Nhân nhìn về phía Ngư ông Hàn Đường. Hàn Đường lắc đầu nói: “Tuy ta có thể khống chế thủy thú Thiên Hà, giám sát động tĩnh thủy sư, nhưng nếu có Thiên Tôn ẩn trong đó, những thủy thú này lại không nhìn ra được.”
 
 Tiều Phu Thánh Nhân nhíu mày, quan sát vân nước Thiên Hà, nói: “Chắc chắn trong Thiên Hà thủy sư cũng có nhân vật đối phó với hai vị Thiên Tôn. Hư Thiên Tôn có thể ngăn U Thiên Tôn. Lãng Uyển Thần Vương e rằng phải đối mặt với Thái Cực cổ thần. Truyền lệnh của ta, để con dân Vô Ưu Hương di dời đến Diên Khang.”
 

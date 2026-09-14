@@ -66,7 +66,7 @@ Tần Mục ngẩn ra, thăm dò:
 
 "Ý của sư bá là?"
 
-"Lần này Nguyên giới phá phong, tái hiện nhân gian. Nguyên giới bị phong ấn thì là Đại Khư, Đại Khư giải phong thì là Nguyên giới. Biến cố này ai cũng không ngờ tới, cho dù là tên đốn củi kia cũng bị trở tay không kịp."
+"Lần này Nguyên giới phá phong, tái hiện nhân gian. Nguyên giới bị phong ấn thì là Đại Khư, Đại Khư giải phong thì là Nguyên giới. Biến cố này ai cũng không ngờ tới, cho dù là lão đốn củi kia cũng bị trở tay không kịp."
 
 Lão nông chậm rãi nói:
 
@@ -224,7 +224,7 @@ Tần Mục đứng thẳng người, đi tới bên mương nước thối, cư
 
 Đế Thích Thiên Vương Phật liếc hắn, nói:
 
-"Tên cày ruộng thật sự đi rồi? Ngươi không phải lại lừa ta chứ?"
+"Lão trồng ruộng thật sự đi rồi? Ngươi không phải lại lừa ta chứ?"
 
 Tần Mục xuống mương nước thối, đỡ ông dậy, nghiêm mặt nói:
 

@@ -112,11 +112,11 @@ Tiều Phu Thánh Nhân không để ý tới hắn. Hai người lập tức đ
 
 Quốc sư Diên Khang rút kiếm, Tiều Phu Thánh Nhân tháo rìu xuống. Một người xuất kiếm như điện, một người vận rìu thành gió, mỗi chiêu đều tinh diệu vô cùng, khiến người ta tán thưởng không thôi.
 
-"Giang Bạch Khuê rất giống kẻ đốn củi."
+"Giang Bạch Khuê rất giống lão đốn củi."
 
 Lão nông nhìn một lúc, khẽ nói với thư sinh:
 
-"Nhưng tư chất ngộ tính hình như cao hơn kẻ đốn củi một chút. Tu vi của hắn đã không kém kẻ đốn củi bao nhiêu."
+"Nhưng tư chất ngộ tính hình như cao hơn lão đốn củi một chút. Tu vi của hắn đã không kém lão đốn củi bao nhiêu."
 
 Thư sinh khẽ gật đầu:
 
@@ -124,7 +124,7 @@ Thư sinh khẽ gật đầu:
 
 Lão nông nhìn Tần Mục đang rất khó chịu bên cạnh, khẽ hỏi:
 
-"Vì sao kẻ đốn củi không truyền thụ cho tiểu tử Tần Mục kia? Tiểu tử kia giận rồi, mặt dài hơn cả mặt con lừa của ngươi."
+"Vì sao lão đốn củi không truyền thụ cho tiểu tử Tần Mục kia? Tiểu tử kia giận rồi, mặt dài hơn cả mặt con lừa của ngươi."
 
 Thư sinh lắc đầu:
 
@@ -142,7 +142,7 @@ Thư sinh dở khóc dở cười, hỏi lão nông:
 
 Lão nông hừ khẽ, lắc đầu nói:
 
-"Chưa từng truyền. Khi đó ta ném kẻ đốn củi xuống rãnh bẩn ngâm, tiểu tử này tìm tới, khẩu khí lớn lắm, nói có thể giải quyết vấn đề người Đẩu Ngưu giới không có Thần Kiều, muốn dùng việc này đổi lấy kẻ đốn củi. Ta bèn cho hắn đi xông vào Đẩu Ngưu Thiên Cung, sau đó hắn liền tham ngộ ra dùng võ nhập đạo, ta chẳng truyền gì cho hắn. Không ngờ tiểu tử này thật sự giải quyết được..."
+"Chưa từng truyền. Khi đó ta ném lão đốn củi xuống rãnh bẩn ngâm, tiểu tử này tìm tới, khẩu khí lớn lắm, nói có thể giải quyết vấn đề người Đẩu Ngưu giới không có Thần Kiều, muốn dùng việc này đổi lấy lão đốn củi. Ta bèn cho hắn đi xông vào Đẩu Ngưu Thiên Cung, sau đó hắn liền tham ngộ ra dùng võ nhập đạo, ta chẳng truyền gì cho hắn. Không ngờ tiểu tử này thật sự giải quyết được..."
 
 Thư sinh ngẩn ra, nhìn Tần Mục. Tần Mục vẫn xụ mặt, dáng vẻ rất khó chịu.
 

@@ -28,13 +28,13 @@ Nhưng ba mươi sáu Võ Thần Ngọc Kinh Thành lại không chút ngạc nh
 
 "Vừa rồi ta nghĩ thông rồi. Chuyện ta có thể làm được, không phải ai cũng làm được."
 
-Lão nông nói: "Ta dâng hết tinh lực cả đời cho võ đạo. Trong lòng ta không có bất kỳ thứ gì khác, tinh thành, xích tử. Ta tuy có diệu pháp diệu quyết, nhưng người khác không học nổi, học không được, cũng không thể phi thăng Thiên Cung giống ta. Cho dù Hồ Bất Quy tu luyện tới bước của ta, phi thăng Thiên Cung, hắn cũng chỉ đi lên con đường cũ của ta. Công pháp của hắn vẫn không thể để nhiều người Đẩu Ngưu giới hơn phi thăng Thiên Cung. Kẻ đốn củi nói đúng, đây không phải cách giải quyết nan đề Đẩu Ngưu Cung."
+Lão nông nói: "Ta dâng hết tinh lực cả đời cho võ đạo. Trong lòng ta không có bất kỳ thứ gì khác, tinh thành, xích tử. Ta tuy có diệu pháp diệu quyết, nhưng người khác không học nổi, học không được, cũng không thể phi thăng Thiên Cung giống ta. Cho dù Hồ Bất Quy tu luyện tới bước của ta, phi thăng Thiên Cung, hắn cũng chỉ đi lên con đường cũ của ta. Công pháp của hắn vẫn không thể để nhiều người Đẩu Ngưu giới hơn phi thăng Thiên Cung. Lão đốn củi nói đúng, đây không phải cách giải quyết nan đề Đẩu Ngưu Cung."
 
-Khóe mắt ông giật giật, nhìn Tần Mục, tiếp tục nói: "Kẻ đốn củi tới tìm ta, nói những người biến pháp Diên Khang có cách giải quyết nan đề Đẩu Ngưu Cung. Vốn ta không tin, nhưng bây giờ ta tin rồi. Kẻ đốn củi cũng không phải hoàn toàn vô dụng, dù sao ông ta vẫn thu được một đệ tử tốt... Hồ Bất Quy, ngươi có thể rời Đẩu Ngưu giới rồi."
+Khóe mắt ông giật giật, nhìn Tần Mục, tiếp tục nói: "Lão đốn củi tới tìm ta, nói những người biến pháp Diên Khang có cách giải quyết nan đề Đẩu Ngưu Cung. Vốn ta không tin, nhưng bây giờ ta tin rồi. Lão đốn củi cũng không phải hoàn toàn vô dụng, dù sao ông ta vẫn thu được một đệ tử tốt... Hồ Bất Quy, ngươi có thể rời Đẩu Ngưu giới rồi."
 
 Trong lòng Tần Mục sinh ra một tia hy vọng, vội nói: "Vậy Thiên Sư, con có thể vớt sư phụ con khỏi rãnh nước rồi chứ?"
 
-Sắc mặt lão nông trầm xuống. Gương mặt ông giống như mảnh ruộng bị lão ngưu cày một trăm lần, không thấy bất kỳ nụ cười nào, chỉ thấy từng rãnh nhăn: "Ta nói chuyện không như kẻ đốn củi đầy miệng nói bậy, đánh rắm cũng hời hợt như gió thoảng mây trôi. Ta nói là làm. Ta từng nói ai dám vớt ông ta ra thì phải chịu ba quyền của ta. Ngươi muốn vớt ông ta ra thì phải chịu ba quyền của ta!"
+Sắc mặt lão nông trầm xuống. Gương mặt ông giống như mảnh ruộng bị lão ngưu cày một trăm lần, không thấy bất kỳ nụ cười nào, chỉ thấy từng rãnh nhăn: "Ta nói chuyện không như lão đốn củi đầy miệng nói bậy, đánh rắm cũng hời hợt như gió thoảng mây trôi. Ta nói là làm. Ta từng nói ai dám vớt ông ta ra thì phải chịu ba quyền của ta. Ngươi muốn vớt ông ta ra thì phải chịu ba quyền của ta!"
 
 Tần Mục giật mình. Lão nông nâng nắm tay thô ráp, bá khí đỉnh phong võ đạo lộ rõ, một quyền đánh về phía Tần Mục.
 
@@ -48,7 +48,7 @@ Lão nông thu nắm tay về, cười lạnh nói: "Ngươi tuy bước đầu 
 
 Tần Mục vừa kinh vừa mừng: "Vãn bối hiểu."
 
-Lão nông lại lộ nụ cười, dẫn mọi người đi ra ngoài, cười nói: "Nhưng ngươi rất không tệ, đúng là không tệ. Kẻ đốn củi cũng không chỉ có cái miệng, vẫn còn chút bản lĩnh, dạy dỗ ngươi tốt như vậy. Hừ, không đúng, ngươi là Bá Thể, nếu đổi lại là ta dạy thì chỉ càng dạy tốt hơn! Kẻ đốn củi vẫn không được, không bằng ta!"
+Lão nông lại lộ nụ cười, dẫn mọi người đi ra ngoài, cười nói: "Nhưng ngươi rất không tệ, đúng là không tệ. Lão đốn củi cũng không chỉ có cái miệng, vẫn còn chút bản lĩnh, dạy dỗ ngươi tốt như vậy. Hừ, không đúng, ngươi là Bá Thể, nếu đổi lại là ta dạy thì chỉ càng dạy tốt hơn! Lão đốn củi vẫn không được, không bằng ta!"
 
 Ông tỏ ra rất vui, các chiến thần khác cũng rất vui, đi theo bước chân ông.
 
@@ -140,7 +140,7 @@ Tiều Phu nghẹn lời: "Vẻ mặt này của con là sao? Con muốn biết 
 
 Tần Mục không nói.
 
-Tiều Phu thở dài: "Nói cho con cũng không sao. Thực ra năm xưa ta và ông ấy, còn có thư sinh và người câu cá, quan hệ đều rất tốt. Tu vi của ta tuy yếu nhất, nhưng họ cũng đều rất kính trọng ta. Khai Hoàng để ta chủ trì biến pháp, đẩy ta ra trước đài. Gọi là trai tài gái sắc, nam nhân quá xuất sắc thì sẽ được nữ nhân ưu ái. Khi ấy ông ấy có một cô gái mình thích..."
+Tiều Phu thở dài: "Nói cho con cũng không sao. Thực ra năm xưa ta và ông ấy, còn có thư sinh và lão câu cá, quan hệ đều rất tốt. Tu vi của ta tuy yếu nhất, nhưng họ cũng đều rất kính trọng ta. Khai Hoàng để ta chủ trì biến pháp, đẩy ta ra trước đài. Gọi là trai tài gái sắc, nam nhân quá xuất sắc thì sẽ được nữ nhân ưu ái. Khi ấy ông ấy có một cô gái mình thích..."
 
 Tần Mục giúp ông thay thuốc, nhưng tai không khỏi dựng lên, cẩn thận lắng nghe.
 
