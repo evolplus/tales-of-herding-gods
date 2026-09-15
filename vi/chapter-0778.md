@@ -82,7 +82,7 @@ Thư sinh nói:
 
 Ánh mắt Tần Mục chớp động:
 
-"Ta còn quen một con bò, gọi là Ngưu Tam Đa, cũng quen một con hổ, xưng là Hổ Tôn."
+"Ta còn quen một con trâu, gọi là Ngưu Tam Đa, cũng quen một con hổ, xưng là Hổ Tôn."
 
 Con lừa kia vểnh môi trên, khinh thường:
 

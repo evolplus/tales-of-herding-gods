@@ -34,9 +34,9 @@ Ngưu Tam Đa hoảng hốt chạy tới, đang định xem lão gia nhà mình 
 
 “Lão gia đứng vững!”
 
-Trong miệng Ngưu Tam Đa vang lên một tiếng rống bò dài. Thân thể hắn điên cuồng phình lớn, đột nhiên đứng thẳng như người, hóa thành một Võ Đạo Ma Vương đầu bò thân người, toàn thân cơ bắp cuồn cuộn, từng khối cơ bắp chống vảy rồng xanh dựng lên từng mảng.
+Trong miệng Ngưu Tam Đa vang lên một tiếng rống trâu dài. Thân thể hắn điên cuồng phình lớn, đột nhiên đứng thẳng như người, hóa thành một Võ Đạo Ma Vương đầu trâu thân người, toàn thân cơ bắp cuồn cuộn, từng khối cơ bắp chống vảy rồng xanh dựng lên từng mảng.
 
-Khí huyết lão ngưu sôi trào, bùng ra từ trong cơ thể, như huyết long quấn quanh thân. Trác Trà tách hai chân, đứng trên hai chiếc sừng bò nhọn hoắt, gầm lên một tiếng. Áo quần trên người ông rách toạc, cơ bắp toàn thân như đại long bơi dưới da.
+Khí huyết lão ngưu sôi trào, bùng ra từ trong cơ thể, như huyết long quấn quanh thân. Trác Trà tách hai chân, đứng trên hai chiếc sừng trâu nhọn hoắt, gầm lên một tiếng. Áo quần trên người ông rách toạc, cơ bắp toàn thân như đại long bơi dưới da.
 
 Vừa rồi ông vẫn là dáng vẻ lão nông, giờ lại như trẻ ra mấy chục tuổi, từ già hóa thành trung niên, rồi từ trung niên hóa thành thanh niên. Toàn thân gân thịt rắn chắc, khí huyết như cầu vồng, tái hiện tư thái liều mạng năm xưa theo Khai Hoàng xông pha gây dựng, lấy mạng đổi mạng.
 

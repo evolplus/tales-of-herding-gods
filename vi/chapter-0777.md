@@ -140,7 +140,7 @@ Ban Công Thố cười ha hả:
 
 "Xích Minh Thần Tử muốn nói chuyện, ta đi nói với hắn."
 
-Đột nhiên, trên bầu trời truyền tới một giọng nói nặng nề. Mọi người ngẩng đầu nhìn, chỉ thấy một con bò già cõng một lão nông từ trên trời giáng xuống.
+Đột nhiên, trên bầu trời truyền tới một giọng nói nặng nề. Mọi người ngẩng đầu nhìn, chỉ thấy một con trâu già cõng một lão nông từ trên trời giáng xuống.
 
 Tiều Phu Thánh Nhân vừa kinh vừa mừng, đang định nói, lão nông liếc ông một cái, nắm nắm đấm.
 

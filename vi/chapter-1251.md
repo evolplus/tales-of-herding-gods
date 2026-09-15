@@ -82,7 +82,7 @@ Quả đúng như nàng dự liệu, Yên Vân Hề nhận được truyền l�
 
 Đúng lúc này, chỉ thấy rất nhiều trưởng lão Tạo Vật Chủ gào thét lao ra, đi về bốn phương tám hướng.
 
-Yên Vân Hề thu ánh mắt lại, lại thấy một con bò già chạy tới. Vũ Đấu Thiên Sư Trác Trà ngồi trên lưng bò, trầm giọng nói: “Tử Hề Thiên Sư, ta tới giúp ngươi.”
+Yên Vân Hề thu ánh mắt lại, lại thấy một con trâu già chạy tới. Vũ Đấu Thiên Sư Trác Trà ngồi trên lưng trâu, trầm giọng nói: “Tử Hề Thiên Sư, ta tới giúp ngươi.”
 
 Yên Vân Hề có chút không vui, lại thấy một con hổ đen chạy tới. Tiều Phu Thiên Sư ngồi trên lưng hổ, nói: “Ta cũng tới giúp.”
 

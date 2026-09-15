@@ -162,7 +162,7 @@ Con Long Kỳ Lân này gầy rắn, gân thịt toàn thân rất có sức, ch
 
 Đế Thích Thiên Vương Phật cười:
 
-"Nếu dưới cây không phải một con Long Kỳ Lân mà là một con bò, bây giờ ta sẽ quay đầu đi ngay! Thần thái của con Long Kỳ Lân này giống hệt con bò kia! Nếu là con bò ấy, lão trồng ruộng chắc chắn ở gần đây. Lão trồng ruộng kia đầu óc toàn cơ bắp, rất bất mãn chuyện ta vào Phật môn."
+"Nếu dưới cây không phải một con Long Kỳ Lân mà là một con trâu, bây giờ ta sẽ quay đầu đi ngay! Thần thái của con Long Kỳ Lân này giống hệt con trâu kia! Nếu là con trâu ấy, lão trồng ruộng chắc chắn ở gần đây. Lão trồng ruộng kia đầu óc toàn cơ bắp, rất bất mãn chuyện ta vào Phật môn."
 
 Long Kỳ Lân nghe thấy tiếng, quay cái đầu lớn nhìn sang bên này. Đôi mắt vô thần không có tiêu điểm, qua một lát mới nhìn rõ Tần Mục đang đi tới, không khỏi đột nhiên ngẩn ra.
 
@@ -194,11 +194,11 @@ Tần Mục cười:
 
 Đúng lúc này, một giọng nói nặng nề truyền tới, lạnh lùng:
 
-"Ngươi dụ bò của ta đi, bây giờ lại muốn dụ ngựa của ta. Dù ngươi họ Tần, cũng không thể làm càn như vậy!"
+"Ngươi dụ trâu của ta đi, bây giờ lại muốn dụ ngựa của ta. Dù ngươi họ Tần, cũng không thể làm càn như vậy!"
 
 Tần Mục nhìn theo tiếng nói. Chỉ thấy rất nhiều nông phu, nông phụ vây quanh một lão nông đi tới bờ ruộng. Lão nông mặt lộ vẻ giận, quát:
 
-"Tên họ Tần, bò của ta đâu?"
+"Tên họ Tần, trâu của ta đâu?"
 
 Sắc mặt Đế Thích Thiên Vương Phật đại biến, vội xoay người bỏ đi. Lão nông nhìn thấy ông, hơi ngẩn ra. Đột nhiên một tiếng quát như sấm nổ truyền tới:
 
@@ -216,7 +216,7 @@ Không gian vặn vẹo còn chưa khôi phục, đợt xung kích thứ ba đã
 
 Rất nhiều nông phu cười nói:
 
-"Tần tiểu hữu, ngươi mang bò của Thiên Sư đi, Thiên Sư vẫn luôn tức giận trong lòng. Ông ấy nói ngươi và lão đốn củi kia đều đê tiện vô sỉ hạ lưu như nhau, lừa Ngưu Tam Đa sư huynh đi. Lát nữa ngươi tới giải thích với ông ấy một chút, xóa hiểu lầm là được."
+"Tần tiểu hữu, ngươi mang trâu của Thiên Sư đi, Thiên Sư vẫn luôn tức giận trong lòng. Ông ấy nói ngươi và lão đốn củi kia đều đê tiện vô sỉ hạ lưu như nhau, lừa Ngưu Tam Đa sư huynh đi. Lát nữa ngươi tới giải thích với ông ấy một chút, xóa hiểu lầm là được."
 
 Trong lòng Tần Mục co giật, thăm dò:
 
