@@ -150,7 +150,7 @@ Bên dưới, tiếng hoan hô chấn động màng tai. Các Tạo Vật Chủ 
 
 Lãng Uyển Thần Vương nhìn đám người náo nhiệt bên dưới, thần thức khẽ dao động, nói với Tần Mục: "Nếu ngươi phụ lòng kỳ vọng của tộc ta, ta nhất định sẽ giết ngươi, tuyệt không dung tình."
 
-Tần Mục mỉm cười nói: "Thần Vương, ta hiện giờ cũng là Tạo Vật Chủ rồi, sao có thể phản bội chủng tộc của mình? Chị tin ta không?"
+Tần Mục mỉm cười nói: "Thần Vương, ta hiện giờ cũng là Tạo Vật Chủ rồi, sao có thể phản bội chủng tộc của mình? Tỷ tỷ tin ta không?"
 
 Lãng Uyển Thần Vương nhìn đôi mắt trong suốt của hắn. Một lát sau, vị Thần Vương này lộ nụ cười, khiến Tần Mục nhìn đến thất thần.
 

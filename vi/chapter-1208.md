@@ -1,4 +1,4 @@
-# Chương 1208: Chú muốn đánh cha con
+# Chương 1208: Thúc thúc muốn đánh cha con
 
 “Đại thế?”
 
@@ -22,7 +22,7 @@ Bé gái kia chắc chắn là con của Hư Sinh Hoa và Kinh Yến, có đôi 
 
 Tần Mục đi lên trước, cười nói: “Hư huynh thật nhàn nhã, vậy mà ở đây phụ vợ dạy con. Bé con tên gì?”
 
-Hư Sinh Hoa bế bé gái lên, đặt lên vai mình. Bé gái kia giòn giã nói: “Con tên Hư Mộng Tình. Chú ơi, chú chính là đại ma vương tên Tần Mục phải không?”
+Hư Sinh Hoa bế bé gái lên, đặt lên vai mình. Bé gái kia giòn giã nói: “Con tên Hư Mộng Tình. Thúc thúc, người chính là đại ma vương tên Tần Mục phải không?”
 
 Tần Mục kinh ngạc, cười nói: “Tiểu nha đầu gan không nhỏ, nói ra tiếng lòng của ông bố già nhà con.”
 
@@ -46,9 +46,9 @@ Tần Mục cảm khái: “Ta khó khăn lắm mới trở về một chuyến,
 
 Hư Sinh Hoa đứng dậy, liếc hắn một cái: “Có phải ngươi muốn nói lâu như vậy không đánh các ta, các ta phình to rồi?”
 
-Tần Mục cười híp mắt gật đầu, lấy phi đao mình có được từ Tổ Đình ra, tặng cho tiểu nha đầu Hư Mộng Tình, dịu giọng nói: “Chú muốn đánh cha con, con sang bên kia chơi một lát rồi quay lại.”
+Tần Mục cười híp mắt gật đầu, lấy phi đao mình có được từ Tổ Đình ra, tặng cho tiểu nha đầu Hư Mộng Tình, dịu giọng nói: “Thúc thúc muốn đánh cha con, con sang bên kia chơi một lát rồi quay lại.”
 
-Hư Mộng Tình mang phi đao cười hi hi chạy xa, quay đầu nói: “Cha con sẽ đánh chết chú!”
+Hư Mộng Tình mang phi đao cười hi hi chạy xa, quay đầu nói: “Cha con sẽ đánh chết thúc thúc!”
 
 Hư Sinh Hoa phất tay, nói: “Thật ra ta không phải vô địch trong đồng bối ở Nguyên giới. Ta từng giao thủ với Tinh Ngạn, hắn tiến bộ rất nhanh, đã sắp đuổi kịp ta.”
 

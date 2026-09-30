@@ -60,7 +60,7 @@ Xích Tú Thần Nhân dẫn Tần Mục tiếp tục đi tới, nói: “Nơi �
 
 Không bao lâu sau, Tần Mục nhìn thấy Ngư Ông Thiên Sư. Lão nhân này ngồi trên chiếc ghế con, bên cạnh đặt giỏ cá, hai con cá đỏ nhỏ tì vây lên mép giỏ, nhìn đông ngó tây.
 
-Thấy Tần Mục đến, hai con cá đỏ nhỏ vội co vào trong giỏ. Trong đó con cá đực nhỏ còn nhấc nắp giỏ lên, cẩn thận đậy lại, tránh kinh động Tần Mục, thì thầm: “Lão gia sẽ bị đánh cho nửa sống nửa chết...”
+Thấy Tần Mục đến, hai con cá đỏ nhỏ vội co vào trong giỏ. Trong đó con cá trống nhỏ còn nhấc nắp giỏ lên, cẩn thận đậy lại, tránh kinh động Tần Mục, thì thầm: “Lão gia sẽ bị đánh cho nửa sống nửa chết...”
 
 “Lạ thật! Ta thấy sẽ chết hẳn, chết thấu luôn ấy!”
 
@@ -76,7 +76,7 @@ Tần Mục kinh ngạc nói: “Sao lại nói vậy?”
 
 Ngư Ông Thiên Sư thở dài: “Khi kiếp nạn Diên Khang xảy ra, lúc các ngươi cần chúng ta nhất, chúng ta lại chạy mất. Ta có lỗi với ngươi. Dù ngươi đánh ta hay mắng ta, ta tuyệt đối không đánh trả cũng không cãi lại.”
 
-Trong giỏ cá, hai con cá đỏ nhỏ nhìn ra ngoài qua khe giỏ. Con cá cái nhỏ thì thầm: “Lát nữa đánh nhau, chúng ta có nên khuyên một chút không?”
+Trong giỏ cá, hai con cá đỏ nhỏ nhìn ra ngoài qua khe giỏ. Con cá mái nhỏ thì thầm: “Lát nữa đánh nhau, chúng ta có nên khuyên một chút không?”
 
 “Không khuyên.”
 

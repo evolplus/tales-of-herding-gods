@@ -6,13 +6,13 @@ Hắn vội thúc giục thần thức, định tạo ra một huyễn cảnh đ
 
 Nhưng đại phong ấn Tứ Khoáng của Tần Mục thật sự quá mạnh, thần thức hắn có thể vận dụng cực kỳ ít ỏi. Hơn nữa hắn vốn không phải đại hành gia về huyễn cảnh thần thức, Cung Vân mới phải.
 
-Thái Đế thầm kêu khổ. Ngoài chuyện là đối thủ cũ của hắn, xét theo vai vế, Thúc Quân còn là chú của hắn.
+Thái Đế thầm kêu khổ. Ngoài chuyện là đối thủ cũ của hắn, xét theo vai vế, Thúc Quân còn là thúc phụ của hắn.
 
 Thái cổ Tam Vương năm xưa, Bá Dương Thần Vương là người trầm ổn, kín đáo nhất, không tranh đoạt ngôi Thái Đế với hắn. Cung Vân Thần Vương tuy rất muốn tranh, nhưng không tranh nổi hắn, cuối cùng dứt khoát gả cho hắn.
 
 Cung Vân không thể trở thành Thái Đế, vậy thì trở thành nữ nhân của Thái Đế, đi đường vòng để thống trị thiên hạ.
 
-Còn Thúc Quân thì không dễ nói chuyện như vậy. Thúc Quân từ đầu tới cuối chưa từng chịu thua hắn, cứ tranh, cứ đánh, lại cậy mình có vai chú, trước nay không hề có sắc mặt tốt với Thái Đế!
+Còn Thúc Quân thì không dễ nói chuyện như vậy. Thúc Quân từ đầu tới cuối chưa từng chịu thua hắn, cứ tranh, cứ đánh, lại cậy mình có vai thúc phụ, trước nay không hề có sắc mặt tốt với Thái Đế!
 
 Thời Thái cổ, người khiến Thái Đế đau đầu nhất chính là ông.
 

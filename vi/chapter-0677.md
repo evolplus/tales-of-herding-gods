@@ -36,7 +36,7 @@ Tần Mục nghĩ một chút, cười nói: "Nào có chuyện nói sinh là si
 
 "Hết cứu rồi."
 
-Hai con cá buông vây, rơi khỏi mép giỏ xuống đáy giỏ, nằm thẳng đờ. Con cá cái khẽ nói: "Hắn sẽ độc thân cả đời nhỉ?"
+Hai con cá buông vây, rơi khỏi mép giỏ xuống đáy giỏ, nằm thẳng đờ. Con cá mái khẽ nói: "Hắn sẽ độc thân cả đời nhỉ?"
 
 Tần Mục thấy cô gái hơi mất mát, đột nhiên cù nách nàng, cười nói: "Vui lên chút đi! Ta nhất định có thể giúp muội tìm được một Thuần Dương linh thể!"
 
@@ -54,7 +54,7 @@ Viêm Tinh Tinh càng lúc càng căng thẳng, giọng nhỏ như muỗi: "Sắ
 
 Tần Mục vội vàng đứng dậy, kéo thiếu nữ lên, bước nhanh theo Ngư ông.
 
-Hai con cá lại rơi xuống đáy giỏ. Con cá đực uể oải nói: "Hắn sẽ độc thân cả đời, hết cứu rồi."
+Hai con cá lại rơi xuống đáy giỏ. Con cá trống uể oải nói: "Hắn sẽ độc thân cả đời, hết cứu rồi."
 
 Tới Giếng Mặt Trời, tộc trưởng Mục Nhật vội ra nghênh đón. Ngư ông không nhận ra ông, ông cũng không nhận ra Ngư ông. Tần Mục và Viêm Tinh Tinh vội giới thiệu một phen.
 

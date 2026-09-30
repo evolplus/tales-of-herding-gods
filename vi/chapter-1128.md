@@ -50,13 +50,13 @@ Mặt Dư Sơ Độ đen lại, khom người bái tạ, dắt tay cô bé kia, 
 
 Tần Mục cúi người nhìn cô bé, cười hỏi: "Bé con tên gì?"
 
-Cô bé vẫn nắm chặt khúc xương thú trong tay, trên mặt có vết bẩn, rụt rè nói: "Hoa Huyên Tú, chú ăn đi."
+Cô bé vẫn nắm chặt khúc xương thú trong tay, trên mặt có vết bẩn, rụt rè nói: "Hoa Huyên Tú, thúc thúc ăn đi."
 
-Cô bé đưa khúc xương thú chỉ còn chút sợi thịt tới trước mặt Tần Mục. Tần Mục nhận khúc xương, cười nói: "Hoa Huyên Tú, đúng là một cái tên hay. Cháu biết không? Cháu chết rồi sống lại, tam hồn thất phách đã được thần thông của chú cường hóa, thần thông giả cảnh giới Lục Hợp bình thường cũng không phải đối thủ của cháu. Chú lại tặng cháu một khúc xương lớn!"
+Cô bé đưa khúc xương thú chỉ còn chút sợi thịt tới trước mặt Tần Mục. Tần Mục nhận khúc xương, cười nói: "Hoa Huyên Tú, đúng là một cái tên hay. Cháu biết không? Cháu chết rồi sống lại, tam hồn thất phách đã được thần thông của thúc thúc cường hóa, thần thông giả cảnh giới Lục Hợp bình thường cũng không phải đối thủ của cháu. Thúc thúc lại tặng cháu một khúc xương lớn!"
 
 Hắn vẫy tay, lấy xương đùi của Trụ Nhị cổ thần tới, lọc bỏ máu thịt, tôi luyện một phen, áp chế uy năng đáng sợ trong thần cốt cổ thần, nhét vào lòng cô bé, cười nói: "Cho cháu phòng thân."
 
-Hoa Huyên Tú ôm chặt chiếc xương đùi đặc biệt lớn này, rất vất vả. Nhưng sau khi quan sát khúc xương đùi, cô bé lại hơi thất vọng: "Chú ơi, trên này không có thịt, là cho chó ăn mà!"
+Hoa Huyên Tú ôm chặt chiếc xương đùi đặc biệt lớn này, rất vất vả. Nhưng sau khi quan sát khúc xương đùi, cô bé lại hơi thất vọng: "Thúc thúc, trên này không có thịt, là cho chó ăn mà!"
 
 "Chó cắn không nổi nó đâu."
 

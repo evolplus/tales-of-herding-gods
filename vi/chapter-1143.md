@@ -28,7 +28,7 @@ Hư Thiên Tôn giơ tay, cao giọng nói: “Đại quân xuất phát...”
 
 “Tàn dư Khai Hoàng cùng Tạo Vật Chủ đánh lén!”
 
-Tiếng chém giết vang lên ở phía sau. Hư Thiên Tôn nhíu mày, lập tức điều động Thiên Sư Thương Bình Ẩn đi xử lý. Đột nhiên, giọng Tần Phượng Thanh truyền đến, cười hì hì nói: “Cô cháu gái lớn nhà Thổ Bá, chú Phượng Thanh quên nói với ngươi, Tạo Vật Chủ và quân đội Vô Ưu Hương đều có thể tiến vào Thái Hư U Đô của ta, từ chỗ ta đánh lén các ngươi. Các ngươi đứng bên ngoài sẽ không nhìn thấy, cho nên...”
+Tiếng chém giết vang lên ở phía sau. Hư Thiên Tôn nhíu mày, lập tức điều động Thiên Sư Thương Bình Ẩn đi xử lý. Đột nhiên, giọng Tần Phượng Thanh truyền đến, cười hì hì nói: “Cô cháu gái lớn nhà Thổ Bá, Phượng Thanh thúc thúc quên nói với ngươi, Tạo Vật Chủ và quân đội Vô Ưu Hương đều có thể tiến vào Thái Hư U Đô của ta, từ chỗ ta đánh lén các ngươi. Các ngươi đứng bên ngoài sẽ không nhìn thấy, cho nên...”
 
 Hư Thiên Tôn nhìn vào trong Thái Hư U Đô, chỉ thấy Tần Phượng Thanh thò đầu thò cổ sau cánh cửa căn phòng bên trái trong ba gian phòng, lấm lét rình rập, dáng vẻ như sẵn sàng bỏ chạy bất cứ lúc nào.
 

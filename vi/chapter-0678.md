@@ -16,7 +16,7 @@ Tần Mục tiếp lời: "Dược sư gia gia nhà con từng có một ví d�
 
 Ngư ông kinh ngạc nói: "Vị Dược sư gia gia này của ngươi cũng có chút kiến thức. Đúng là đạo lý này. Độc dương không sinh trưởng sẽ tạo thành khí huyết khô vượng. Khí huyết rõ ràng đã sắp khô héo, lại cứ bốc cháy hừng hực, có thể thấy cách cái chết không xa nữa. Luồng khí thuần âm vừa rồi chính là để bồi bổ cho ngươi, tốt hơn song tu không biết bao nhiêu lần! Đương nhiên, song tu vẫn có thể giải quyết một phần vấn đề, nhưng không giải quyết được căn bản."
 
-Con cá cái nhỏ trong giỏ cá thò đầu ra, cười khẽ nói: "Lão gia định sẵn cô độc cả đời."
+Con cá mái nhỏ trong giỏ cá thò đầu ra, cười khẽ nói: "Lão gia định sẵn cô độc cả đời."
 
 Đại hồng côn bay tới chỗ giao giới giữa Thái Hoàng Thiên và Đại Khư. Đột nhiên nguyên từ lực rối loạn, như tiến vào một cương vực không có bất kỳ nguyên từ nào. Người ở đây không lên không xuống, không cần tu luyện thần thông phi hành cũng có thể lơ lửng trên không.
 
@@ -40,11 +40,11 @@ Tần Mục gãi đầu nói: "Cũng không gian nan lắm. Con gặp một vị
 
 Ngư ông tức đến phát run.
 
-Con cá cái nhỏ trong giỏ lại thò đầu ra, cười hì hì nói: "Lão gia, vị con cháu Tần gia này rất giống ông đó, định sẵn cô độc cả đời."
+Con cá mái nhỏ trong giỏ lại thò đầu ra, cười hì hì nói: "Lão gia, vị con cháu Tần gia này rất giống ông đó, định sẵn cô độc cả đời."
 
 Ngư ông nhạt nhẽo nói: "Tối nay uống canh cá."
 
-Con cá cái nhỏ vội rụt đầu lại, không dám nói nữa.
+Con cá mái nhỏ vội rụt đầu lại, không dám nói nữa.
 
 "Kỳ lạ, vừa rồi ta vê khí thuần âm ra từ Linh Thai thần tàng của ngươi, phát hiện trong mi tâm ngươi còn có thứ khác, nhưng không giấu trong Linh Thai thần tàng."
 
@@ -80,7 +80,7 @@ Viêm Tinh Tinh nhìn dáng vẻ nghiêm túc của hắn, cảm thấy hắn r�
 
 "Cô nương này cũng hết cứu rồi."
 
-Con cá cái trong giỏ lắc đầu nói: "Bị tên ngốc kia mê đến đầu óc quay cuồng."
+Con cá mái trong giỏ lắc đầu nói: "Bị tên ngốc kia mê đến đầu óc quay cuồng."
 
 Tần Mục nhìn xuống dưới, chỉ thấy những sóng dung nham vốn có của Thái Hoàng Thiên đã bị đóng băng, hình thành từng dãy núi như làn sóng, tráng lệ vô cùng.
 
@@ -164,6 +164,6 @@ Tần Mục nói: "Trạc Trà Thiên Sư là?"
 
 "Một trong bốn vị Thiên Sư của Khai Hoàng Thiên Đình, là lão trồng ruộng, dắt theo một con bò."
 
-Ngư ông thả dây câu. Con cá cái nhỏ nhảy khỏi giỏ cá, bơi vào Giếng Mặt Trăng. Ngư ông nói: "Ông ấy là Vũ Đấu Thiên Sư trong bốn Thiên Sư chúng ta, là người có thực lực mạnh nhất."
+Ngư ông thả dây câu. Con cá mái nhỏ nhảy khỏi giỏ cá, bơi vào Giếng Mặt Trăng. Ngư ông nói: "Ông ấy là Vũ Đấu Thiên Sư trong bốn Thiên Sư chúng ta, là người có thực lực mạnh nhất."
 
 [Xem chương tiếp theo](chapter-0679.md)

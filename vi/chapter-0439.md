@@ -70,7 +70,7 @@ Tử Giả Sinh Giới và Phong Đô đã tới dưới lòng đất Thần Đo
 
 Hôi Tiên và Lão điếc đều chưa từng thấy cảnh tượng này, ai nấy lắc đầu. Giao Vương Thần vốn là thần chỉ của Thượng Thương, đương nhiên cũng không thể có kim tệ Phong Đô.
 
-Đúng lúc này, một chiếc thuyền rách nát chạy ra từ biển sương. Tần Mục giơ tay vẫy, gọi lớn: "Bác lái đò, có thể cho đi nhờ một đoạn không?"
+Đúng lúc này, một chiếc thuyền rách nát chạy ra từ biển sương. Tần Mục giơ tay vẫy, gọi lớn: "Nhà đò, có thể cho đi nhờ một đoạn không?"
 
 Mái chèo kẽo kẹt khua động. Chiếc thuyền đi từ giữa biển sương và từng tòa núi đầu lâu tới. Tần Mục kích động khôn xiết, còn Hôi Tiên và Lão điếc thì như gặp đại địch, căng thẳng nhìn chiếc thuyền rách đang tiến lại gần.
 

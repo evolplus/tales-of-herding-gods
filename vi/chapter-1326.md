@@ -18,13 +18,13 @@ Tần Mục thong thả nói: “Thái Đế, kẻ thật sự đẩy Tạo Vậ
 
 Thái Đế khẽ mỉm cười: “Sống sót chính là kẻ thắng. Mục Thiên Tôn, ngươi chẳng hiểu gì cả!”
 
-Tần Mục cười vang, nguyên khí cuốn bảo ấn này lên, đưa vào tay Thúc Quân, nói: “Các ngươi là chú cháu, cứ ôn chuyện cho tử tế. Ta còn có việc cần xử lý.”
+Tần Mục cười vang, nguyên khí cuốn bảo ấn này lên, đưa vào tay Thúc Quân, nói: “Các ngươi là thúc điệt, cứ ôn chuyện cho tử tế. Ta còn có việc cần xử lý.”
 
 Thúc Quân ôm bảo ấn, ánh mắt lại rơi lên cái đầu Thái Đế bị nhốt.
 
 Sắc mặt Thái Đế hơi đổi, cười lạnh: “Thúc Quân, vừa rồi ngươi đã đánh ta rồi, bây giờ chúng ta nên thanh toán xong rồi chứ? Ngươi phải biết, ngươi cũng là tội nhân, ngươi căn bản không có tư cách chỉ trích ta, càng không có tư cách làm nhục ta... Mục Thiên Tôn! Ngươi đã hứa với ta, sẽ không coi ta là bảo vật, cũng sẽ không làm nhục ta!”
 
-Tần Mục quay đầu, cười nói: “Ta có bao giờ làm nhục ngươi? Có điều, nếu chú ngươi muốn làm nhục ngươi thì ta cũng không tiện ngăn cản.”
+Tần Mục quay đầu, cười nói: “Ta có bao giờ làm nhục ngươi? Có điều, nếu thúc thúc của ngươi muốn làm nhục ngươi thì ta cũng không tiện ngăn cản.”
 
 Thái Đế giận dữ, nổi trận lôi đình, chỉ là không thể nhảy ra khỏi bảo ấn kia.
 

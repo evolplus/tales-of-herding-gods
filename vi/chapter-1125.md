@@ -102,9 +102,9 @@ Trong thành trấn này vốn cũng chẳng có mấy thần thông giả, còn
 
 Ba vị cổ thần ăn uống thỏa thuê. Thôn dân chạy trốn tứ tán, nhưng chạy thế nào cũng không thoát.
 
-Một cô bé không hiểu chuyện, mặt xanh xao vì đói, gầy trơ xương, trong tay nắm một khúc xương đã gặm chỉ còn lưa thưa mấy sợi thịt, lảo đảo đi lên trước, đưa khúc xương trong tay ra, rụt rè nói: "Chú ơi, ăn cái này đi, đừng ăn chúng cháu..."
+Một cô bé không hiểu chuyện, mặt xanh xao vì đói, gầy trơ xương, trong tay nắm một khúc xương đã gặm chỉ còn lưa thưa mấy sợi thịt, lảo đảo đi lên trước, đưa khúc xương trong tay ra, rụt rè nói: "Thúc thúc, ăn cái này đi, đừng ăn chúng cháu..."
 
-Trụ Nhất cổ thần đưa tay bắt cô bé vào tay, cười hắc hắc: "Chú không ăn xương, chú ăn người."
+Trụ Nhất cổ thần đưa tay bắt cô bé vào tay, cười hắc hắc: "Thúc thúc không ăn xương, thúc thúc ăn người."
 
 Hắn đang định nuốt cô bé này, đột nhiên một luồng kiếm quang lóe qua. Trụ Nhất cổ thần ngẩn ngơ nhìn cánh tay đứt của mình, thần huyết đang phun trào.
 

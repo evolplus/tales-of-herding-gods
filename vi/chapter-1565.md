@@ -34,7 +34,7 @@ Thiếu niên bốn phía ào một tiếng tản ra, né thật xa.
 
 Vi Thế Kiệt liếc nhìn bốn phía, kéo lại áo choàng, cười lạnh nói: "Diên Tú Đế phái ngươi tới? E là không phải đâu. Diên Tú Đế có gan ra tay với ta? Mục Thiên Tôn đâu? Bảo hắn ra đây!"
 
-Thiếu nữ thu thánh chỉ lại, cười nói: "Chú Tần không biết chuyện này, là Hoàng đế sai ta tới. Chú Tần bận lắm, lấy đâu ra thời gian hỏi chuyện của ngươi? Hoàng đế nhận được tin tức từ Đại La Thiên."
+Thiếu nữ thu thánh chỉ lại, cười nói: "Tần thúc thúc không biết chuyện này, là Hoàng đế sai ta tới. Tần thúc thúc bận lắm, lấy đâu ra thời gian hỏi chuyện của ngươi? Hoàng đế nhận được tin tức từ Đại La Thiên."
 
 Giọng nói của nàng mang phong tình Tây Thổ, rất mềm, rất ngọt, khiến người ta hận không thể nghe nàng nói mãi.
 

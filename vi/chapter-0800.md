@@ -46,13 +46,13 @@ Hắc Hổ Thần thấy cá, lập tức phấn chấn, móng vuốt chụp v�
 
 "Mắc câu rồi!"
 
-Hai con cá đỏ nhỏ kia mừng rỡ. Con cá đực nhỏ lắc đầu một cái, đầu biến thành vô cùng khổng lồ, rắc một tiếng nuốt Hắc Hổ Thần vào, chỉ còn cái đuôi đen thui ở bên ngoài lắc qua lắc lại.
+Hai con cá đỏ nhỏ kia mừng rỡ. Con cá trống nhỏ lắc đầu một cái, đầu biến thành vô cùng khổng lồ, rắc một tiếng nuốt Hắc Hổ Thần vào, chỉ còn cái đuôi đen thui ở bên ngoài lắc qua lắc lại.
 
 Lão Ngưu chậm rãi nói:
 
 "Được rồi, được rồi, phu thê các ngươi đừng nghịch nữa, nhả mèo đen nhỏ ra."
 
-Con cá đực nhỏ kia có phần không tình nguyện, nhưng vẫn nhả Hắc Hổ Thần ra. Hắc Hổ Thần hừ một tiếng, không biết lấy từ đâu ra một bể cá lưu ly trong suốt. Hai con cá đỏ nhỏ sáng mắt, lập tức nhảy vào trong.
+Con cá trống nhỏ kia có phần không tình nguyện, nhưng vẫn nhả Hắc Hổ Thần ra. Hắc Hổ Thần hừ một tiếng, không biết lấy từ đâu ra một bể cá lưu ly trong suốt. Hai con cá đỏ nhỏ sáng mắt, lập tức nhảy vào trong.
 
 Hắc Hổ Thần nhìn chằm chằm cá trong bể, nước miếng chảy ròng, chỉ là không dám chọc chúng.
 
@@ -60,7 +60,7 @@ Hai con cá đỏ nhỏ này không phải vật phàm, mà là hai con Hồng C
 
 Đơn thuần luận chiến lực, đơn đả độc đấu họ không phải đối thủ của Lão Ngưu, nhưng phu thê hai người cùng lên thì có sức đấu một trận với Ngưu Tam Đa.
 
-"Bốn chúng ta lâu lắm rồi không tụ họp, đáng tiếc con lừa kia không ở đây." Con cá cái nhỏ thò đầu ra khỏi bể cá, nói.
+"Bốn chúng ta lâu lắm rồi không tụ họp, đáng tiếc con lừa kia không ở đây." Con cá mái nhỏ thò đầu ra khỏi bể cá, nói.
 
 Ngưu Tam Đa có phần không vui, nói:
 
@@ -70,7 +70,7 @@ Hắc Hổ Thần lưu luyến rời mắt, nói:
 
 "Con lừa cứng đầu kia nói chuyện khó nghe, còn đá loạn móng..."
 
-Đang nói, đột nhiên tiếng lừa kêu ang ang truyền đến. Tiều phu và mọi người đều mừng rỡ, còn Ngưu Tam Đa, Hắc Hổ Thần và hai con Hồng Côn nhỏ lại lập tức sầm mặt. Con cá đực nhỏ giận:
+Đang nói, đột nhiên tiếng lừa kêu ang ang truyền đến. Tiều phu và mọi người đều mừng rỡ, còn Ngưu Tam Đa, Hắc Hổ Thần và hai con Hồng Côn nhỏ lại lập tức sầm mặt. Con cá trống nhỏ giận:
 
 "Mụ vợ chết tiệt, bảo nàng nhiều lời!"
 

@@ -1,4 +1,4 @@
-# Chương 1142: Gọi chú Tần
+# Chương 1142: Gọi Tần thúc thúc
 
 Tứ đại Thiên Sư của Thiên Đình nhao nhao giơ tay, bảo đại quân dừng tiến, cẩn thận quan sát bốn phía.
 
@@ -74,9 +74,9 @@ Hắn càng giống một thể dung hợp giữa bán thần và cổ thần.
 
 Đột nhiên, Hư Thiên Tôn mở miệng nói: “Đệ đệ...”
 
-“Ngươi nên gọi là chú.”
+“Ngươi nên gọi là thúc thúc.”
 
-Tần Phượng Thanh nhìn Hư Thiên Tôn, cười nói: “Chỉ có Đại Thổ Bá mới được gọi ta là đệ đệ. Ngươi là con gái ông ấy, phải gọi chú Phượng Thanh.”
+Tần Phượng Thanh nhìn Hư Thiên Tôn, cười nói: “Chỉ có Đại Thổ Bá mới được gọi ta là đệ đệ. Ngươi là con gái ông ấy, phải gọi Phượng Thanh thúc thúc.”
 
 Hư Thiên Tôn hừ một tiếng, thản nhiên nói: “U Đô Đại Đạo của ngươi rất mạnh, nhưng không phải đối thủ của ta. Nếu ngươi một lòng tìm chết, ta sẽ thành toàn cho ngươi.”
 
