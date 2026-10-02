@@ -72,7 +72,7 @@ Thiên công khai vật, đại đạo mới thành. Có lẽ lần luyện ki�
 
 “Mục nhi, con không về Thánh Sơn sao?”
 
-Tới ngoài mười vạn Thánh Sơn của Tổ Đình, Tần Mục giao Đạo Hỏa Tổ Địa cho Tư bà bà. Tư bà bà không khỏi nhíu mày, đoán ra suy nghĩ của hắn, hỏi: “Con định tới Ngọc Kinh Thành?”
+Tới ngoài Thập Vạn Thánh Sơn của Tổ Đình, Tần Mục giao Đạo Hỏa Tổ Địa cho Tư bà bà. Tư bà bà không khỏi nhíu mày, đoán ra suy nghĩ của hắn, hỏi: “Con định tới Ngọc Kinh Thành?”
 
 Tần Mục gật đầu: “Thái Dịch thất thủ trong Ngọc Kinh Thành, bảo con theo bản đồ cứu ông ấy, nhưng cái gọi là theo bản đồ ấy, con mãi không hiểu là ý gì. Con cần đích thân tới Tổ Đình một chuyến, xem rốt cuộc là thế nào. Hơn nữa, con cũng muốn tận mắt nhìn tòa Ngọc Kinh Thành kia, xem quan hệ giữa nó với cảnh giới Ngọc Kinh rốt cuộc là gì. Không tận mắt thấy, con vẫn khó yên lòng.”
 

@@ -94,10 +94,10 @@ Tần Mục lại động tâm tư: “Phù văn của đạo Thái Thủy ta ph
 
 Hắn lại hưng phấn, hai mắt càng lúc càng sáng. Ngụy Tùy Phong lại lo lắng.
 
-Tần Mục đi quanh Thái Cực nguyên thạch, thầm nghĩ: “Ta còn có thể dung nhập vỏ trứng Hỗn Độn của Thái Dịch vào Linh Thai Thần Tàng của ta, lấy hai nửa vỏ trứng này làm nền móng cho Linh Thai Thần Tàng! Đúng! Ta nên dựa theo quy cách của Tổ Đình để chế tạo Linh Thai Thần Tàng của ta, chứ không dựa theo càn khôn vũ trụ hiện giờ! Ta lấy Thái Cực Đồ làm trung điểm, từ đó mở rộng sang hai bên... Không đúng, lấy mười vạn Đại Hắc Mộc làm trung điểm!”
+Tần Mục đi quanh Thái Cực nguyên thạch, thầm nghĩ: “Ta còn có thể dung nhập vỏ trứng Hỗn Độn của Thái Dịch vào Linh Thai Thần Tàng của ta, lấy hai nửa vỏ trứng này làm nền móng cho Linh Thai Thần Tàng! Đúng! Ta nên dựa theo quy cách của Tổ Đình để chế tạo Linh Thai Thần Tàng của ta, chứ không dựa theo càn khôn vũ trụ hiện giờ! Ta lấy Thái Cực Đồ làm trung điểm, từ đó mở rộng sang hai bên... Không đúng, lấy Thập Vạn Đại Sơn của Đại Hắc Mộc làm trung điểm!”
 
 Hắn càng nghĩ càng hưng phấn. Ngụy Tùy Phong vội cao giọng hét lớn như quát tỉnh hắn, nhắc nhở: “Sư đệ, bình tĩnh! Con mắt của đệ sắp nổ rồi!”
 
-Tần Mục vội định thần lại, bình phục tâm tình, thầm nghĩ: “Mười vạn Hắc Sơn là cây thần nối liền mười sáu vũ trụ quá khứ. Có lẽ ta có thể dựa vào Đại Hắc Mộc, tái hiện cây thần trong Linh Thai Thần Tàng của ta! Còn có thể lợi dụng năm đạo tiên thiên, hóa thành năm đại khoáng mạch Thái Cổ trong Linh Thai Thần Tàng của ta! Đúng, cứ làm như vậy!”
+Tần Mục vội định thần lại, bình phục tâm tình, thầm nghĩ: “Thập Vạn Hắc Sơn là cây thần nối liền mười sáu vũ trụ quá khứ. Có lẽ ta có thể dựa vào Đại Hắc Mộc, tái hiện cây thần trong Linh Thai Thần Tàng của ta! Còn có thể lợi dụng năm đạo tiên thiên, hóa thành năm đại khoáng mạch Thái Cổ trong Linh Thai Thần Tàng của ta! Đúng, cứ làm như vậy!”
 
 [Xem chương tiếp theo](chapter-1200.md)

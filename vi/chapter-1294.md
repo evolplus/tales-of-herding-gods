@@ -1,6 +1,6 @@
 # Chương 1294: Mặt tối của Tổ Đình
 
-Không có đèn lồng của Nguyệt Thiên Tôn, cho dù dùng truyền tống thần thông, họ cũng cần mấy ngày mới có thể trở về mười vạn Hắc Sơn Đại Hắc Mộc. Tần Mục dứt khoát tùy tiện tìm một tòa thần sơn ở lại.
+Không có đèn lồng của Nguyệt Thiên Tôn, cho dù dùng truyền tống thần thông, họ cũng cần mấy ngày mới có thể trở về Thập Vạn Hắc Sơn Đại Hắc Mộc. Tần Mục dứt khoát tùy tiện tìm một tòa thần sơn ở lại.
 
 Thái Thủy trong trứng truyền thụ cho hắn đạo Thái Thủy mà mình lĩnh ngộ, nói: “Chưa hoàn toàn hấp thu sức mạnh của khoáng mạch Thái Thủy thì ngay cả hiểu biết của ta về đại đạo bản thân cũng không trọn vẹn. Ta là thần sinh ra từ đạo Thái Thủy, nhưng không phải đạo Thái Thủy. Chỉ khi hoàn toàn hấp thu sức mạnh của khoáng mạch Thái Thủy, làm được sự siêu thoát thật sự, ta mới xem như Thái Thủy chân chính. Nếu không, ta chẳng khác gì những cổ thần khác.”
 

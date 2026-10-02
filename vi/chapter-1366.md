@@ -1,6 +1,6 @@
 # Chương 1366: Trước ngạo sau cung
 
-Mười vạn Đại Hắc Sơn Tổ Đình, trên tế đàn, thần thức Tần Mục trở về thân thể. Hắn mở mắt ra, thần sắc hơi nặng nề.
+Thập Vạn Đại Hắc Sơn Tổ Đình, trên tế đàn, thần thức Tần Mục trở về thân thể. Hắn mở mắt ra, thần sắc hơi nặng nề.
 
 Tư bà bà, Ngụy Tùy Phong và mọi người thấy hắn bình an trở về, đều yên lòng.
 
@@ -44,7 +44,7 @@ Tần Mục lẩm bẩm: "Điều này hơi khó, dù sao Địa Mẫu Nguyên Q
 
 "Cho nên đến tìm ta là con đường đơn giản nhất!"
 
-Đúng lúc này, đột nhiên có giọng một nữ tử truyền đến từ ngoài mười vạn Hắc Sơn: "Mục Thiên Tôn, Thiên Phi nương nương đến bái phỏng Thiên Tôn!"
+Đúng lúc này, đột nhiên có giọng một nữ tử truyền đến từ ngoài Thập Vạn Hắc Sơn: "Mục Thiên Tôn, Thiên Phi nương nương đến bái phỏng Thiên Tôn!"
 
 "Nói Thái Đế, Thái Đế đến!"
 
@@ -64,9 +64,9 @@ Tần Mục ngẩng đầu cười nói: "Không phải trước ngạo sau cung
 
 Tường Thiên Phi cười nói: "Lúc trước khi ngươi ngang ngược, ngươi đâu có nói như vậy."
 
-Tần Mục đưa tay mời. Tường Thiên Phi lại không muốn vào mười vạn Hắc Sơn, lắc đầu nói: "Chỗ ngươi quỷ dị lắm, bản cung không muốn vào. Cứ nói chuyện bên ngoài này đi."
+Tần Mục đưa tay mời. Tường Thiên Phi lại không muốn vào Thập Vạn Hắc Sơn, lắc đầu nói: "Chỗ ngươi quỷ dị lắm, bản cung không muốn vào. Cứ nói chuyện bên ngoài này đi."
 
-Trong lòng Tần Mục khẽ động. Lúc trước Tường Thiên Phi điều động toàn bộ hư không cự thú tập kích mười vạn Hắc Sơn, kết quả bị Tần Mục đánh cho tan tác, hư không thú thương vong hơn nửa, tổn thất nặng nề.
+Trong lòng Tần Mục khẽ động. Lúc trước Tường Thiên Phi điều động toàn bộ hư không cự thú tập kích Thập Vạn Hắc Sơn, kết quả bị Tần Mục đánh cho tan tác, hư không thú thương vong hơn nửa, tổn thất nặng nề.
 
 Nhưng Tường Thiên Phi hẳn không phải vì chuyện này nên mới không muốn đặt chân vào Đại Hắc Sơn. Dù sao nàng cũng là Thái Đế, hư không thú chỉ là công cụ của nàng mà thôi.
 

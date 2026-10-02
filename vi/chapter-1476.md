@@ -50,7 +50,7 @@ Chỉ có hồn phách Minh Hoàng trôi nổi trên mảnh đất xa lạ này,
 
 "Ngài đừng rời khỏi đây!"
 
-Một cô bé ngăn ông lại, ngẩng đầu nhìn ông, giọng trong trẻo êm tai: "Đây là Mười Vạn Thánh Sơn, là nơi U Đô không bao phủ tới. Ngài là quỷ hồn, nếu rời khỏi đây, Thổ Bá sẽ bắt ngài về U Đô! Ngài bị giam trong Phi Hương Điện, khi còn sống chắc chắn làm rất nhiều chuyện xấu đúng không? Thổ Bá sẽ cầm roi quất mạnh vào mông ngài!"
+Một cô bé ngăn ông lại, ngẩng đầu nhìn ông, giọng trong trẻo êm tai: "Đây là Thập Vạn Thánh Sơn, là nơi U Đô không bao phủ tới. Ngài là quỷ hồn, nếu rời khỏi đây, Thổ Bá sẽ bắt ngài về U Đô! Ngài bị giam trong Phi Hương Điện, khi còn sống chắc chắn làm rất nhiều chuyện xấu đúng không? Thổ Bá sẽ cầm roi quất mạnh vào mông ngài!"
 
 Minh Hoàng dở khóc dở cười, dừng chân hỏi: "Ngươi là ai? Vì sao ngăn trẫm?"
 

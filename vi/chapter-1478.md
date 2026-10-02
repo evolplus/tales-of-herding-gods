@@ -70,7 +70,7 @@ Tư bà bà đặt thần cung tiền sử xuống, thấp giọng nói: "Bây g
 
 Bà ngẩng đầu, ngước nhìn bầu trời.
 
-Trên đỉnh Mười Vạn Thánh Sơn, ngẩng đầu nhìn trời cũng có thể thấy Huyền Đô.
+Trên đỉnh Thập Vạn Thánh Sơn, ngẩng đầu nhìn trời cũng có thể thấy Huyền Đô.
 
 Lúc này trong Thập Thiên Tôn, quá nửa Thiên Tôn hẳn còn ở Huyền Đô, chia lợi ích của Huyền Đô, thu phục Thiên Đạo, luyện hóa thân xác Thiên Công.
 

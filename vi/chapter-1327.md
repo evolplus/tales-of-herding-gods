@@ -18,9 +18,9 @@ Tần Mục cười ha hả, vẫy tay với mọi người. Hắn vừa quay m�
 
 “Hàng phục Thái Bồ là muốn đánh ta? Các đời tổ sư, các người vẫn còn quá trẻ!”
 
-Bọn họ lên khoái thuyền của Diên Khang, rời mười vạn Hắc Sơn. Bọn họ vừa đi chân trước, Hư Sinh Hoa và Lam Ngự Điền đã dẫn ba nghìn thần nhân cùng cự thú tới cái gọi là Thánh Sơn.
+Bọn họ lên khoái thuyền của Diên Khang, rời Thập Vạn Hắc Sơn. Bọn họ vừa đi chân trước, Hư Sinh Hoa và Lam Ngự Điền đã dẫn ba nghìn thần nhân cùng cự thú tới cái gọi là Thánh Sơn.
 
-Hư Sinh Hoa, Lam Ngự Điền cùng ba nghìn thần nhân, hơn trăm con cự thú đứng ở vòng ngoài, nhìn mười vạn Đại Hắc Sơn đen sì này, tất cả đều im lặng hồi lâu.
+Hư Sinh Hoa, Lam Ngự Điền cùng ba nghìn thần nhân, hơn trăm con cự thú đứng ở vòng ngoài, nhìn Thập Vạn Đại Hắc Sơn đen sì này, tất cả đều im lặng hồi lâu.
 
 “Ông lão tên Thái Dịch kia là kẻ lừa đảo.” Hư Sinh Hoa lẩm bẩm.
 
@@ -50,15 +50,15 @@ Long Kỳ Lân do dự một lát, không nói cho bọn họ biết những Đ�
 
 Long Kỳ Lân thầm nghĩ: “Đến ngày hôm sau, Thái Dịch sẽ hiện thân giải thích với bọn họ, sau đó bảo bọn họ tu sửa Đại Hắc Sơn.”
 
-Nói thì nói vậy, Long Kỳ Lân vẫn thấm thía nhắc nhở: “Ban đêm các ngươi nhất định phải cẩn thận. Mười vạn Hắc... mười vạn Thánh Sơn này cái gì cũng tốt, chỉ là vừa tới đêm thì không được ra khỏi Hắc Sơn, trong bóng tối có đại khủng bố.”
+Nói thì nói vậy, Long Kỳ Lân vẫn thấm thía nhắc nhở: “Ban đêm các ngươi nhất định phải cẩn thận. Thập Vạn Hắc... Thập Vạn Thánh Sơn này cái gì cũng tốt, chỉ là vừa tới đêm thì không được ra khỏi Hắc Sơn, trong bóng tối có đại khủng bố.”
 
 Hư Sinh Hoa kinh ngạc nói: “Trời tối đừng ra ngoài? Nơi này lại hơi giống Đại Khư trước kia.”
 
 Long Kỳ Lân thầm nghĩ: “Đáng sợ hơn Đại Khư đâu chỉ mười vạn lần! Trời còn thương, giáo chủ cuối cùng cũng lừa được hai người thông minh tới trấn giữ lãnh địa này. Trước đây ở đây chỉ có một người thông minh là ta chủ trì đại cục, chống lại hạng như Thập Thiên Tôn, vẫn hơi thế đơn lực bạc...”
 
-Đuôi hắn xoẹt một tiếng vểnh lên, phành phạch rung hai cái, trong lòng đắc ý dào dạt: “Ta vậy mà đã chống lại đám hung ác cùng cực như Thập Thiên Tôn nhiều năm như vậy. Bọn họ cũng không thể đoạt mười vạn Thánh Sơn đi, ta thật ghê gớm!”
+Đuôi hắn xoẹt một tiếng vểnh lên, phành phạch rung hai cái, trong lòng đắc ý dào dạt: “Ta vậy mà đã chống lại đám hung ác cùng cực như Thập Thiên Tôn nhiều năm như vậy. Bọn họ cũng không thể đoạt Thập Vạn Thánh Sơn đi, ta thật ghê gớm!”
 
-Khoái thuyền của Diên Khang tuy không chậm, nhưng dù sao cũng không nhanh bằng đèn lồng của Nguyệt Thiên Tôn. Tần Mục và Dược sư mất hơn một tháng mới từ mười vạn Thánh Sơn bay tới chỗ vết nứt của trời.
+Khoái thuyền của Diên Khang tuy không chậm, nhưng dù sao cũng không nhanh bằng đèn lồng của Nguyệt Thiên Tôn. Tần Mục và Dược sư mất hơn một tháng mới từ Thập Vạn Thánh Sơn bay tới chỗ vết nứt của trời.
 
 Hơn một tháng này, Dược sư vẫn luôn ở trên thuyền suy nghĩ đủ loại linh đan diệu dược, lúc thì chống cằm trầm tư, lúc thì múa bút viết nhanh, lúc lại liệt kê cấu thành chi tiết của đủ loại linh dược, lúc lại dùng nguyên khí hóa thành đạo văn ẩn chứa trong các loại linh dược, ngắt từng đạo văn để ghép thành đạo văn mới.
 

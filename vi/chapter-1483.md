@@ -32,9 +32,9 @@ Tư bà bà trừng hắn: “Con trúng ám toán, vừa mới khỏi đã mu�
 
 Tần Mục lập tức gạt chuyện Ngụy Tùy Phong và Thúc Quân sang một bên, kinh ngạc nói: “Thánh địa nảy mầm? Nghĩa là sao?”
 
-“Bà cũng không biết. Bà vẫn luôn canh ở đây, không biết Mười Vạn Thánh Sơn nảy mầm thế nào.”
+“Bà cũng không biết. Bà vẫn luôn canh ở đây, không biết Thập Vạn Thánh Sơn nảy mầm thế nào.”
 
-Hai người vừa nói vừa đi về trung tâm Mười Vạn Thánh Sơn.
+Hai người vừa nói vừa đi về trung tâm Thập Vạn Thánh Sơn.
 
 Bọn họ chưa đi được bao xa đã thấy một thiếu niên Thái Dịch đang tu bổ Đại Hắc Sơn bị chấn nứt.
 

@@ -16,7 +16,7 @@ Sắc mặt đầu Thái Đế lúc sáng lúc tối, cuối cùng chán nản n
 
 Tần Mục làm bộ muốn thúc giục bảo ấn. Thái Đế vội nói: “Dừng tay! Cái đầu này của ta đúng là không đáng tiền, chỉ dùng Thái Sơ Nguyên Thạch quan tưởng ra, không bằng hồn phách Vân Thiên Tôn, cũng không bằng tính mạng Lăng Thiên Tôn! Dù ngươi làm nhục ta thế nào, ta cũng không thể trao đổi với ngươi! Chúng ta có thể đổi thứ khác!”
 
-Tần Mục thu tay, nghi ngờ nói: “Ngươi còn có thứ gì có thể trao đổi? Thái Đế đạo huynh, không phải ta coi thường ngươi, nói thật, ta chiếm cứ bảo địa lớn nhất Tổ Đình, ngồi trên mười vạn Hắc Sơn, khoáng sản phong phú, vật tư dồi dào! Hơn nữa ta lại có giao dịch với Cung Thiên Tôn và Nghiên Thiên Phi. Nói thật lòng, chút sản vật trong lãnh địa của ngươi, ta căn bản không để vào mắt. Nếu ngươi định lấy bảo vật trong lãnh địa của Tường Thiên Phi để đổi, vậy khỏi cần mở miệng.”
+Tần Mục thu tay, nghi ngờ nói: “Ngươi còn có thứ gì có thể trao đổi? Thái Đế đạo huynh, không phải ta coi thường ngươi, nói thật, ta chiếm cứ bảo địa lớn nhất Tổ Đình, ngồi trên Thập Vạn Hắc Sơn, khoáng sản phong phú, vật tư dồi dào! Hơn nữa ta lại có giao dịch với Cung Thiên Tôn và Nghiên Thiên Phi. Nói thật lòng, chút sản vật trong lãnh địa của ngươi, ta căn bản không để vào mắt. Nếu ngươi định lấy bảo vật trong lãnh địa của Tường Thiên Phi để đổi, vậy khỏi cần mở miệng.”
 
 Đầu Thái Đế cười lạnh: “Mảnh Đại Hắc Sơn của ngươi cũng tính là bảo địa? Nói ra cười rụng răng! Mục Thiên Tôn, Đại Hắc Sơn của ngươi là nơi Thập Thiên Tôn nhìn không lọt mắt, chỉ có ngươi coi nó như cục bảo bối! Lãnh địa của ta trong Tổ Đình cũng là một bảo địa, tốt hơn Đại Hắc Sơn của ngươi không biết bao nhiêu lần, chính là nơi sát khí ngưng tụ. Đương nhiên, ta sẽ không đổi với ngươi.”
 

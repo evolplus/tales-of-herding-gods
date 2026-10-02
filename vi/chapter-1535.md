@@ -124,7 +124,7 @@ Hắn giống như một người từng trải qua, đích thân tham dự vào
 
 Hắn lặng lẽ tham ngộ. Không biết qua bao lâu, Độ Thế Kim Thuyền khẽ khựng lại, đã đi tới dưới Thế Giới Thụ.
 
-Tần Mục ngẩng đầu nhìn. Thế Giới Thụ ở Tổ Đình đã trở nên cao lớn vĩ ngạn hơn trước. Tán cây bao phủ mười vạn Hắc Sơn. Thần chỉ Diên Khang không biết tìm từ đâu tới một vầng mặt trời, để mặt trời xoay quanh Thế Giới Thụ, cung cấp ánh sáng cho mười vạn ngọn núi lớn.
+Tần Mục ngẩng đầu nhìn. Thế Giới Thụ ở Tổ Đình đã trở nên cao lớn vĩ ngạn hơn trước. Tán cây bao phủ Thập Vạn Hắc Sơn. Thần chỉ Diên Khang không biết tìm từ đâu tới một vầng mặt trời, để mặt trời xoay quanh Thế Giới Thụ, cung cấp ánh sáng cho Thập Vạn Đại Sơn.
 
 “Mấy năm ta rời đi xem ra không xảy ra sai sót gì.”
 

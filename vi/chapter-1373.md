@@ -54,9 +54,9 @@ Ngụy Tùy Phong và U Minh Thái Tử nhìn theo hắn đi xa. U Minh Thái T�
 
 “Long Hán Cửu Thiên Tôn đều là kỳ nhân. Họ có hoài bão, có truy cầu, lại có lý niệm của riêng mình, nên mới có thể làm chuyện phi thường, trở thành người phi thường.”
 
-Ngụy Tùy Phong thi triển nghịch hướng triệu hoán thần thông, trầm giọng nói: “Chúng ta triệu hoán Thúc Quân, Lam Ngự Điền và Tư Ấu U tới đây, không cần trở về mười vạn Thánh Sơn.”
+Ngụy Tùy Phong thi triển nghịch hướng triệu hoán thần thông, trầm giọng nói: “Chúng ta triệu hoán Thúc Quân, Lam Ngự Điền và Tư Ấu U tới đây, không cần trở về Thập Vạn Thánh Sơn.”
 
-U Minh Thái Tử chần chừ: “Huynh cũng nói là mười vạn Thánh Sơn, nhưng ta nhìn dáng vẻ mười vạn tòa Đại Hắc Sơn ấy không giống thánh sơn, ngược lại giống nơi hiểm ác vô cùng, luôn cho ta một cảm giác chẳng lành...”
+U Minh Thái Tử chần chừ: “Huynh cũng nói là Thập Vạn Thánh Sơn, nhưng ta nhìn dáng vẻ mười vạn tòa Đại Hắc Sơn ấy không giống thánh sơn, ngược lại giống nơi hiểm ác vô cùng, luôn cho ta một cảm giác chẳng lành...”
 
 “Mục Thiên Tôn nói là thánh sơn, vậy chính là thánh sơn. Trời sập tự có Mục Thiên Tôn chống!”
 

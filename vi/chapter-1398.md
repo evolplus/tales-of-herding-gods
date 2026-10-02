@@ -146,7 +146,7 @@ Không lâu sau, lại có lâu thuyền hạ xuống, đáp bên một con sôn
 
 Trên đường đi, lâu thuyền không ngừng hạ xuống. Kiểu di dời này quả thật khiến người ta mở rộng tầm mắt.
 
-Ánh mắt Tần Mục lay động. Hắn lấy đèn lồng của Nguyệt Thiên Tôn giao cho Đô Thiên Ma Vương, lại lấy bình ngọc giao cho hắn, thần thức khẽ động, nói cho hắn biết địa thế Đại Hắc Mộc, mười vạn Hắc Sơn, rồi nói: "Ngươi tới Đại Hắc Mộc, để người Diên Khang chúng ta ra ngoài hoạt động một chút."
+Ánh mắt Tần Mục lay động. Hắn lấy đèn lồng của Nguyệt Thiên Tôn giao cho Đô Thiên Ma Vương, lại lấy bình ngọc giao cho hắn, thần thức khẽ động, nói cho hắn biết địa thế Đại Hắc Mộc, Thập Vạn Hắc Sơn, rồi nói: "Ngươi tới Đại Hắc Mộc, để người Diên Khang chúng ta ra ngoài hoạt động một chút."
 
 Đô Thiên Ma Vương vâng lời, mang bình ngọc, xách đèn lồng bay nhanh rời đi.
 
@@ -154,13 +154,13 @@ Lang Hiên Thần Hoàng cười nói: "Chỉ một chiếc bình nhỏ, có th�
 
 Tần Mục cười mà không đáp.
 
-Hai ngày sau, Đô Thiên Ma Vương phong trần mệt mỏi tới mười vạn Hắc Sơn, gặp Yên Nhi, nói: "Giáo chủ lệnh ta đưa Hồ Thiên Bình tới, di dời dân cư Diên Khang."
+Hai ngày sau, Đô Thiên Ma Vương phong trần mệt mỏi tới Thập Vạn Hắc Sơn, gặp Yên Nhi, nói: "Giáo chủ lệnh ta đưa Hồ Thiên Bình tới, di dời dân cư Diên Khang."
 
 Yên Nhi giật nảy mình, thất thanh nói: "Ngươi mang theo một đại chư thiên di dời dân cư Diên Khang? Ngươi nhét mấy chục ức người Diên Khang vào trong đó?"
 
 Đô Thiên Ma Vương vội lắc đầu: "Làm sao có thể? Giáo chủ chỉ cho một tháng, Hoàng đế chỉ kịp nhét vào ba trăm triệu người thôi, cũng chỉ thu dân cư mấy trăm tòa thần thành."
 
-Yên Nhi cạn lời, nói: "Ngươi thả người ra, đừng thả hết một lượt. Mười vạn thánh sơn của chúng ta tuy không ít, nhưng không thể lập tức chịu nổi nhiều người như vậy."
+Yên Nhi cạn lời, nói: "Ngươi thả người ra, đừng thả hết một lượt. Thập Vạn Thánh Sơn của chúng ta tuy không ít, nhưng không thể lập tức chịu nổi nhiều người như vậy."
 
 Đô Thiên cười nói: "Những người khác có thể tạm thời sống trong Hồ Thiên Bình. Trong chiếc bình này, trăm ức người sinh sống cũng không thành vấn đề."
 

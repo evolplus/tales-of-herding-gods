@@ -8,7 +8,7 @@ Long Hao, tọa kỵ của Bá Dương, là một sinh vật khổng lồ còn �
 
 Tần Mục thất thần ngẩng nhìn Long Hao, lẩm bẩm: “Chỉ cần Tạo Vật Chủ tế tự Long Hao như tế tự Thái Đế, liền có thể khiến cự thú như Long Hao trở nên mạnh mẽ đến vậy...”
 
-Mà đúng lúc này, ở mười vạn Hắc Sơn Đại Hắc Mộc xa xôi, Thúc Quân Thần Vương đột nhiên có cảm ứng trong lòng, ngẩng đầu nhìn bầu trời, lộ vẻ kinh hãi.
+Mà đúng lúc này, ở Thập Vạn Hắc Sơn Đại Hắc Mộc xa xôi, Thúc Quân Thần Vương đột nhiên có cảm ứng trong lòng, ngẩng đầu nhìn bầu trời, lộ vẻ kinh hãi.
 
 “Tọa kỵ của Bá Dương, hoặc nên nói là thần thủ hộ của Võ Giáp thị, Long Hao...”
 

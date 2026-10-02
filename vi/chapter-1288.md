@@ -90,7 +90,7 @@ Tần Mục nghẹn lời, đang định nói chuyện, lại thấy Đại Hắ
 
 Thiếu niên Thái Dịch vừa vẩy nước vừa nói: “Nếu ngay cả điểm này cũng không nhận ra, ngươi làm sao giúp ta chặn đám quái vật tiền sử này xâm nhập? Trong bọn họ có những nhân vật cực kỳ mạnh, thậm chí có thể chế tạo Hư Không Thú đưa tới đây, vì tiến vào vũ trụ này mà không từ thủ đoạn. Nếu ngươi ngay cả thử thách nho nhỏ tối qua cũng không qua nổi, vậy ngươi không có tư cách chiếm cứ nơi này.”
 
-Ông đưa thùng nước và cành liễu cho Tần Mục, cười như không cười: “Mục Thiên Tôn, chủ nhân mười vạn Hắc Sơn, núi của ngươi nứt rồi, tự ngươi tới sửa đi.”
+Ông đưa thùng nước và cành liễu cho Tần Mục, cười như không cười: “Mục Thiên Tôn, chủ nhân Thập Vạn Hắc Sơn, núi của ngươi nứt rồi, tự ngươi tới sửa đi.”
 
 Tần Mục nhận thùng nước và cành liễu, học dáng vẻ của ông, dùng cành liễu chấm nước vẩy vào vết nứt của Hắc Sơn. Trong vết nứt Hắc Sơn có cảnh tượng đáng sợ khiến người ta giật mình, giống như có sinh linh kinh khủng nào đó bò ra từ bên trong, để lại dấu móng sắc.
 

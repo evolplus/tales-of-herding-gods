@@ -6,7 +6,7 @@ Vùng cốc rất lớn, hình như lòng chảo, trong đó có quần sơn li�
 
 Thần cung trong tay hắn đã bị kéo đến cực hạn. Vô số ánh sáng điên cuồng tràn tới, hội tụ trên mũi tên!
 
-Mười vạn Đại Hắc Sơn của Đại Hắc Mộc có địa thế bao la. Linh khí linh lực trời đất tràn tới, tạo thành những xoáy lớn nhỏ xoay chuyển điên cuồng trên vùng cốc bị nổ ra này!
+Thập Vạn Đại Hắc Sơn của Đại Hắc Mộc có địa thế bao la. Linh khí linh lực trời đất tràn tới, tạo thành những xoáy lớn nhỏ xoay chuyển điên cuồng trên vùng cốc bị nổ ra này!
 
 Từng luồng linh khí linh lực dưới xoáy giống như từng cơn lốc xoáy, nhưng không phải hút xuống, mà là tràn về phía Tần Mục, tràn vào cây thần cung kia.
 

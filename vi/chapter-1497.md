@@ -4,7 +4,7 @@ Mọi người chạy tới khoáng mạch vòng ngoài Hắc Sơn, chỉ thấy
 
 Vòng ngoài Hắc Sơn có mấy nghìn khoáng mạch. Mỗi khoáng mạch đều có nghĩa là một thần binh của cường giả vũ trụ quá khứ, đồng thời cũng có nghĩa là một cường giả đến từ vũ trụ quá khứ đang chờ giáng lâm.
 
-Đại Hắc Mộc mênh mông vô ngần. Mấy nghìn khoáng mạch ngang dọc thông nhau, bao vây vòng ngoài mười vạn núi lớn này. Cảnh tượng ấy cực kỳ hùng vĩ, lại không thể tưởng tượng nổi.
+Đại Hắc Mộc mênh mông vô ngần. Mấy nghìn khoáng mạch ngang dọc thông nhau, bao vây vòng ngoài Thập Vạn Đại Sơn này. Cảnh tượng ấy cực kỳ hùng vĩ, lại không thể tưởng tượng nổi.
 
 Thần cung Tần Mục có được chính là đến từ một trong những khoáng mạch ấy.
 

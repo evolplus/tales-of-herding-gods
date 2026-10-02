@@ -118,7 +118,7 @@ Thời gian từng chút trôi qua.
 
 Cuối cùng đêm xuống, màn đêm giáng lâm.
 
-Trong mười vạn đại sơn Đại Hắc Mộc, tất cả yên tĩnh, còn bên ngoài Đại Hắc Mộc thì đất rung núi chuyển, đâu đâu cũng có tiếng sụp đổ, một cảnh tượng vũ trụ hủy diệt hùng tráng!
+Trong Thập Vạn Đại Sơn Đại Hắc Mộc, tất cả yên tĩnh, còn bên ngoài Đại Hắc Mộc thì đất rung núi chuyển, đâu đâu cũng có tiếng sụp đổ, một cảnh tượng vũ trụ hủy diệt hùng tráng!
 
 Tần Mục căng thẳng hẳn lên. Đột nhiên, trong vùng cốc này, quần sơn chấn động dữ dội!
 

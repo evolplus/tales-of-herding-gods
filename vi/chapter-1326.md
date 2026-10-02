@@ -28,7 +28,7 @@ Tần Mục quay đầu, cười nói: “Ta có bao giờ làm nhục ngươi? 
 
 Thái Đế giận dữ, nổi trận lôi đình, chỉ là không thể nhảy ra khỏi bảo ấn kia.
 
-Tần Mục đi tới vòng ngoài mười vạn Hắc Sơn, thấy thần nhân Diên Khang đang thử khai thác một khoáng mạch khác, không khỏi lắc đầu: “Đám Diên Khang này học thói tà tính như vậy từ ai? Kẻ nào kẻ nấy đều có dáng vẻ không sợ chết...”
+Tần Mục đi tới vòng ngoài Thập Vạn Hắc Sơn, thấy thần nhân Diên Khang đang thử khai thác một khoáng mạch khác, không khỏi lắc đầu: “Đám Diên Khang này học thói tà tính như vậy từ ai? Kẻ nào kẻ nấy đều có dáng vẻ không sợ chết...”
 
 Hắn tới bên khu mỏ hỏi thăm một phen. Một vị thần nhân vội nói: “Chúng ta chỉ khai thác khoáng mạch vòng ngoài, thần binh thời tiền sử bên trong thì tuyệt đối không dám động. Mù lão gia tinh lắm, đã vẽ sẵn khu vực có thể khai thác cho chúng ta, tránh thần binh ở trung tâm khoáng mạch. Câm lão gia nói, đợi chúng ta khai thác xong vòng ngoài, để lại khu vực trung tâm cho Quốc sư đi nộp mạng.”
 
@@ -44,7 +44,7 @@ Long Kỳ Lân mừng rỡ, vội thu trứng thú lại. Yên Nhi giành lấy,
 
 Tần Mục đưa mắt nhìn nàng vội vã rời đi, rồi lại nhìn Long Kỳ Lân: “Long Béo, thứ ngươi muốn cho ta xem đâu?”
 
-Long Kỳ Lân vội vàng dâng bảo, dẫn Tần Mục tới trung tâm mười vạn Hắc Sơn. Nơi đó đã dựng lên từng tòa cung điện, có đủ loại phong ấn cấm chế.
+Long Kỳ Lân vội vàng dâng bảo, dẫn Tần Mục tới trung tâm Thập Vạn Hắc Sơn. Nơi đó đã dựng lên từng tòa cung điện, có đủ loại phong ấn cấm chế.
 
 Long Kỳ Lân tới trước một tòa cung điện, mở phong ấn cấm chế, đẩy cửa ra, cười nói: “Giáo chủ mời xem!”
 

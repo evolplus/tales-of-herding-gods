@@ -68,11 +68,11 @@ Thiên Đế Thái Sơ phong ấn Tổ Đình, có phải định phong ấn c�
 
 Họ đi về phía bắc hơn mười ngày, cuối cùng nhìn thấy hắc mộc mà hai vị cổ thần trong khoáng mạch Thái Cực nhắc tới. Tần Mục ngẩng đầu nhìn, trong lòng chấn động. Nếu hai vị cổ thần kia không nói đây là một gốc hắc mộc, hắn căn bản không nhìn ra chân tướng nơi này.
 
-Phía trước, vô số núi đen sừng sững. Các ngọn núi đen nhô lên kỳ vĩ, khí cốt lởm chởm. Nhìn từ xa, mười vạn đại sơn, quần phong liệt kê như sao giăng bàn cờ, hình thành thế núi tròn, từng vòng đan vào từng vòng, hoàn toàn không nhìn ra nơi này thật ra là gốc cây còn lại của một thân cây!
+Phía trước, vô số núi đen sừng sững. Các ngọn núi đen nhô lên kỳ vĩ, khí cốt lởm chởm. Nhìn từ xa, Thập Vạn Đại Sơn, quần phong liệt kê như sao giăng bàn cờ, hình thành thế núi tròn, từng vòng đan vào từng vòng, hoàn toàn không nhìn ra nơi này thật ra là gốc cây còn lại của một thân cây!
 
 Nơi đây đích xác là gốc cây do một thân cây cực kỳ cổ lão để lại. Thân núi tạo thành kết cấu vòng tròn, thật ra là vòng năm của gốc hắc mộc này!
 
-Nhưng mười vạn đại sơn từng vòng từng vòng xếp lớp, nhìn qua vòng năm cũng không nhiều.
+Nhưng Thập Vạn Đại Sơn từng vòng từng vòng xếp lớp, nhìn qua vòng năm cũng không nhiều.
 
 Tần Mục bay lên cao đếm thử. Quần sơn nơi này chỉ tạo thành mười sáu vòng tròn. Nếu xem theo vòng năm của cây cối, gốc hắc mộc này hẳn chỉ có mười sáu tuổi.
 
@@ -80,7 +80,7 @@ Tần Mục bay lên cao đếm thử. Quần sơn nơi này chỉ tạo thành 
 
 “Cặp cổ thần kia nói nơi này là bảo địa chỉ kém năm khoáng mạch cổ thần lớn, vậy lãnh địa của ta sẽ đặt ở đây!”
 
-Tần Mục thúc Hư Không Thú bay qua bầu trời quần sơn đen nhánh, lao thẳng đến lõi hắc mộc. Ở trung tâm mười vạn đại sơn là một tòa Đại Hắc Phong, đỉnh hiểm dựng đứng, nhưng phần chóp lại cực kỳ bằng phẳng.
+Tần Mục thúc Hư Không Thú bay qua bầu trời quần sơn đen nhánh, lao thẳng đến lõi hắc mộc. Ở trung tâm Thập Vạn Đại Sơn là một tòa Đại Hắc Phong, đỉnh hiểm dựng đứng, nhưng phần chóp lại cực kỳ bằng phẳng.
 
 Tần Mục lấy Lưu Ly Thanh Thiên Tràng ra, cắm “đông” một tiếng vào chính giữa đỉnh hiểm này, quát khẽ: “Lên!”
 

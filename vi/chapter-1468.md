@@ -80,6 +80,6 @@ Qua không biết bao lâu, Tần Mục tỉnh lại khỏi nhập đạo, hai t
 
 Tần Mục cất bước đi ra ngoài Thiên Hải.
 
-"Đi thôi, tới Mười Vạn Thánh Sơn. Chúng ta xem thử trong Phi Hương Điện này rốt cuộc có gì!"
+"Đi thôi, tới Thập Vạn Thánh Sơn. Chúng ta xem thử trong Phi Hương Điện này rốt cuộc có gì!"
 
 [Xem chương tiếp theo](chapter-1469.md)

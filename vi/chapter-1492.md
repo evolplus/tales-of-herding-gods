@@ -1,6 +1,6 @@
 # Chương 1492: Quái nhân cao gầy
 
-Mười Vạn Thánh Sơn, đêm đen.
+Thập Vạn Thánh Sơn, đêm đen.
 
 Tần Mục đứng trên đỉnh Thế Giới Thụ, thong thả hứng đạo lộ trượt xuống từ Đạo Thụ của Thái Dịch.
 
@@ -122,11 +122,11 @@ Hắn đánh Thái Dịch vào một dòng sông lớn Hỗn Độn, tức là �
 
 Đuôi mắt Tần Mục giật giật. Hắn siết chặt gậy chống. Đợi Ngụy Tùy Phong và Thúc Quân đứng vững, hắn đột nhiên xoay người đi ngay. Ngụy Tùy Phong hơi ngẩn ra, vội nói: “Sư đệ, đệ biết đồ của Thái Dịch ở đâu sao?”
 
-Tần Mục không đáp. Thần thức của hắn bỗng bùng nổ, hóa thành dao động khủng khiếp vô cùng quét qua mười vạn núi lớn. Hắn quát: “Tất cả mọi người nghe lệnh, hôm nay nhất định phải rời khỏi Đại Hắc Sơn! Không được dừng lại dù chỉ một khắc!”
+Tần Mục không đáp. Thần thức của hắn bỗng bùng nổ, hóa thành dao động khủng khiếp vô cùng quét qua Thập Vạn Đại Sơn. Hắn quát: “Tất cả mọi người nghe lệnh, hôm nay nhất định phải rời khỏi Đại Hắc Sơn! Không được dừng lại dù chỉ một khắc!”
 
 “Tất cả mọi người nghe hiệu lệnh của ta, ta là Quốc sư Diên Khang Tần Mục, Mục Thiên Tôn! Hôm nay tất cả mọi người nhất định phải rời khỏi Đại Hắc Sơn, không ai được ở lại!”
 
-Thần thức của hắn hóa thành âm thanh chấn động qua lại, không ngừng vang lên trên bầu trời mười vạn núi lớn.
+Thần thức của hắn hóa thành âm thanh chấn động qua lại, không ngừng vang lên trên bầu trời Thập Vạn Đại Sơn.
 
 Hư Sinh Hoa đang tu bổ Hắc Sơn nứt ra, nghe vậy vội ngẩng đầu nhìn về hướng Tần Mục. Bên cạnh Thế Giới Thụ ở trung tâm Đại Hắc Sơn, Lam Ngự Điền, Tư bà bà, Văn Nguyên và những người khác lộ vẻ kinh ngạc, đều nhìn về nơi âm thanh truyền đến.
 

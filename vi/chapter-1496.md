@@ -138,7 +138,7 @@ Lão mù thấy vậy, không nói gì.
 
 Lão mù lặng lẽ gật đầu.
 
-Mấy ngày sau, những người đã di dời khỏi mười vạn Hắc Sơn lục tục trở về. Trong Hắc Sơn lại dần náo nhiệt.
+Mấy ngày sau, những người đã di dời khỏi Thập Vạn Hắc Sơn lục tục trở về. Trong Hắc Sơn lại dần náo nhiệt.
 
 Hư Sinh Hoa vẫn như trước, thay Tần Mục hứng đạo lộ, tu bổ Hắc Sơn. Hắn là người trầm ổn nhất trong Đại Hắc Sơn. Bất kể bên ngoài xảy ra chuyện lớn đến đâu, hắn vẫn có đủ tâm tính và khí phách để hoàn thành việc của mình.
 

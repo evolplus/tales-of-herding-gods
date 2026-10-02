@@ -10,7 +10,7 @@ Vì sao Thập Thiên Tôn muốn trừ khử Thiên Công nhanh như vậy?
 
 "Trong chuyện này chắc chắn có chính Thiên Công ngấm ngầm thúc đẩy!"
 
-Ánh mắt Tần Mục lập lòe. Cách đây không lâu Thiên Công và Thổ Bá đến mười vạn Hắc Sơn bái kiến Thái Dịch, hiện tại Thập Thiên Tôn đã đưa chuyện thảo phạt Thiên Công lên hội nghị Thiên Minh. Trong này chắc chắn có Hồng Thiên Tôn lặng lẽ thúc đẩy.
+Ánh mắt Tần Mục lập lòe. Cách đây không lâu Thiên Công và Thổ Bá đến Thập Vạn Hắc Sơn bái kiến Thái Dịch, hiện tại Thập Thiên Tôn đã đưa chuyện thảo phạt Thiên Công lên hội nghị Thiên Minh. Trong này chắc chắn có Hồng Thiên Tôn lặng lẽ thúc đẩy.
 
 Bởi vì Hồng Thiên Tôn chính là Thiên Công. Thiên Công hỏi Thái Dịch rằng mình có thể thoát khỏi ràng buộc của Thiên Đạo không? Thái Dịch nói với Thiên Công, ông sẽ thành công.
 

@@ -72,7 +72,7 @@ Khi kiếp Diên Khang xảy ra, mọi áp lực đều tập trung lên một m
 
 Họ rời khỏi kim điện này, đi về phía kim điện tiếp theo.
 
-Bên rìa Mười Vạn Thánh Sơn, Tần Mục tìm được Hư Sinh Hoa và Lam Ngự Điền. Hai người đang tu bổ Hắc Sơn bị nứt.
+Bên rìa Thập Vạn Thánh Sơn, Tần Mục tìm được Hư Sinh Hoa và Lam Ngự Điền. Hai người đang tu bổ Hắc Sơn bị nứt.
 
 Tần Mục kể với họ về trải nghiệm của mình trong Tổ Đình Ngọc Kinh Thành, nói tới bảy mươi hai Bảo Điện và cạm bẫy Lăng Tiêu, cạm bẫy Tử Tiêu.
 

@@ -46,7 +46,7 @@ Hắn ngồi xếp bằng trên mặt đất, vẻ mặt bình tĩnh đối di�
 
 Ánh chiều tà chuyển từ trước ngực hắn lên cằm hắn, rồi dần dần nâng cao. Bóng tối dần phủ lên mặt hắn, nhấn chìm đôi mắt hắn.
 
-Ánh chiều tà rải xuống gốc Thế Giới Thụ ở trung tâm Mười Vạn Thánh Sơn. Hư Sinh Hoa tắm trong ánh chiều, lúc này Lam Ngự Điền chạy tới, đứng sóng vai với hắn.
+Ánh chiều tà rải xuống gốc Thế Giới Thụ ở trung tâm Thập Vạn Thánh Sơn. Hư Sinh Hoa tắm trong ánh chiều, lúc này Lam Ngự Điền chạy tới, đứng sóng vai với hắn.
 
 “Trước kia có Thái Dịch trấn giữ nơi này, dù bạo động ở Đại Hắc Sơn dữ dội đến đâu, lòng người vẫn yên ổn.”
 
@@ -66,7 +66,7 @@ Trên đỉnh đầu họ, từng ngôi sao hiện ra, quần tinh lấp lánh �
 
 Từng tầng hư không dần hạ thấp. Đạo Thụ của Thái Dịch lại xuất hiện, đạo lộ rủ xuống từ trên lá cây.
 
-Cùng lúc đó, trong mười vạn Hắc Sơn, một ngọn Đại Hắc Sơn nứt ra sáng lên. Thần quang cuồn cuộn, hóa thành một con mắt khổng lồ giữa hai nửa Đại Hắc Sơn bị xé tách.
+Cùng lúc đó, trong Thập Vạn Hắc Sơn, một ngọn Đại Hắc Sơn nứt ra sáng lên. Thần quang cuồn cuộn, hóa thành một con mắt khổng lồ giữa hai nửa Đại Hắc Sơn bị xé tách.
 
 Trong mắt, bóng dáng cao gầy từng bước đến gần, thân hình càng lúc càng cao, như con ngươi dựng đứng của con mắt.
 
@@ -84,7 +84,7 @@ Tần Mục kéo cung. Lúc này nguyên thần chủ sau lưng hắn vươn tay
 
 Vù!
 
-Thần cung lập tức bị hắn kéo đến cực hạn. Pháp lực cuồng bạo của hắn tràn hết vào thần cung. Cùng lúc đó, đại đạo trời đất ầm vang, linh lực linh khí gào thét kéo tới, hóa thành dòng lũ cuốn khắp Mười Vạn Thánh Sơn.
+Thần cung lập tức bị hắn kéo đến cực hạn. Pháp lực cuồng bạo của hắn tràn hết vào thần cung. Cùng lúc đó, đại đạo trời đất ầm vang, linh lực linh khí gào thét kéo tới, hóa thành dòng lũ cuốn khắp Thập Vạn Thánh Sơn.
 
 Trên đỉnh đầu hắn, một vòng xoáy khổng lồ chu vi nghìn dặm xuất hiện. Đó là vòng xoáy do linh lực linh khí của Tổ Đình hình thành.
 

@@ -100,7 +100,7 @@ Lời đồn này lan truyền trong chư thiên vạn giới một thời gian.
 
 Quả nhiên, lời đồn ấy không dấy lên sóng gió gì lớn, rồi lại lặng xuống.
 
-Mà đúng lúc này, Điền Thục, Đồ phu, Triết Hoa Lê và Lạc Vô Song tới mười vạn Hắc Sơn ở Tổ Đình tìm Tần Mục. Tần Mục đã chỉnh trang chờ xuất phát, nói với bốn người: "Trận này sinh tử khó liệu, ta cùng chư vị cùng sống cùng chết."
+Mà đúng lúc này, Điền Thục, Đồ phu, Triết Hoa Lê và Lạc Vô Song tới Thập Vạn Hắc Sơn ở Tổ Đình tìm Tần Mục. Tần Mục đã chỉnh trang chờ xuất phát, nói với bốn người: "Trận này sinh tử khó liệu, ta cùng chư vị cùng sống cùng chết."
 
 Đồ phu cười nói: "Có gì phải sợ?"
 

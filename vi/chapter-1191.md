@@ -50,7 +50,7 @@ Thái Tố thần thạch đã tiêu hao sạch sẽ, nhưng dịch trứng tron
 
 Hắn đổi hướng, đi về phía khoáng mạch Thái Tố.
 
-Trong mười vạn Hắc Sơn, nữ tử Thái Dịch cùng Long Kỳ Lân, Yên Nhi sửa xong ngọn Hắc Sơn bị nứt, lại xách thùng nước rời đi. Đột nhiên, nữ tử Thái Dịch dừng bước, cười nói: “Thái Tố đạo hữu, hữu lễ.”
+Trong Thập Vạn Hắc Sơn, nữ tử Thái Dịch cùng Long Kỳ Lân, Yên Nhi sửa xong ngọn Hắc Sơn bị nứt, lại xách thùng nước rời đi. Đột nhiên, nữ tử Thái Dịch dừng bước, cười nói: “Thái Tố đạo hữu, hữu lễ.”
 
 Lời nàng vừa dứt, một nữ tử cao gầy, dung nhan lạnh lẽo như phủ sương băng bước ra từ bóng tối dưới Hắc Sơn. Sau lưng nàng, hào quang như màu chàm, biến hóa hư thực, khó thể nắm bắt.
 
@@ -80,7 +80,7 @@ Nàng giận quá hóa cười, phất tay áo nói: “Hôm nay, ta sẽ giết
 
 Nữ tử Thái Dịch đặt chiếc thùng sắt nhỏ xuống, mắt nhìn mũi, mũi nhìn tim: “Bên cạnh cây Vũ Trụ không dung ngươi càn rỡ. Ta có thể nhìn khắp mọi quá khứ tương lai, chỉ riêng nơi này là không nhìn thấy. Đây là căn nguyên của tai biến. Nếu ngươi dám hành hung ở đây, phá hoại nơi này, ta đành phải ngăn cản.”
 
-Trong mắt Thái Tố lóe hung quang, đang định ra tay, đột nhiên nữ tử Thái Dịch búng ngón tay. Thái Tố lập tức trời xoay đất chuyển, bay khỏi mười vạn Hắc Sơn, không biết rơi xuống nơi nào.
+Trong mắt Thái Tố lóe hung quang, đang định ra tay, đột nhiên nữ tử Thái Dịch búng ngón tay. Thái Tố lập tức trời xoay đất chuyển, bay khỏi Thập Vạn Hắc Sơn, không biết rơi xuống nơi nào.
 
 Nữ tử Thái Dịch thở dài, xách thùng nước rời đi: “Si tâm quá nặng, cũng khó thành đạo. Đạo hữu khó tìm, nhưng một mình ta lại không chống đỡ nổi...”
 

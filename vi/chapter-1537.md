@@ -1,6 +1,6 @@
 # Chương 1537: Triều thánh
 
-Hạo Thiên Tôn và Hiểu Thiên Tôn khẽ mỉm cười, cất bước đi vào mười vạn ngọn núi lớn. Hạo Thiên Tôn thong thả nói: “Mục Thiên Tôn không ở đây sao? Vì sao không thấy hắn đích thân ra đón?”
+Hạo Thiên Tôn và Hiểu Thiên Tôn khẽ mỉm cười, cất bước đi vào Thập Vạn Đại Sơn. Hạo Thiên Tôn thong thả nói: “Mục Thiên Tôn không ở đây sao? Vì sao không thấy hắn đích thân ra đón?”
 
 Giang Vân Gian nói: “Nghĩa phụ không ở đây. Nghĩa phụ nói Tường Thiên Phi đã chết, cơ hội khó được, ngài đi cứu Lăng Thiên Tôn.”
 
@@ -132,7 +132,7 @@ Giang Vân Gian cười lạnh nói: “Cái gọi là Thiên Tôn cũng không 
 
 Trong lòng mấy vị Thiên Tôn khẽ động: “Trận liệt đạo văn do Thái Dịch vẽ? Chuyện này không thể bỏ qua!”
 
-Họ theo Giang Vân Gian tới trước một vách núi gãy trong mười vạn Hắc Sơn. Chỉ thấy trên vách núi ấy vẽ khắc một ít đạo văn, hợp thành trận liệt, quả thật huyền diệu vô cùng!
+Họ theo Giang Vân Gian tới trước một vách núi gãy trong Thập Vạn Hắc Sơn. Chỉ thấy trên vách núi ấy vẽ khắc một ít đạo văn, hợp thành trận liệt, quả thật huyền diệu vô cùng!
 
 Ánh mắt Hạo Thiên Tôn và Hiểu Thiên Tôn rơi trên trận liệt kia, sắc mặt không khỏi khẽ biến, thầm nghĩ: “Thần thông của Thái Dịch quả nhiên sâu không lường được. Trận liệt đạo văn này, nhất thời ta cũng nhìn không hiểu!”
 
@@ -168,7 +168,7 @@ Họ đi tới dưới cây. Mặt trời phía tây dần chìm xuống sau nú
 
 Đúng lúc này, đột nhiên tiếng nổ lớn như trời sụp đất nứt truyền đến, chấn động đến mức các vị Thiên Tôn đứng không vững!
 
-Sắc mặt mọi người đại biến, lại thấy luồng chấn động này truyền tới từ bên ngoài mười vạn Hắc Sơn. Họ nhìn ra ngoài, chỉ thấy bên ngoài mười vạn Hắc Sơn giống như vũ trụ tịch diệt!
+Sắc mặt mọi người đại biến, lại thấy luồng chấn động này truyền tới từ bên ngoài Thập Vạn Hắc Sơn. Họ nhìn ra ngoài, chỉ thấy bên ngoài Thập Vạn Hắc Sơn giống như vũ trụ tịch diệt!
 
 Chư thiên vạn giới sụp đổ co rút, tất cả tan biến không còn!
 

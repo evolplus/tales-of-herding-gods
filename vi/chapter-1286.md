@@ -74,7 +74,7 @@ Lão mù tuy điều động trận pháp mười ba tầng chư thiên, dẫn l
 
 Biên độ suy giảm khí tức của ông khiến người ta tim đập thình thịch!
 
-Cùng lúc đó, Lão câm quát lớn một tiếng. Tiếng sấm nổ tung trong cốc, đinh tai nhức óc, ngay cả khắp nơi trong mười vạn Hắc Sơn Đại Hắc Mộc cũng nghe rõ, tiếng sấm vang đi vọng lại giữa từng ngọn núi, dư âm kéo dài.
+Cùng lúc đó, Lão câm quát lớn một tiếng. Tiếng sấm nổ tung trong cốc, đinh tai nhức óc, ngay cả khắp nơi trong Thập Vạn Hắc Sơn Đại Hắc Mộc cũng nghe rõ, tiếng sấm vang đi vọng lại giữa từng ngọn núi, dư âm kéo dài.
 
 Trong vùng cốc, giống như có một vầng mặt trời chậm rãi mọc lên, càng lúc càng sáng.
 

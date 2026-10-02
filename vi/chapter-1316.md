@@ -82,11 +82,11 @@ Trong lòng hai người thắc mắc, không biết vì sao Tần Mục lại c
 
 Họ lại không biết Thái Dịch có chữ "Dịch", vô thường hình, vô thường thái, có thể hóa thành bất kỳ người nào, bất kỳ vật gì. Vì vậy Tần Mục thấy cây gậy kinh lui bốn đại Thiên Tôn, liền cho rằng Thái Dịch hóa thành cây gậy, nên mới nói chuyện với cây gậy như thế.
 
-Thái Dịch già chống gậy, cười nói: "Các ngươi đã thấy sự hung hiểm của Tổ Đình, cũng đã được nguyên thạch, nên đi tới Mười Vạn Thánh Sơn gặp Mục Thiên Tôn rồi. Loại gỗ này chỗ Mục Thiên Tôn có rất nhiều. Mười Vạn Thánh Sơn, khắp nơi đều là loại thần mộc này."
+Thái Dịch già chống gậy, cười nói: "Các ngươi đã thấy sự hung hiểm của Tổ Đình, cũng đã được nguyên thạch, nên đi tới Thập Vạn Thánh Sơn gặp Mục Thiên Tôn rồi. Loại gỗ này chỗ Mục Thiên Tôn có rất nhiều. Thập Vạn Thánh Sơn, khắp nơi đều là loại thần mộc này."
 
-Hư Sinh Hoa và Lam Ngự Điền liên tục cảm tạ. Hư Sinh Hoa nói: "Dám hỏi đạo hữu, Mười Vạn Thánh Sơn đi thế nào?"
+Hư Sinh Hoa và Lam Ngự Điền liên tục cảm tạ. Hư Sinh Hoa nói: "Dám hỏi đạo hữu, Thập Vạn Thánh Sơn đi thế nào?"
 
-"Mười Vạn Thánh Sơn ở ngay đó. Các ngươi cứ đi thẳng về hướng ấy. Thánh Sơn cực kỳ kỳ lạ, thần thánh phi phàm, khác hẳn mọi nơi, các ngươi nhìn thấy lần đầu sẽ nhận ra ngay!"
+"Thập Vạn Thánh Sơn ở ngay đó. Các ngươi cứ đi thẳng về hướng ấy. Thánh Sơn cực kỳ kỳ lạ, thần thánh phi phàm, khác hẳn mọi nơi, các ngươi nhìn thấy lần đầu sẽ nhận ra ngay!"
 
 Thái Dịch già tùy tay chỉ. Mọi người nhìn theo hướng ngón tay ông ta, lại không thấy gì. Đợi quay đầu lại, Thái Dịch già đã chẳng biết đi đâu.
 
@@ -96,11 +96,11 @@ Họ tiếp tục tiến lên. Hư Sinh Hoa quan sát địa thế sông núi T�
 
 Lam Ngự Điền không chú ý những điều này, được hắn nói mới để ý. Hai người tự mình nghiên cứu, trao đổi điều thu được, bất giác bước chân lại chậm lại.
 
-Ở một bên khác, Tần Mục một đường chạy tới Mười vạn Đại Hắc Sơn. Mắt thấy Hắc Sơn đã ở trước mặt, hư không trước mắt đột nhiên lay động. Hắn liền dừng bước, cười lạnh một tiếng, thần thức bùng nổ!
+Ở một bên khác, Tần Mục một đường chạy tới Thập Vạn Đại Hắc Sơn. Mắt thấy Hắc Sơn đã ở trước mặt, hư không trước mắt đột nhiên lay động. Hắn liền dừng bước, cười lạnh một tiếng, thần thức bùng nổ!
 
 Ầm!
 
-Thần thức của hắn nổ tung hư không. Mười vạn Đại Hắc Sơn phía trước biến mất không thấy, thay vào đó là một cái đầu vô cùng khổng lồ, tóc xõa trên vai, sau gáy hướng về phía hắn.
+Thần thức của hắn nổ tung hư không. Thập Vạn Đại Hắc Sơn phía trước biến mất không thấy, thay vào đó là một cái đầu vô cùng khổng lồ, tóc xõa trên vai, sau gáy hướng về phía hắn.
 
 "Thái Đế, thương thế của ngươi quá nặng rồi. Bày ảo cảnh dụ ta mà còn bị ta nhìn thấu."
 

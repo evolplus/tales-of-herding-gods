@@ -16,7 +16,7 @@ Tần Mục không rét mà run.
 
 “Ngươi biết dưới rễ cây này là gì không?”
 
-Thiếu niên Thái Dịch cười nói: “Ngươi chỉ thấy một khoáng mạch. Mười vạn Hắc Sơn này, mười sáu vòng niên luân, chỉ có vòng niên luân ngoài cùng mới có khoáng mạch. Mà số lượng khoáng mạch lên đến mấy nghìn.”
+Thiếu niên Thái Dịch cười nói: “Ngươi chỉ thấy một khoáng mạch. Thập Vạn Hắc Sơn này, mười sáu vòng niên luân, chỉ có vòng niên luân ngoài cùng mới có khoáng mạch. Mà số lượng khoáng mạch lên đến mấy nghìn.”
 
 Ông ngăn Tần Mục lại, duỗi một ngón tay thăm vào thùng, đầu ngón tay nâng một giọt nước trong suốt long lanh, nói: “Ngươi có thần nhãn mạnh nhất, chỉ là hiện giờ ngươi còn chưa phát huy được sức mạnh Thái Sơ, Thái Cực và Thổ Bá ẩn chứa trong đó. Giọt nước này có thể cho ngươi thấy tình hình dưới đất.”
 
@@ -24,7 +24,7 @@ Thiếu niên Thái Dịch cười nói: “Ngươi chỉ thấy một khoáng m
 
 Ngay cả đại lục chữ Tần, giờ phút này cũng nổi lên từng đường đại đạo U Đô, như võng mạc của đồng tử, tỏa ra bốn phía!
 
-Hắn nhìn xuống dưới đất, lập tức thấy lòng đất nơi vòng ngoài cùng của mười vạn Hắc Sơn. Ở đó, từng khoáng mạch cực kỳ thô lớn bám vào rễ cây thế giới, có khoáng mạch cách mặt đất không xa, có khoáng mạch lại chôn sâu trong lòng đất!
+Hắn nhìn xuống dưới đất, lập tức thấy lòng đất nơi vòng ngoài cùng của Thập Vạn Hắc Sơn. Ở đó, từng khoáng mạch cực kỳ thô lớn bám vào rễ cây thế giới, có khoáng mạch cách mặt đất không xa, có khoáng mạch lại chôn sâu trong lòng đất!
 
 Những khoáng mạch kia như rễ cây thế giới, thông suốt bốn phương tám hướng. Càng xuống lòng đất lại càng cổ xưa!
 
@@ -36,7 +36,7 @@ Giọng Tần Mục khàn đi: “Trong khoáng mạch có gì?”
 
 Thiếu niên Thái Dịch ung dung nói: “Khoáng mạch vòng ngoài là cường giả của năm vũ trụ trước. Bọn họ muốn tới đây, bèn cho vũ khí hoặc đại đạo của mình thẩm thấu sang trước. Lâu ngày dài tháng, dưới lòng Đại Hắc Mộc hình thành từng khoáng mạch. Thứ các ngươi gặp tối qua chẳng qua chỉ là một tiểu nhân vật, nhân vật lớn thật sự còn ở phía sau. Ngươi nhìn các vòng niên luân khác của cây thế giới đi.”
 
-Tần Mục theo lời nhìn về vòng niên luân thứ hai của mười vạn Hắc Sơn, liền thấy dưới lòng thân núi cũng có khoáng mạch thông suốt bốn phương tám hướng, nhưng phần lớn các khoáng mạch này đều đã rỗng!
+Tần Mục theo lời nhìn về vòng niên luân thứ hai của Thập Vạn Hắc Sơn, liền thấy dưới lòng thân núi cũng có khoáng mạch thông suốt bốn phương tám hướng, nhưng phần lớn các khoáng mạch này đều đã rỗng!
 
 Những khoáng mạch ấy biến thành từng khoáng động. Số lượng khoáng động tuy không bằng vòng ngoài cùng, nhưng cũng có một hai nghìn.
 
@@ -68,7 +68,7 @@ Trong lòng Tần Mục kinh hãi: “Hư Không Thú là bọn họ chế tạo
 
 Thiếu niên Thái Dịch nói: “Thái Đế không biết chuyện này. Hắn bị dục vọng của mình chinh phục, sinh ra sợ hãi với tộc nhân của mình, lo lắng tộc nhân sẽ tạo ra một Thái Đế mới, nhiều Thái Đế hơn. Vì vậy hắn khống chế Hư Không Thú tàn sát tộc nhân của mình. Trận giết chóc đó...”
 
-Ông lắc đầu: “Tổ Đình gần như vì vậy mà hủy diệt. Những lão quái vật bất tử của kỷ nguyên trước nhận được đủ nhiều tế phẩm, mười vạn đại sơn Đại Hắc Mộc biến thành một vùng đất kinh khủng vô cùng. Bọn họ sắp sửa lần lượt giáng lâm!”
+Ông lắc đầu: “Tổ Đình gần như vì vậy mà hủy diệt. Những lão quái vật bất tử của kỷ nguyên trước nhận được đủ nhiều tế phẩm, Thập Vạn Đại Sơn Đại Hắc Mộc biến thành một vùng đất kinh khủng vô cùng. Bọn họ sắp sửa lần lượt giáng lâm!”
 
 Tần Mục cảm nhận sâu sắc nỗi sợ phát ra từ linh hồn.
 
@@ -88,8 +88,8 @@ Thiếu niên Thái Dịch hờ hững nói: “Cuối cùng, Tạo Vật Chủ 
 
 Tần Mục im lặng một lát, nói: “Cho đến khi Khai Hoàng bổ mở Thiên Đình, khiến phong ấn xuất hiện một khe hở.”
 
-Thiếu niên Thái Dịch gật đầu: “Cho đến khi chín vị Thiên Tôn các ngươi giáng lâm, Thái Đế lần nữa khống chế Hư Không Thú huyết tẩy mười vạn Hắc Sơn, phong ấn lại buông lỏng. Khoáng mạch dưới đất không phải do ngươi khai quật, thần cung cũng không phải do ngươi lấy xuống, nhưng ngươi lại gánh trách nhiệm, chủ động đối mặt với nhân vật của kỷ nguyên trước. Vì vậy ta nghĩ...”
+Thiếu niên Thái Dịch gật đầu: “Cho đến khi chín vị Thiên Tôn các ngươi giáng lâm, Thái Đế lần nữa khống chế Hư Không Thú huyết tẩy Thập Vạn Hắc Sơn, phong ấn lại buông lỏng. Khoáng mạch dưới đất không phải do ngươi khai quật, thần cung cũng không phải do ngươi lấy xuống, nhưng ngươi lại gánh trách nhiệm, chủ động đối mặt với nhân vật của kỷ nguyên trước. Vì vậy ta nghĩ...”
 
-Ông dừng một chút: “Với tư cách chủ nhân mười vạn Hắc Sơn, ngươi còn có thể gánh vác nhiều hơn.”
+Ông dừng một chút: “Với tư cách chủ nhân Thập Vạn Hắc Sơn, ngươi còn có thể gánh vác nhiều hơn.”
 
 [Xem chương tiếp theo](chapter-1290.md)

@@ -102,13 +102,13 @@ Hư Sinh Hoa ngâm dài: "Dương diễm hư không hoa, há tránh khỏi sinh 
 
 Tú Hồng Tô nghiền ngẫm hàm nghĩa trong đó. Trong mắt nàng không còn ái dục, chỉ còn thưởng thức.
 
-Ngụy Tùy Phong thấy Hư Sinh Hoa bình yên vô sự thì không khỏi thở phào, lập tức cáo từ Tú Hồng Tô. Không đợi Hư Sinh Hoa cáo từ Nghiên Thiên Phi, hắn đã kéo Hư Sinh Hoa đi ra ngoài, thấp giọng nói: "Ngươi bình an vô sự là tốt! Nơi này là đầm rồng hang hổ, ở thêm một khắc là thêm một phần nguy hiểm. Chúng ta mau về mười vạn Thánh Sơn!"
+Ngụy Tùy Phong thấy Hư Sinh Hoa bình yên vô sự thì không khỏi thở phào, lập tức cáo từ Tú Hồng Tô. Không đợi Hư Sinh Hoa cáo từ Nghiên Thiên Phi, hắn đã kéo Hư Sinh Hoa đi ra ngoài, thấp giọng nói: "Ngươi bình an vô sự là tốt! Nơi này là đầm rồng hang hổ, ở thêm một khắc là thêm một phần nguy hiểm. Chúng ta mau về Thập Vạn Thánh Sơn!"
 
 Hư Sinh Hoa kinh ngạc nói: "Đầm rồng hang hổ ở đâu? Nơi này cảnh sắc hùng vĩ tú lệ, cũng dễ chịu như các thánh địa khác trong thiên hạ."
 
 Ngụy Tùy Phong ngạc nhiên, lắc đầu.
 
-Trong mười vạn Hắc Sơn, Tần Mục từ xa nhìn lại, chỉ thấy cột sáng thứ tư phóng thẳng lên trời, xông vào bầu trời Tổ Đình, tráng lệ phi phàm.
+Trong Thập Vạn Hắc Sơn, Tần Mục từ xa nhìn lại, chỉ thấy cột sáng thứ tư phóng thẳng lên trời, xông vào bầu trời Tổ Đình, tráng lệ phi phàm.
 
 "Thiên Đình xây xong mười một tòa đại Linh Năng Đối Thiên Kiều sẽ bắt đầu dời Thiên Đình tới Tổ Đình."
 

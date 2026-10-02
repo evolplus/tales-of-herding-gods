@@ -76,7 +76,7 @@ Vẻ kinh hãi và vui mừng trên mặt Thúc Quân còn chưa kịp nở ra, 
 
 Mà trong tòa Thần thành mênh mông này, cú xung kích khủng bố kia như gây ra phản ứng dây chuyền. Từng luồng dao động khủng bố vô cùng bị kích phát, lần lượt bộc phát!
 
-Dù là mọi người ở xa tận Mười Vạn Thánh Sơn, khoảnh khắc này cũng có thể thấy trong vùng đất hoang vu của Tổ Đình, từng luồng đạo quang khủng bố xông lên bầu trời, lay động Thiên Địa Đại Đạo, đẩy mây trắng phía trên ra, đánh thủng vách ngăn thế giới của Tổ Đình!
+Dù là mọi người ở xa tận Thập Vạn Thánh Sơn, khoảnh khắc này cũng có thể thấy trong vùng đất hoang vu của Tổ Đình, từng luồng đạo quang khủng bố xông lên bầu trời, lay động Thiên Địa Đại Đạo, đẩy mây trắng phía trên ra, đánh thủng vách ngăn thế giới của Tổ Đình!
 
 Còn trên Thiên Đình, chư thần trấn thủ Thiên Đình chỉ cảm thấy đất rung núi chuyển. Cả Thiên Đình đều chấn động không ngừng, mặt đất Thiên Đình răng rắc nứt ra, quần điện lung lay, gần như sụp đổ.
 

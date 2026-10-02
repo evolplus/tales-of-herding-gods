@@ -1,6 +1,6 @@
 # Chương 1538: Lừa khắp thiên hạ
 
-Trước khi Hạo Thiên Tôn, Hiểu Thiên Tôn và những người khác tới đây, trong lòng còn có phần chần chừ. Nhưng sau khi thấy bản lĩnh của Giang Vân Gian, đệ tử Thái Dịch, lại thấy trận liệt đạo văn do Tần Mục để lại trên vách núi, cộng thêm cảnh tượng khủng bố bên ngoài mười vạn Hắc Sơn và Đạo Thụ của Thái Dịch, nỗi chần chừ trong lòng họ liền tan biến.
+Trước khi Hạo Thiên Tôn, Hiểu Thiên Tôn và những người khác tới đây, trong lòng còn có phần chần chừ. Nhưng sau khi thấy bản lĩnh của Giang Vân Gian, đệ tử Thái Dịch, lại thấy trận liệt đạo văn do Tần Mục để lại trên vách núi, cộng thêm cảnh tượng khủng bố bên ngoài Thập Vạn Hắc Sơn và Đạo Thụ của Thái Dịch, nỗi chần chừ trong lòng họ liền tan biến.
 
 Lúc này, họ lại thấy tòa kim điện này, khí Hỗn Độn trong kim điện, càng tràn đầy kính sợ với “lão giả” trong điện.
 
@@ -172,7 +172,7 @@ Hiểu Thiên Tôn dừng bước, quay đầu nhìn Thái Dương cổ thần, 
 
 Thái Dương cổ thần nói: “Ta nhớ ra tòa kim điện của Thái Dịch đã từng gặp ở đâu. Tòa kim điện ấy từng thấy trên Kim Thuyền của Mục Thiên Tôn, chiếc Kim Thuyền đó rất ghê gớm. Huynh muội chúng ta từng ở trên Kim Thuyền, thấy kim điện tương tự.”
 
-Hiểu Thiên Tôn như có điều suy nghĩ, nhìn mười vạn Thánh Sơn, đột nhiên cười một tiếng.
+Hiểu Thiên Tôn như có điều suy nghĩ, nhìn Thập Vạn Thánh Sơn, đột nhiên cười một tiếng.
 
 Thái Dương cổ thần suy tư: “Chắc là sau khi Mục Thiên Tôn trở về, đã dâng kim điện trên Kim Thuyền cho Thái Dịch đạo huynh. Tên này rất biết luồn lọt, thậm chí còn định ra tay với chúng ta, trừ khử chúng ta.”
 

@@ -80,7 +80,7 @@ Khóe mắt Tần Mục giật giật. Đại đạo U Thiên Tôn tinh thông c
 
 "Không thể để U Thiên Tôn đi mạo hiểm."
 
-Sắc trời tổ đình dần tối xuống. Tần Mục định thần lại, đi về phía mười vạn Hắc Sơn, thầm nghĩ: "Nếu ông ấy tới Huyền Đô, e có nguy hiểm tới tính mạng."
+Sắc trời tổ đình dần tối xuống. Tần Mục định thần lại, đi về phía Thập Vạn Hắc Sơn, thầm nghĩ: "Nếu ông ấy tới Huyền Đô, e có nguy hiểm tới tính mạng."
 
 Đột nhiên, phía trước ma trơi lập lòe. Một chiếc thuyền giấy u u hiện ra, lơ lửng trước mặt Tần Mục.
 

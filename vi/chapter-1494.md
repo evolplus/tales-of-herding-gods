@@ -22,7 +22,7 @@ Những tảng đá núi này như dòng lũ, trôi về phía sau lưng quái n
 
 Xung quanh Tần Mục, mặt đất cũng không ngừng nứt ra. Từng mảng đất không ngừng phân giải, trôi về phía con mắt quái dị ấy.
 
-Con mắt kia càng lúc càng khổng lồ, dựng đứng sau lưng quái nhân như ngọn lửa diệt thế. Ánh lửa chiếu sáng mười vạn núi lớn, chiếu đến bóng núi lắc lư bất định.
+Con mắt kia càng lúc càng khổng lồ, dựng đứng sau lưng quái nhân như ngọn lửa diệt thế. Ánh lửa chiếu sáng Thập Vạn Đại Sơn, chiếu đến bóng núi lắc lư bất định.
 
 Nó giống một lò luyện khổng lồ, lại giống một cái miệng khổng lồ, tham lam nuốt chửng mọi thứ của Tổ Đình, nghiền nát vạn vật trong trời đất, nung chảy, hóa thành năng lượng tinh thuần đưa tới vũ trụ hủy diệt phía sau nó, đổi lấy sinh cơ cho quái nhân cao gầy.
 
@@ -114,7 +114,7 @@ Không chỉ vậy, Tần Mục và Lão mù đã liên thủ bố trí vô số
 
 Những đất đá ấy bị kéo vào con mắt quái sau lưng hắn. Lúc này chúng vậy mà bùng nổ trong con mắt quái.
 
-Ngoài mười vạn Hắc Sơn, Lão mù, Tư bà bà và những người khác đang di dời, rời xa thánh địa Hắc Sơn. Lúc này, Lão mù quay đầu. Chỉ thấy trong đêm đen, phương hướng Đại Hắc Sơn có hung khí vô biên phóng lên trời, vô số sát trận vận chuyển trong hung khí, khiến người ta hoa cả mắt.
+Ngoài Thập Vạn Hắc Sơn, Lão mù, Tư bà bà và những người khác đang di dời, rời xa thánh địa Hắc Sơn. Lúc này, Lão mù quay đầu. Chỉ thấy trong đêm đen, phương hướng Đại Hắc Sơn có hung khí vô biên phóng lên trời, vô số sát trận vận chuyển trong hung khí, khiến người ta hoa cả mắt.
 
 Đại đạo trời đất bị những trận pháp kia dẫn dắt, hóa thành sát đạo kiếp trận, uy lực kinh thiên động địa.
 

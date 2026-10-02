@@ -92,13 +92,13 @@ Tần Mục tung người bay lên, lấy quả trứng cổ thần trong Lưu L
 
 Hắn đi ra ngoài, ngẩng đầu nhìn, chỉ thấy trời đã tối.
 
-Tần Mục lấy đèn lồng ra, đang định rời đi, đột nhiên đất rung núi chuyển. Ngoài mười vạn núi đen hiện ra cảnh tượng khủng bố như một vũ trụ sụp đổ hủy diệt!
+Tần Mục lấy đèn lồng ra, đang định rời đi, đột nhiên đất rung núi chuyển. Ngoài Thập Vạn Hắc Sơn hiện ra cảnh tượng khủng bố như một vũ trụ sụp đổ hủy diệt!
 
-Trong mười vạn núi đen, các thần nhân Diên Khang kinh hãi nhìn ra bên ngoài. Giọng Long Kỳ Lân từ xa truyền tới: “Mọi người đừng hoảng, đây chỉ là cảnh tượng vũ trụ niên trước phá diệt, Tổ Đình không có thay đổi gì!”
+Trong Thập Vạn Hắc Sơn, các thần nhân Diên Khang kinh hãi nhìn ra bên ngoài. Giọng Long Kỳ Lân từ xa truyền tới: “Mọi người đừng hoảng, đây chỉ là cảnh tượng vũ trụ niên trước phá diệt, Tổ Đình không có thay đổi gì!”
 
-Tần Mục nghe vậy cũng thở phào, xách đèn lồng đi ra khỏi mười vạn núi đen, rời khỏi phạm vi bảo vệ của Lưu Ly Thanh Thiên Tràng.
+Tần Mục nghe vậy cũng thở phào, xách đèn lồng đi ra khỏi Thập Vạn Hắc Sơn, rời khỏi phạm vi bảo vệ của Lưu Ly Thanh Thiên Tràng.
 
-Ngay khoảnh khắc hắn bước ra khỏi mười vạn núi đen, hắn đột nhiên dựng tóc gáy, trong lòng sinh ra nỗi kinh hãi lớn lao.
+Ngay khoảnh khắc hắn bước ra khỏi Thập Vạn Hắc Sơn, hắn đột nhiên dựng tóc gáy, trong lòng sinh ra nỗi kinh hãi lớn lao.
 
 Hắn nghe thấy đạo của vũ trụ này đang rên xiết, đang đứt gãy, thần của thế giới này đang khóc than!
 

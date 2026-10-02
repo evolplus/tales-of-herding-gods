@@ -1,6 +1,6 @@
 # Chương 1317: Long Hán Khước Tương Tranh
 
-Đầu của Thái Đế như núi lớn. Cảm giác vừa rồi hắn mang lại cho Tần Mục giống hệt Mười vạn Đại Hắc Sơn, đương nhiên đó là thần thức của Thái Đế đang quấy nhiễu ý thức tư duy của hắn, tạo ra ảo giác cho hắn.
+Đầu của Thái Đế như núi lớn. Cảm giác vừa rồi hắn mang lại cho Tần Mục giống hệt Thập Vạn Đại Hắc Sơn, đương nhiên đó là thần thức của Thái Đế đang quấy nhiễu ý thức tư duy của hắn, tạo ra ảo giác cho hắn.
 
 Thái Đế vốn không phải giỏi nhất về ảo cảnh thần thức. Tạo nghệ ảo cảnh thần thức của hắn kém xa Cung Thiên Tôn. Thần thức của hắn dao động, khiến hư không lắc một chút, đó cũng là nguyên nhân Tần Mục có thể nhìn thấu hắn.
 

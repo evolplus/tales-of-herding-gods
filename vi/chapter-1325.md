@@ -82,7 +82,7 @@ Năm đó, Tần Mục còn cảm thấy hơi khó hiểu. Mình chỉ là ngư�
 
 Bây giờ, hắn đã hiểu nguyên do.
 
-Một lát sau, Tần Mục dìu Thúc Quân dậy. Thúc Quân như già đi rất nhiều, uể oải đẩy tay hắn ra, không nhìn hắn, như không còn mặt mũi gặp hắn nữa, xoay người tập tễnh đi ra ngoài mười vạn Hắc Sơn.
+Một lát sau, Tần Mục dìu Thúc Quân dậy. Thúc Quân như già đi rất nhiều, uể oải đẩy tay hắn ra, không nhìn hắn, như không còn mặt mũi gặp hắn nữa, xoay người tập tễnh đi ra ngoài Thập Vạn Hắc Sơn.
 
 Thúc Quân như một lão tướng bị thương, bước đi khập khiễng, dần dần đi xa.
 

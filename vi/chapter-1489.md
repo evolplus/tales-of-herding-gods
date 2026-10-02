@@ -64,13 +64,13 @@ Còn lần này, Thế Giới Thụ trực tiếp nuốt sạch khoáng mạch, 
 
 Dần dần sắc trời đã tối. Tần Mục vừa tham ngộ, nắn đúc Thái Thủy Thiên Cung, vừa bay lên, tới đỉnh cây Thế Giới Thụ mới mọc.
 
-Bên ngoài Mười Vạn Thánh Sơn lại truyền tới chấn động khủng bố, một cảnh tượng tận thế, còn trên đỉnh cây Thế Giới Thụ mới này lại vô cùng bình lặng.
+Bên ngoài Thập Vạn Thánh Sơn lại truyền tới chấn động khủng bố, một cảnh tượng tận thế, còn trên đỉnh cây Thế Giới Thụ mới này lại vô cùng bình lặng.
 
 Bầu trời đột nhiên dần sáng lên, chiếu sáng từng tầng hư không. Mơ hồ, hắn thấy một cây Đạo Thụ đứng sừng sững trong Chung Cực Hư Không.
 
 Cây Đạo Thụ kia mờ mờ ảo ảo, cành lá lờ mờ giống cành lá Thế Giới Thụ.
 
-Nhưng dù là Thế Giới Thụ trong Thần Tàng của Tần Mục hay cây Thế Giới Thụ mới trong Mười Vạn Thánh Sơn, đều vẫn còn non trẻ. Còn cây Đạo Thụ trong Chung Cực Hư Không kia thì xanh tốt um tùm, che phủ cực rộng!
+Nhưng dù là Thế Giới Thụ trong Thần Tàng của Tần Mục hay cây Thế Giới Thụ mới trong Thập Vạn Thánh Sơn, đều vẫn còn non trẻ. Còn cây Đạo Thụ trong Chung Cực Hư Không kia thì xanh tốt um tùm, che phủ cực rộng!
 
 Đó hẳn là Đạo Thụ của Thái Dịch.
 
@@ -88,7 +88,7 @@ Một đêm này bận rộn mà đầy đủ. Đợi đến lúc mặt trời m
 
 Mà Thái Thủy Thiên Cung của hắn lúc này cũng vừa vặn luyện thành.
 
-Tần Mục đi xuống từ Thế Giới Thụ, xách thùng sắt tới trong mười vạn núi lớn, tìm kiếm Hắc Sơn bị chấn nứt đêm qua.
+Tần Mục đi xuống từ Thế Giới Thụ, xách thùng sắt tới trong Thập Vạn Đại Sơn, tìm kiếm Hắc Sơn bị chấn nứt đêm qua.
 
 Người trong núi thấy vậy, khó tránh kinh ngạc: “Thái Dịch hóa thành dáng vẻ Quốc sư đi ra rồi!”
 
@@ -134,7 +134,7 @@ Tần Mục tạm thời bỏ ý định tiếp tục nghiên cứu Thái Dịch
 
 Điều hắn cảm thấy quan trọng hơn là mượn cơ duyên Thế Giới Thụ để mình đi xa hơn trên Đạo Cảnh!
 
-Mấy tháng sau đó, Tần Mục vừa hứng Đạo lộ, vừa tu bổ Hắc Sơn nứt ra, vừa tĩnh tâm ngộ đạo. Mọi người trong Mười Vạn Thánh Sơn lúc đầu còn hơi kinh ngạc, sau đó dần dần quen, mặc hắn bận rộn tới lui.
+Mấy tháng sau đó, Tần Mục vừa hứng Đạo lộ, vừa tu bổ Hắc Sơn nứt ra, vừa tĩnh tâm ngộ đạo. Mọi người trong Thập Vạn Thánh Sơn lúc đầu còn hơi kinh ngạc, sau đó dần dần quen, mặc hắn bận rộn tới lui.
 
 Chỉ thỉnh thoảng Tần Mục mới tỉnh lại từ trạng thái bận rộn ấy, trong lòng có phần thắc mắc: “Thái Dịch phải rời nơi này nửa năm, ông ấy đi làm gì?”
 

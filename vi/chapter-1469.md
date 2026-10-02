@@ -1,6 +1,6 @@
 # Chương 1469: Lai lịch của Phi Hương Điện
 
-Trong Mười Vạn Thánh Sơn náo nhiệt phi phàm. Tần Mục và Lam Ngự Điền tới nơi liền nghe Lão què đang khoe khoang với Lão câm và Lão mù, kể chuyện ông bảy lượt ra vào Thiên Đình, quả thật thần không biết quỷ không hay, như vào chốn không người.
+Trong Thập Vạn Thánh Sơn náo nhiệt phi phàm. Tần Mục và Lam Ngự Điền tới nơi liền nghe Lão què đang khoe khoang với Lão câm và Lão mù, kể chuyện ông bảy lượt ra vào Thiên Đình, quả thật thần không biết quỷ không hay, như vào chốn không người.
 
 Lão mù nghe đến liên tục trợn trắng mắt. Lão câm há miệng cứng lưỡi, không nói nên lời. Những người khác như Hư Sinh Hoa, Giang Vân Gian đều khâm phục không thôi.
 

@@ -1,6 +1,6 @@
 # Chương 1481: Minh Hoàng răn Thái Dịch
 
-Mười Vạn Thánh Sơn, đám người Tư bà bà căng thẳng dõi theo Mã gia và Chiến Không Như Lai. Biến cố ở Tổ Đình Ngọc Kinh Thành đã qua hơn hai mươi ngày, tuy tình trạng của Tần Mục vẫn luôn ổn định, nhưng Mã gia và Chiến Không Như Lai lại có vẻ không mấy lạc quan.
+Thập Vạn Thánh Sơn, đám người Tư bà bà căng thẳng dõi theo Mã gia và Chiến Không Như Lai. Biến cố ở Tổ Đình Ngọc Kinh Thành đã qua hơn hai mươi ngày, tuy tình trạng của Tần Mục vẫn luôn ổn định, nhưng Mã gia và Chiến Không Như Lai lại có vẻ không mấy lạc quan.
 
 Tu dưỡng tâm cảnh của Chiến Không Như Lai tuy cao, nhưng tu vi khá thấp. Thời gian kéo dài như vậy đã khiến vị đại Phật này cực kỳ vất vả.
 
@@ -12,7 +12,7 @@ Tu vi của Mã gia cao hơn, nhưng tu dưỡng tâm cảnh lại kém Chiến 
 
 Đám người Tư bà bà đều nghe mà chẳng hiểu đầu cua tai nheo ra sao. Yên Nhi nói: “Ta đang trò chuyện việc nhà với mẫu thân, dẫn bà ấy đi dạo khắp nơi, ngắm cảnh đẹp thánh địa của chúng ta...”
 
-Mọi người nhíu mày, thầm nghĩ: “Cô nương này còn mù hơn cả Lão mù. Mười Vạn Thánh Sơn tuy có chữ thánh, nhưng chẳng qua là chúng ta tự dát vàng lên mặt mình, nơi này có cảnh đẹp từ bao giờ?”
+Mọi người nhíu mày, thầm nghĩ: “Cô nương này còn mù hơn cả Lão mù. Thập Vạn Thánh Sơn tuy có chữ thánh, nhưng chẳng qua là chúng ta tự dát vàng lên mặt mình, nơi này có cảnh đẹp từ bao giờ?”
 
 Yên Nhi vẫn nói tiếp: “... Tới chủ điện ở trung tâm Thánh Sơn thì thấy chủ điện bị hai chiếc lá lớn nâng lên, nền móng cũng nứt toác tứ tung! Hai chiếc lá kia lớn lắm, nâng thánh điện của công tử ở giữa hai lá, trông đáng thương một cách lạ lùng...”
 
@@ -28,7 +28,7 @@ Vậy mà hiện giờ, ngọn núi trung tâm này lại mọc ra hai chiếc l
 
 Lúc này bên cạnh hai chiếc lá đã tụ tập rất nhiều người. Hư Sinh Hoa, Lam Ngự Điền, Minh Hoàng và những người khác đang bay qua bay lại quanh cuống lá, xem loài thực vật này chui ra từ đâu.
 
-Đại điện được hai chiếc lá nâng ở giữa chính là thánh điện của Mười Vạn Thánh Sơn, nơi Tần Mục cư trú. Trước kia Thái Dịch cũng từng tiếp kiến Thiên Công và Thổ Bá trong tòa đại điện này.
+Đại điện được hai chiếc lá nâng ở giữa chính là thánh điện của Thập Vạn Thánh Sơn, nơi Tần Mục cư trú. Trước kia Thái Dịch cũng từng tiếp kiến Thiên Công và Thổ Bá trong tòa đại điện này.
 
 Quy mô đại điện không nhỏ, nhưng so với hai chiếc lá kia thì nhỏ hơn rất nhiều, chẳng trách Yên Nhi nói trông nó đáng thương một cách lạ lùng.
 

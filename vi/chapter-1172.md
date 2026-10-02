@@ -64,7 +64,7 @@ Nàng không nhìn ra ông lão ấy biến mất bằng cách nào.
 
 Thế nhưng ngọn núi ấy không nứt ra. Trận giày vò này mãi đến nửa đêm về sáng mới dần yên.
 
-Khi trời hửng sáng, Long Kỳ Lân nhìn quanh bốn phía, chỉ thấy trong mười vạn núi lớn lại có hai ngọn núi nứt ra, trong đó trên vách trong của một ngọn núi thậm chí còn hiện ra vết lõm hình khuôn mặt!
+Khi trời hửng sáng, Long Kỳ Lân nhìn quanh bốn phía, chỉ thấy trong Thập Vạn Đại Sơn lại có hai ngọn núi nứt ra, trong đó trên vách trong của một ngọn núi thậm chí còn hiện ra vết lõm hình khuôn mặt!
 
 Hắn và Yên Nhi đang bàn xem có phải có người mọc trong thân núi hay không thì thấy một thiếu phụ xinh đẹp xách thùng sắt nhỏ đi tới, vẫy tay với họ: “Lại gặp mặt rồi.”
 

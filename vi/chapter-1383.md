@@ -90,7 +90,7 @@ Không chỉ vậy, hắn còn cảm thấy sự lý giải của mình về Đ�
 
 "Tứ đại Thiên Môn rốt cuộc là hình thành tự nhiên, hay là di tích của kỷ nguyên trước?"
 
-Tần Mục suy tư một lát rồi lắc đầu, trở về mười vạn Hắc Sơn của Tổ Đình. Hắn vừa đến mười vạn Hắc Sơn, đã có sứ giả tiến đến, dâng thiệp mời, khom người nói: "Mục Thiên Tôn, Thập Thiên Tôn liên danh, mời minh chủ Thiên Minh Mục Thiên Tôn đến Thiên Minh Điện của Thiên Đình, chủ trì hội nghị Thiên Minh!"
+Tần Mục suy tư một lát rồi lắc đầu, trở về Thập Vạn Hắc Sơn của Tổ Đình. Hắn vừa đến Thập Vạn Hắc Sơn, đã có sứ giả tiến đến, dâng thiệp mời, khom người nói: "Mục Thiên Tôn, Thập Thiên Tôn liên danh, mời minh chủ Thiên Minh Mục Thiên Tôn đến Thiên Minh Điện của Thiên Đình, chủ trì hội nghị Thiên Minh!"
 
 Tần Mục mở thiệp mời ra, quả nhiên thấy chữ ký của mười vị Thiên Tôn, có điều Hiểu Thiên Tôn hẳn là do đệ tử ký thay.
 

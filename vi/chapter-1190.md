@@ -64,7 +64,7 @@ Hiện giờ tuy hắn đã phá giải phù văn đại đạo Thái Thủy, nh
 
 Tần Mục đột nhiên động ngón trỏ, bưng vỏ trứng lớn lên, cẩn thận nếm một ngụm: “Thơm thật! Khó trách vị cổ thần này không muốn chui ra khỏi vỏ trứng! Hỏng rồi, ngụm này hơi nhiều, hình như luyện hóa không nổi...”
 
-Ngày hôm sau, trời tờ mờ sáng. Bên ngoài mười vạn núi đen, tất cả sóng yên gió lặng. Đại khủng bố hủy thiên diệt địa tối qua biến mất, Tổ Đình vẫn như thường, không có bất cứ thay đổi nào.
+Ngày hôm sau, trời tờ mờ sáng. Bên ngoài Thập Vạn Hắc Sơn, tất cả sóng yên gió lặng. Đại khủng bố hủy thiên diệt địa tối qua biến mất, Tổ Đình vẫn như thường, không có bất cứ thay đổi nào.
 
 Tần Mục ôm bụng, mày nhíu chặt. Tối qua hắn uống một ngụm dịch trứng, lúc này trong bụng nặng trĩu, càng lúc càng khó chịu.
 
@@ -102,7 +102,7 @@ Nữ tử kia tiếp tục nói: “Thái Tố xuất thế trong khoáng mạch
 
 Tần Mục khom người cảm tạ. Nữ tử kia cười nói: “Ta cũng vì suy tính cho tương lai nên mới chỉ điểm ngươi. Hơn nữa ta cũng chiếm tiện nghi của ngươi. Dù ta không nói, ngươi cũng sẽ nhanh chóng biết tác dụng của Thái Tố thần thạch.” Nói rồi, nàng xách thùng nước đi tới ngọn núi đen bị nứt kia.
 
-Long Kỳ Lân và Yên Nhi đã tới nơi đó. Thấy Tần Mục vẫn còn trong mười vạn núi đen, Long Kỳ Lân vội chạy tới. Tần Mục dặn dò: “Cảnh cáo tất cả mọi người, ban đêm tuyệt đối không được ra ngoài, nếu không chắc chắn phải chết! Nhớ kỹ, nhớ kỹ!”
+Long Kỳ Lân và Yên Nhi đã tới nơi đó. Thấy Tần Mục vẫn còn trong Thập Vạn Hắc Sơn, Long Kỳ Lân vội chạy tới. Tần Mục dặn dò: “Cảnh cáo tất cả mọi người, ban đêm tuyệt đối không được ra ngoài, nếu không chắc chắn phải chết! Nhớ kỹ, nhớ kỹ!”
 
 Long Kỳ Lân giật mình, thất thanh nói: “Giáo chủ, ngài ra ngoài ban đêm?”
 

@@ -88,9 +88,9 @@ Sau khi trộm vỏ trứng, trái tim hắn đập thình thịch, tới tận 
 
 Tần Mục kìm xuống, cố nhịn xúc động nuốt mất nguyên dịch, đi về phía Đại Hắc Mộc.
 
-Tới Đại Hắc Mộc, mười vạn Hắc Sơn, hắn hiện thân, chỉ thấy Hư Sinh Hoa, Lam Ngự Điền và Ngụy Tùy Phong từ mặt sau Tổ Đình trở về. Đại Hắc Sơn náo nhiệt, thế giới Hồ Thiên treo trên Đại Hắc Mộc như một chiếc bình báu, tỏa ánh sáng tĩnh mịch.
+Tới Đại Hắc Mộc, Thập Vạn Hắc Sơn, hắn hiện thân, chỉ thấy Hư Sinh Hoa, Lam Ngự Điền và Ngụy Tùy Phong từ mặt sau Tổ Đình trở về. Đại Hắc Sơn náo nhiệt, thế giới Hồ Thiên treo trên Đại Hắc Mộc như một chiếc bình báu, tỏa ánh sáng tĩnh mịch.
 
-Mười vạn Hắc Sơn đã xây dựng nhiều thần thành. Có dân chúng khai khẩn ruộng đất, trồng hoa màu, còn có một số thần thông giả và thần chỉ thu phục cự thú trong Tổ Đình, để cự thú trấn giữ thần thành.
+Thập Vạn Hắc Sơn đã xây dựng nhiều thần thành. Có dân chúng khai khẩn ruộng đất, trồng hoa màu, còn có một số thần thông giả và thần chỉ thu phục cự thú trong Tổ Đình, để cự thú trấn giữ thần thành.
 
 Đô Thiên Ma Vương thì chạy tới chạy lui giữa từng thành thị, rất bận rộn.
 

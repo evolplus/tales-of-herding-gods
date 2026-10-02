@@ -64,7 +64,7 @@ Tần Mục cười vang, nói: “Đợi họ dỡ xong hàng hóa, ta sẽ cù
 
 Linh Dục Tú khẽ gật đầu.
 
-Tổ Đình, mười vạn Đại Hắc Sơn.
+Tổ Đình, Thập Vạn Đại Hắc Sơn.
 
 Trong cung điện, Long Kỳ Lân run lẩy bẩy, Yên Nhi cũng run lẩy bẩy, ở giữa, tiểu Thổ Bá run rẩy co ro. Cả ba kinh hoàng nhìn ra bên ngoài.
 
@@ -92,7 +92,7 @@ Long Kỳ Lân vốn đã nhát gan, sợ nhất những thứ này, càng bị 
 
 Cũng may những cây nấm ấy nhanh chóng héo tàn. Đến ban ngày, mặt trời mọc lên, nấm liền biến thành từng vũng vật đen như bông vụn.
 
-Hiện giờ, khắp mười vạn dãy núi Hắc Mộc đều truyền đến tiếng xương cốt sụp đổ, đó là âm thanh do xương Hư Không Thú mục nát rồi đổ sụp tạo thành.
+Hiện giờ, khắp Thập Vạn Đại Sơn của Hắc Mộc đều truyền đến tiếng xương cốt sụp đổ, đó là âm thanh do xương Hư Không Thú mục nát rồi đổ sụp tạo thành.
 
 Long Kỳ Lân và Yên Nhi vốn tưởng có thể yên ổn vài ngày, nhưng ngay trong đêm ấy, chuyện lạ lại xảy ra.
 

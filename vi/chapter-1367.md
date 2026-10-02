@@ -24,7 +24,7 @@ Không lâu sau, bà được dẫn đi gặp Cung Thiên Tôn. Tư bà bà nói
 
 Cung Thiên Tôn lập tức đứng dậy, nói: "Tiện nhân cũng muốn lật trời? Dẫn ta đi."
 
-Đến khi hai người trở về mười vạn Hắc Sơn Tổ Đình, Long Kỳ Lân và mọi người đã chuẩn bị xong tế đàn. Cung Thiên Tôn bước lên tế đàn, lại thấy Ngụy Tùy Phong, U Minh thái tử và mọi người cũng lần lượt đứng trên đó.
+Đến khi hai người trở về Thập Vạn Hắc Sơn Tổ Đình, Long Kỳ Lân và mọi người đã chuẩn bị xong tế đàn. Cung Thiên Tôn bước lên tế đàn, lại thấy Ngụy Tùy Phong, U Minh thái tử và mọi người cũng lần lượt đứng trên đó.
 
 Cung Thiên Tôn lắc đầu nói: "Trận chiến cấp Thiên Tôn, các ngươi chen tay vào được sao? Một mình ta đi là đủ, nhiều người ngược lại ta còn phải chăm sóc các ngươi."
 

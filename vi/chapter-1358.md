@@ -92,13 +92,13 @@ Thái Dịch lắc đầu nói: “Ta không phải vì ngươi mà gặp họ, 
 
 Tần Mục vâng dạ: “Đạo huynh cứ dùng.”
 
-Hắn đi tới ngoài mười vạn Hắc Sơn, thi triển thần thông. Một tòa Thiên Địa Huyền Môn nhô lên khỏi mặt đất. Qua một lúc, cánh cửa Thiên Địa Huyền Môn được đẩy mở từ bên trong ra ngoài, nguyên thần Thổ Bá từ trong cửa bước ra, hành lễ với Tần Mục.
+Hắn đi tới ngoài Thập Vạn Hắc Sơn, thi triển thần thông. Một tòa Thiên Địa Huyền Môn nhô lên khỏi mặt đất. Qua một lúc, cánh cửa Thiên Địa Huyền Môn được đẩy mở từ bên trong ra ngoài, nguyên thần Thổ Bá từ trong cửa bước ra, hành lễ với Tần Mục.
 
 Tần Mục khom người đáp lễ.
 
 Tiếp đó, nguyên thần Thiên Công từ trong cửa bước ra, cũng hành lễ với Tần Mục. Tần Mục đáp lễ: “Thái Dịch đạo huynh đã chờ hai vị.”
 
-Thiên Công, Thổ Bá nhìn nhau, giữ lễ đệ tử, cung cung kính kính đi vào mười vạn Hắc Sơn, theo Tần Mục đi về trung tâm Đại Hắc Mộc.
+Thiên Công, Thổ Bá nhìn nhau, giữ lễ đệ tử, cung cung kính kính đi vào Thập Vạn Hắc Sơn, theo Tần Mục đi về trung tâm Đại Hắc Mộc.
 
 Đột nhiên, dường như có một tiếng chuông khai thiên tích địa truyền tới. Tần Mục, Thiên Công và Thổ Bá ngẩng đầu nhìn, tâm thần chấn động mạnh. Chỉ thấy một gốc đại thụ cổ xưa vô cùng, cành lá xanh um, lơ lửng giữa vũ trụ. Dưới cây, đại điện vàng son rực rỡ, thần hà vạn đạo, đạo quang như suối phun trào, nâng tòa đại điện ấy lên.
 

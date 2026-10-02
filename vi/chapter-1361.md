@@ -54,9 +54,9 @@ Nếu đổi thành đạo pháp thần thông khác, dù là Thiên Tôn thi tr
 
 "Mục Thiên Tôn, chuyện đã hứa với ngươi, chúng ta đã làm xong. Nơi này của ngươi hung hiểm vô cùng, không nên ở lâu, chúng ta cũng nên ai về chỗ nấy."
 
-Thiên Công và Thổ Bá lần lượt cáo từ. Tần Mục tiễn bọn họ ra khỏi mười vạn Hắc Sơn, hai vị thần thánh lúc này mới mỗi người độn đi một ngả.
+Thiên Công và Thổ Bá lần lượt cáo từ. Tần Mục tiễn bọn họ ra khỏi Thập Vạn Hắc Sơn, hai vị thần thánh lúc này mới mỗi người độn đi một ngả.
 
-Ở trong mười vạn Hắc Sơn, bọn họ không thể trực tiếp rời đi, phải ra khỏi mười vạn Hắc Sơn mới có thể quay về thế giới của mình.
+Ở trong Thập Vạn Hắc Sơn, bọn họ không thể trực tiếp rời đi, phải ra khỏi Thập Vạn Hắc Sơn mới có thể quay về thế giới của mình.
 
 Trước khi đi, Thổ Bá nói lời thấm thía: "Vùng Hắc Sơn này là đất chẳng lành, không nên an cư ở đây. Thời Thái Cổ, nơi này đã xảy ra vô số chuyện quỷ dị. Hơn nữa đây cũng là một trong số ít nơi chúng ta không thể trực tiếp giáng lâm, cũng không thể trực tiếp rời đi. Quân tử không đứng dưới tường sắp đổ, mong Mục Thiên Tôn suy nghĩ kỹ."
 

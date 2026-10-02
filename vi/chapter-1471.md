@@ -20,13 +20,13 @@ Lão què không ngừng lùi lại, nhắc hắn một câu rồi quát: "Chu�
 
 "Đi!"
 
-Ông quát vang, ba bóng người trong chớp mắt vụt ra. Tốc độ của họ điên cuồng tăng lên, nhưng lại không lao thẳng tới Phi Hương Điện mà chạy về trung tâm Mười Vạn Hắc Sơn.
+Ông quát vang, ba bóng người trong chớp mắt vụt ra. Tốc độ của họ điên cuồng tăng lên, nhưng lại không lao thẳng tới Phi Hương Điện mà chạy về trung tâm Thập Vạn Hắc Sơn.
 
 Chỉ trong một tích tắc, tiếng nổ âm vang đùng đùng truyền đến. Tốc độ của ba người tăng tới cực hạn mà thân thể có thể chịu đựng, ngay sau đó chân vừa bước ra đã hóa thành ba vệt quang ảnh. Ba người trong quang ảnh như phớt lờ không gian, thân hình tựa lưu quang!
 
-Dẫu vậy, tốc độ của họ vẫn còn tiếp tục tăng. Pháp lực Tần Mục hùng hồn, thực lực mạnh nhất, nhưng nếu so về tốc độ, hắn vẫn chậm hơn Lão què và Lam Ngự Điền một chút. Đợi đến khi ba người chạy tới trung tâm Mười Vạn Hắc Sơn, tốc độ của họ đã đạt tới cực hạn!
+Dẫu vậy, tốc độ của họ vẫn còn tiếp tục tăng. Pháp lực Tần Mục hùng hồn, thực lực mạnh nhất, nhưng nếu so về tốc độ, hắn vẫn chậm hơn Lão què và Lam Ngự Điền một chút. Đợi đến khi ba người chạy tới trung tâm Thập Vạn Hắc Sơn, tốc độ của họ đã đạt tới cực hạn!
 
-Ba vệt quang ảnh gần như hiện ra rồi biến mất liên tục trong Mười Vạn Hắc Sơn bằng tư thế nhảy vọt, khoảng cách với mọi người càng lúc càng gần!
+Ba vệt quang ảnh gần như hiện ra rồi biến mất liên tục trong Thập Vạn Hắc Sơn bằng tư thế nhảy vọt, khoảng cách với mọi người càng lúc càng gần!
 
 Sau khi tốc độ tăng tới cực hạn, trong mắt mọi người lập tức hiện ra một cảnh tượng kỳ lạ.
 

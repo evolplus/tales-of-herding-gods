@@ -184,6 +184,6 @@ Thuyền dài cắm xuống mặt đất ngoài thành. Hai người trên thuy�
 
 “Tuyệt đối không phải!”
 
-Ngụy Tùy Phong sắc mặt nghiêm trọng, lắc đầu. Hắn nhổ cây gậy chống của Thái Dịch lên, thu chiếc đỉnh lớn lại, trầm giọng nói: “Chúng ta lập tức về Mười Vạn Thánh Sơn, đi gặp sư đệ!”
+Ngụy Tùy Phong sắc mặt nghiêm trọng, lắc đầu. Hắn nhổ cây gậy chống của Thái Dịch lên, thu chiếc đỉnh lớn lại, trầm giọng nói: “Chúng ta lập tức về Thập Vạn Thánh Sơn, đi gặp sư đệ!”
 
 [Xem chương tiếp theo](chapter-1492.md)

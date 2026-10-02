@@ -62,7 +62,7 @@ Trên thuyền nhanh, sắc mặt Tần Mục nghiêm lại. Hắn quan sát b�
 
 Lại qua mấy ngày, thuyền nhanh cuối cùng cũng tới Đại Hắc Mộc.
 
-Mọi người trên thuyền nhìn mười vạn Đại Hắc Sơn kia, không khỏi ngẩn ngơ. Nơi này quá lớn, quá rộng, còn rộng lớn mênh mông hơn cả Đại Khư năm xưa!
+Mọi người trên thuyền nhìn Thập Vạn Đại Hắc Sơn kia, không khỏi ngẩn ngơ. Nơi này quá lớn, quá rộng, còn rộng lớn mênh mông hơn cả Đại Khư năm xưa!
 
 Muốn khai thác thần khoáng ở đây, không biết phải khai thác tới bao giờ.
 
@@ -70,7 +70,7 @@ Muốn khai thác thần khoáng ở đây, không biết phải khai thác tớ
 
 Thủ bút như vậy thật sự kinh người!
 
-Chỉ riêng Thúc Quân Thần Vương nhìn thấy mười vạn Đại Hắc Sơn này là sắc mặt kịch biến, muốn nói lại thôi.
+Chỉ riêng Thúc Quân Thần Vương nhìn thấy Thập Vạn Đại Hắc Sơn này là sắc mặt kịch biến, muốn nói lại thôi.
 
 Thuyền nhanh chạy vào hai mươi tám tầng chư thiên, Lão câm vội bảo Tần Mục dừng thuyền.
 

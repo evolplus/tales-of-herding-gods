@@ -98,7 +98,7 @@ Hắn thở dài một hơi, chưa từng có lúc nào nhẹ nhõm như bây gi
 
 Nụ cười trên mặt hắn càng lúc càng đậm, thấp giọng nói: “Trước kia ta yếu nhỏ, mặc ngươi nắm bóp, còn hiện tại ta đã trưởng thành tới mức có thể đối chọi ngang hàng với ngươi. Ngươi muốn nắm bóp ta, đáng tiếc ngươi đã không nắm nổi nữa, cẩn thận mình đầu rơi máu chảy.”
 
-Thái Dương cổ thần chờ ngoài mười vạn Thánh Sơn. Qua không lâu, Hiểu Thiên Tôn đi ra khỏi Thánh Sơn. Thái Dương cổ thần vội nghênh lên, thấp giọng nói: “Đạo huynh, nói chuyện với Mục Thiên Tôn thế nào?”
+Thái Dương cổ thần chờ ngoài Thập Vạn Thánh Sơn. Qua không lâu, Hiểu Thiên Tôn đi ra khỏi Thánh Sơn. Thái Dương cổ thần vội nghênh lên, thấp giọng nói: “Đạo huynh, nói chuyện với Mục Thiên Tôn thế nào?”
 
 “Rất thuận lợi.”
 
@@ -154,7 +154,7 @@ Mọi người thấy hắn lẩm bẩm với chiếc thuyền này, nói mãi k
 
 Tư bà bà rất đau lòng: “Nên để con tìm một người bầu bạn…”
 
-Tần Mục đưa mọi người ra khỏi Kim Thuyền, cưỡi Kim Thuyền rời khỏi mười vạn Thánh Sơn, thầm nghĩ: “Dấu ấn của chủ nhân Di La Cung thật sự mạnh tới mức có thể khiến cả những nhân vật cảnh giới Đế Tọa như Ngụy Tùy Phong, U Minh Thái Tử cũng phán đoán sai sao? Ừm, nhãn lực của họ kém xa ta, phần lớn không phân biệt được khác biệt giữa dấu ấn và chân thật…”
+Tần Mục đưa mọi người ra khỏi Kim Thuyền, cưỡi Kim Thuyền rời khỏi Thập Vạn Thánh Sơn, thầm nghĩ: “Dấu ấn của chủ nhân Di La Cung thật sự mạnh tới mức có thể khiến cả những nhân vật cảnh giới Đế Tọa như Ngụy Tùy Phong, U Minh Thái Tử cũng phán đoán sai sao? Ừm, nhãn lực của họ kém xa ta, phần lớn không phân biệt được khác biệt giữa dấu ấn và chân thật…”
 
 Độ Thế Kim Thuyền rời khỏi Thánh Sơn. Đột nhiên Tần Mục vô tình liếc thấy trong một tòa kim điện có một bóng người lóe qua, tim không khỏi nảy lên.
 

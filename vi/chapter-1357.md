@@ -74,7 +74,7 @@ Tần Mục nhíu mày. Cương vực Tổ Đình vô cùng rộng lớn, muốn
 
 “Nên về một chuyến, mời Thúc Quân tới. Hắn hơn phân nửa biết phương vị Tứ đại Thiên Môn của Tổ Đình. Nếu không cứ tìm như vậy, chẳng biết tới khi nào mới tìm được.”
 
-Hắn treo đèn lồng của Nguyệt Thiên Tôn lên. Không bao lâu, lâu thuyền đi tới mười vạn Hắc Sơn.
+Hắn treo đèn lồng của Nguyệt Thiên Tôn lên. Không bao lâu, lâu thuyền đi tới Thập Vạn Hắc Sơn.
 
 Long Kỳ Lân và Yên Nhi vội nghênh đón. Đột nhiên Long Kỳ Lân nhìn thấy thiếu niên Văn Nguyên, không khỏi ngẩn ra, bỏ Tần Mục mà chạy thẳng về phía thiếu niên Văn Nguyên.
 
@@ -98,7 +98,7 @@ Tần Mục hơi sững ra, quan sát hắn kỹ hai lượt, đầu lông mày 
 
 Long Kỳ Lân mặt mày đưa đám: “Cũng mất tích cùng Hư Sinh Hoa, Lam Ngự Điền và mọi người rồi.”
 
-Tần Mục định thần, nhìn vào bên trong mười vạn Hắc Sơn, chỉ thấy nơi này vẫn còn không ít thần nhân, người thì khai mỏ, người thì luyện bảo, nhưng mấy nhân vật trụ cột của Tổ Đình đều không thấy đâu!
+Tần Mục định thần, nhìn vào bên trong Thập Vạn Hắc Sơn, chỉ thấy nơi này vẫn còn không ít thần nhân, người thì khai mỏ, người thì luyện bảo, nhưng mấy nhân vật trụ cột của Tổ Đình đều không thấy đâu!
 
 “Mất tích thế nào?”
 

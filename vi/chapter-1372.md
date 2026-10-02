@@ -100,6 +100,6 @@ Cung Thiên Tôn im lặng, nhìn theo hắn đi xa, không ngăn cản.
 
 “Thật không nên sinh ra ngươi.” Bà phất tay áo, đồng dạng thi triển nghịch hướng triệu hoán thần thông, rời khỏi mặt sau Tổ Đình.
 
-Bà trở về mười vạn Hắc Sơn, chỉ thấy cát trong đồng hồ cát vẫn chưa chảy hết. Cung Thiên Tôn thu đồng hồ cát lại, dưới ánh mắt của Lam Ngự Điền, Hư Sinh Hoa và những người khác, phiêu nhiên rời đi.
+Bà trở về Thập Vạn Hắc Sơn, chỉ thấy cát trong đồng hồ cát vẫn chưa chảy hết. Cung Thiên Tôn thu đồng hồ cát lại, dưới ánh mắt của Lam Ngự Điền, Hư Sinh Hoa và những người khác, phiêu nhiên rời đi.
 
 [Xem chương tiếp theo](chapter-1373.md)

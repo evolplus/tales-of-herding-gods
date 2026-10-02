@@ -4,7 +4,7 @@
 
 Các thần thông giả thúc giục tạo hóa thần thông, khiến hạt giống nhanh chóng sinh trưởng.
 
-Mười vạn Hắc Sơn, cho dù trồng đầy hoa màu cũng không thể chống đỡ dân cư mấy trăm triệu. Mảnh Đại Hắc Mộc này có thể nuôi được mười triệu người đã là chạm đỉnh.
+Thập Vạn Hắc Sơn, cho dù trồng đầy hoa màu cũng không thể chống đỡ dân cư mấy trăm triệu. Mảnh Đại Hắc Mộc này có thể nuôi được mười triệu người đã là chạm đỉnh.
 
 Hơn nữa ngoài lương thực ra, còn cần chăn nuôi gia súc.
 

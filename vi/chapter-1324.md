@@ -96,13 +96,13 @@ Thái Đế cười lạnh: “Hiện giờ ngươi căn bản không nên ở l
 
 Tần Mục suốt dọc đường thong dong như dạo sân vắng, thưởng thức cảnh đẹp Tổ Đình. Tổ Đình ngày nay tốt hơn lúc hắn lần đầu tới nơi này quá nhiều, khắp nơi đều là thánh địa, chim hót hoa thơm, cự thú thong dong, khiến người ta vui mắt vui lòng.
 
-Bất giác, hắn cuối cùng cũng tới trước mười vạn Hắc Sơn, chỉ thấy một chiếc đại ấn dựng ở phía trước.
+Bất giác, hắn cuối cùng cũng tới trước Thập Vạn Hắc Sơn, chỉ thấy một chiếc đại ấn dựng ở phía trước.
 
 Tần Mục bước lên, cười nói: “Đại ca đợi lâu rồi.”
 
 Thái Đế hừ lạnh: “Gọi ta là Thái Đế.”
 
-Tần Mục khẽ mỉm cười, cõng hắn lên, đi vào mười vạn Hắc Sơn.
+Tần Mục khẽ mỉm cười, cõng hắn lên, đi vào Thập Vạn Hắc Sơn.
 
 Phía trước, một thiếu niên đầu to bước nhanh tới, từ xa đã cười nói: “Mục Thiên Tôn, sao ngươi đi lâu vậy? Có một chuyện e rằng ngươi còn chưa biết. Tên tiểu tử khốn kiếp Thái Đế kia đánh nhau với bốn Thiên Tôn, bị đánh thảm lắm... phân thây, tay chân từ trên trời rơi xuống, thật hả lòng hả dạ... Ngươi cõng thứ gì đó?”
 

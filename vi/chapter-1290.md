@@ -22,7 +22,7 @@ Thiếu niên Thái Dịch bất đắc dĩ, gật đầu.
 
 Tần Mục hứng thú bừng bừng nói: “Vậy lúc ăn tết, có phải huynh bị chúng ta đưa lên bàn ăn không?”
 
-Thiếu niên Thái Dịch càng bất đắc dĩ hơn, lại gật đầu: “Là Lão mù ra tay, nói ta trông béo nhất, các ngươi đều ăn rất vui vẻ... Không nói chuyện này nữa. Ngươi tuyệt đối sẽ không rời khỏi mười vạn Hắc Sơn. Nếu ngươi không rời đi, vậy ngươi sẽ làm gì?”
+Thiếu niên Thái Dịch càng bất đắc dĩ hơn, lại gật đầu: “Là Lão mù ra tay, nói ta trông béo nhất, các ngươi đều ăn rất vui vẻ... Không nói chuyện này nữa. Ngươi tuyệt đối sẽ không rời khỏi Thập Vạn Hắc Sơn. Nếu ngươi không rời đi, vậy ngươi sẽ làm gì?”
 
 Hai mắt Tần Mục phát sáng, đột nhiên vỗ tay cười nói: “Đương nhiên là tiếp tục đào khoáng! Nơi này khắp nơi đều là vàng. Đào khoáng mạch của đám nhân vật tiền kỷ nguyên kia ra, tất cả đều là tài phú, đủ để lớn mạnh Diên Khang!”
 
@@ -60,7 +60,7 @@ Vì Hư Không Thú bị Long Kỳ Lân khống chế, Tổ Đình hiện nay đ
 
 Trứng Thái Thủy như trút được gánh nặng, thật sự chịu không nổi sự chăm sóc ân cần của Yên Nhi, vội vàng đi theo Tần Mục. Yên Nhi còn hơi tiếc nuối.
 
-Long Kỳ Lân vội vàng chạy theo, nói: “Giáo chủ, những ngày này ta điều khiển diễn luyện Hư Không Thú, lấy được rất nhiều bảo vật, đều cất trong bảo khố mười vạn Thánh Sơn của chúng ta. Giáo chủ có thời gian thì tới xem qua một chút.”
+Long Kỳ Lân vội vàng chạy theo, nói: “Giáo chủ, những ngày này ta điều khiển diễn luyện Hư Không Thú, lấy được rất nhiều bảo vật, đều cất trong bảo khố Thập Vạn Thánh Sơn của chúng ta. Giáo chủ có thời gian thì tới xem qua một chút.”
 
 Hắn lộ vẻ chờ mong.
 

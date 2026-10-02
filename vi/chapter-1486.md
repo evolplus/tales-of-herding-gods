@@ -66,7 +66,7 @@ Những người khác cũng bị dọa đến sắc mặt trắng bệch, khôn
 
 Tần Mục tiếp tục vung cây rìu lớn không ngừng chém xuống. Chỉ nghe rắc một tiếng vang lớn, cây non Thế Giới Thụ này bị hắn chém ngang thân!
 
-Thân cây khổng lồ đổ xuống từ trong mây, qua rất lâu mới đập vào Mười Vạn Thánh Sơn, gây động tĩnh có thể nói là trời long đất lở!
+Thân cây khổng lồ đổ xuống từ trong mây, qua rất lâu mới đập vào Thập Vạn Thánh Sơn, gây động tĩnh có thể nói là trời long đất lở!
 
 May mà con dân Diên Khang di dời tới Tổ Đình đều sống ở vòng ngoài Thánh Sơn, không bị Thế Giới Thụ đổ xuống đè trúng. Nhưng cuồng phong do cây non Thế Giới Thụ đổ xuống cuốn lên vẫn thổi tới khu định cư của họ, gió dữ gào thét suốt một ngày một đêm mới dừng lại.
 
@@ -132,7 +132,7 @@ Tần Mục rụt cổ, lại lẩm bẩm: “Ta đâu phải cố ý, hơn nữ
 
 Hắn ngồi ở đây như ngồi trên đống kim, cứ ngồi mãi tới khi trời dần sáng, cảnh tượng khủng bố bên ngoài Đại Hắc Mộc biến mất.
 
-Lúc này, dưới lòng đất Mười Vạn Thánh Sơn lại truyền tới chấn động quen thuộc, ầm ầm ầm, giống như có vô số ma quái dưới đất vươn vai lúc trời sáng!
+Lúc này, dưới lòng đất Thập Vạn Thánh Sơn lại truyền tới chấn động quen thuộc, ầm ầm ầm, giống như có vô số ma quái dưới đất vươn vai lúc trời sáng!
 
 Trong lòng Tần Mục khẽ động. Đột nhiên gốc cây dưới mông hắn nổ bụp bụp, hai chiếc lá khổng lồ xanh non vù một tiếng nâng hắn lên, thoáng cái đưa hắn lên không trung!
 
