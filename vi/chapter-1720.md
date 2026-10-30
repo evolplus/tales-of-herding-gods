@@ -36,7 +36,7 @@ Hạo Thiên Đế hạ chỉ: “Thái Cực Thiên Tôn dụng binh như thầ
 
 Đế hậu nương nương không nhịn được nói: “Sao bệ hạ không phái Vũ Lâm quân, Thần Uy quân và Long Võ quân? Mấy đạo quân này sánh ngang Thiên Tôn, điều động bọn họ chính là thời cơ tốt nhất để đối phó Diên Khang!”
 
-Hạo Thiên Đế liếc nàng một cái, cười nói: “Tả Hữu Vũ Lâm, Tả Hữu Thần Uy, Tả Hữu Long Võ là cấm vệ của Thiên Đế, há có đạo lý dốc hết lên cùng một lúc?”
+Hạo Thiên Đế liếc ả một cái, cười nói: “Tả Hữu Vũ Lâm, Tả Hữu Thần Uy, Tả Hữu Long Võ là cấm vệ của Thiên Đế, há có đạo lý dốc hết lên cùng một lúc?”
 
 Trong lòng Đế hậu nương nương lạnh đi, vẫn chưa chịu bỏ cuộc: “Bệ hạ, chúng ta là thần chỉ đã thành đạo. Thần chỉ thành đạo duy trì lợi ích Thiên Đình thì nên sinh tử chém giết, há có đạo lý để những thần chỉ nho nhỏ như Vũ Lâm, Thần Uy, Long Võ bảo vệ chúng ta?”
 
@@ -52,7 +52,7 @@ Hạo Thiên Đế lắc đầu nói: “Mẫu hậu, Mục Thiên Tôn ngồi �
 
 Đế hậu nương nương nổi giận, xoay người rời đi.
 
-Thái Sơ đi theo nàng ra ngoài, khẽ nói: “Trạng thái của Thiên Đế có chút không đúng, mất nhuệ khí, không còn gan mật. Trận chiến giữa hắn và Vân Thiên Tôn đã bị Vân Thiên Tôn hủy phân thân Nhị công tử, kéo theo đạo thân Quy Khư của hắn cũng bị hủy. Chỉ sợ hắn đã rơi khỏi cảnh giới thành đạo giả, vì vậy được mất đều lo, không dám tiến thủ. Hắn như thế rất bất lợi cho Thiên Đình. Tuy nói Thiên Đình tuyệt đối không thể bại, nhưng dù chiến thắng Diên Khang, cũng sẽ nguyên khí tổn hao nặng, thậm chí chưa biết chừng ngay cả chúng ta cũng có nguy cơ vẫn lạc.”
+Thái Sơ đi theo ả ra ngoài, khẽ nói: “Trạng thái của Thiên Đế có chút không đúng, mất nhuệ khí, không còn gan mật. Trận chiến giữa hắn và Vân Thiên Tôn đã bị Vân Thiên Tôn hủy phân thân Nhị công tử, kéo theo đạo thân Quy Khư của hắn cũng bị hủy. Chỉ sợ hắn đã rơi khỏi cảnh giới thành đạo giả, vì vậy được mất đều lo, không dám tiến thủ. Hắn như thế rất bất lợi cho Thiên Đình. Tuy nói Thiên Đình tuyệt đối không thể bại, nhưng dù chiến thắng Diên Khang, cũng sẽ nguyên khí tổn hao nặng, thậm chí chưa biết chừng ngay cả chúng ta cũng có nguy cơ vẫn lạc.”
 
 Đế hậu nương nương nghe ra ý của hắn. Thiên Đình tuyệt đối không thể bại là vì Tổ Đình Ngọc Kinh Thành!
 
@@ -66,17 +66,17 @@ Hai người vừa đi vừa nói. Thái Sơ nhìn xa về phương xa, nói: �
 
 Đế hậu nương nương dừng chân, cười như không cười: “Ngươi muốn phế Hạo Thiên Đế, tự mình lại đăng lâm đế vị? Thái Sơ, lúc này thay Thiên Đế sẽ khiến quân tâm dao động, Thiên Đình chưa bại đã bại!”
 
-Thân thể Thái Sơ khẽ chấn động, nhìn nàng chằm chằm, đột nhiên nói: “Ngươi không phải Nguyên Mẫu phu nhân! Nguyên Mẫu sẽ không nghiêm chỉnh phân tích lợi hại như thế!”
+Thân thể Thái Sơ khẽ chấn động, nhìn ả chằm chằm, đột nhiên nói: “Ngươi không phải Nguyên Mẫu phu nhân! Nguyên Mẫu sẽ không nghiêm chỉnh phân tích lợi hại như thế!”
 
 Đế hậu nương nương đi về phía trước, nói: “Chúng ta làm vợ chồng một thời, đến bây giờ ngươi mới nhìn ra ta không phải con tiện nhân muội muội kia? Ha ha, đàn ông à, lúc nào cũng suy nghĩ bằng nửa thân dưới... Thái Sơ, ngươi còn chưa phát hiện sao? Chủ lực của trận chiến này đã không phải chúng ta nữa, mà là Di La Cung! Trong trận chiến này, chúng ta chỉ cần giữ được mình là tốt.”
 
-Thái Sơ bước nhanh đuổi theo nàng, hạ thấp giọng: “Sau khi các bậc thành đạo của Di La Cung tới, quyền thế của chúng ta sẽ hóa thành bọt nước mộng ảo!”
+Thái Sơ bước nhanh đuổi theo ả, hạ thấp giọng: “Sau khi các bậc thành đạo của Di La Cung tới, quyền thế của chúng ta sẽ hóa thành bọt nước mộng ảo!”
 
 “Còn hơn mất mạng.”
 
 Đế hậu nương nương bỏ lại câu này, phơi hắn ở đó, phiêu nhiên rời đi.
 
-Thái Sơ nhíu mày, không đuổi theo nàng.
+Thái Sơ nhíu mày, không đuổi theo ả.
 
 Hạo Thiên Đế đứng trên cao nhìn xa, chỉ thấy Thái Âm Thiên Tôn và Thái Dương Thiên Tôn, một người dẫn Thiên Hà thủy sư, một người dẫn Thiên Đình Thần Sư, mênh mông cuồn cuộn chạy tới Lam Phong cốc địa.
 

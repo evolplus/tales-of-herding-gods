@@ -14,7 +14,7 @@ Còn phù văn nền tảng của Nhị công tử, Tam công tử, Tứ công t
 
 Trong đó Nhị công tử là rõ ràng nhất.
 
-Con đường Quy Khư Thần Nữ đi hoàn toàn trái ngược với Chủ nhân Di La Cung. Nàng không tu Đạo Thụ, Đạo hoa, Đạo quả, thậm chí cũng không quá tán đồng cách làm của Chủ nhân Di La Cung.
+Con đường Quy Khư Thần Nữ đi hoàn toàn trái ngược với Chủ nhân Di La Cung. Ả không tu Đạo Thụ, Đạo hoa, Đạo quả, thậm chí cũng không quá tán đồng cách làm của Chủ nhân Di La Cung.
 
 “Đại công tử phần lớn đã nhận được y bát chân truyền của Chủ nhân Di La Cung. Truyền thừa của hắn thuần chính nhất, nhưng muốn từ ván cửa tham ngộ ra công pháp của hắn thì vẫn không có khả năng ấy.”
 
@@ -90,11 +90,11 @@ Trường tiên Minh Hà không gì cản nổi. Nhưng khoảnh khắc sau, T�
 
 Hư Thiên Tôn dùng sức rung trường tiên, hất Tần Phượng Thanh bay lên, rơi về phía mình.
 
-Ánh mắt nàng âm trầm, giơ bàn tay ấn về phía Tần Phượng Thanh.
+Ánh mắt ả âm trầm, giơ bàn tay ấn về phía Tần Phượng Thanh.
 
-Mắt thấy bàn tay nàng sắp rơi xuống người Tần Phượng Thanh, sau lưng Tần Phượng Thanh, nguyên thần của U Thiên Tôn xuyên qua thân thể hắn. Bàn tay hai người va chạm nặng nề!
+Mắt thấy bàn tay ả sắp rơi xuống người Tần Phượng Thanh, sau lưng Tần Phượng Thanh, nguyên thần của U Thiên Tôn xuyên qua thân thể hắn. Bàn tay hai người va chạm nặng nề!
 
-Tóc Hư Thiên Tôn bay phất phới, nguyên thần sau lưng nàng vù một tiếng phình lớn, đỡ lấy một kích này của U Thiên Tôn.
+Tóc Hư Thiên Tôn bay phất phới, nguyên thần sau lưng ả vù một tiếng phình lớn, đỡ lấy một kích này của U Thiên Tôn.
 
 Tần Mục đứng trên Dũng Giang Thiên Cung, từ xa nhìn cảnh ấy, trong lòng nghiêm nghị.
 
@@ -178,7 +178,7 @@ Tần Mục nhìn hắn đi tới gần. Chỉ thấy sau lưng Hạo Thiên Tô
 
 “Tiểu oan gia, lại gặp mặt rồi.”
 
-Ánh mắt nàng rơi xuống hai chân của Tần Mục đang ngồi dưới đất. Chỉ thấy Tần Mục mặc quần trẻ nhỏ, đôi chân ngắn ngủn, bàn chân nhỏ còn mang giày trẻ nhỏ. Nàng không khỏi ngẩn ra rồi bật cười:
+Ánh mắt ả rơi xuống hai chân của Tần Mục đang ngồi dưới đất. Chỉ thấy Tần Mục mặc quần trẻ nhỏ, đôi chân ngắn ngủn, bàn chân nhỏ còn mang giày trẻ nhỏ. Ả không khỏi ngẩn ra rồi bật cười:
 
 “Tiểu oan gia càng sống càng trẻ ra rồi nhỉ!”
 

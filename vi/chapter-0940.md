@@ -6,19 +6,19 @@ Lạc Vô Song lắc đầu nói: "Chỉ cần trung với đao, trung với đ�
 
 Vân Sơ Tụ khen: "Thần Đao Lạc quả nhiên đạo tâm hằng định, không hổ là thần đao đệ nhất Thiên Đình."
 
-Nàng quay đầu nói với Tần Mục: "Thần Đao Lạc giống ngươi, chết chắc rồi."
+Ả quay đầu nói với Tần Mục: "Thần Đao Lạc giống ngươi, chết chắc rồi."
 
 Tần Mục cười nói: "Từ nhỏ lá gan ta đã lớn, xưa nay chưa từng sợ."
 
 Vân Sơ Tụ cười lạnh nói: "Các ngươi là nghé mới sinh không sợ hổ, căn bản không biết chỗ đáng sợ của Thái Hư!"
 
-Lạc Vô Song liếc nàng một cái, rồi mắt nhìn mũi, mũi nhìn tâm: "Tiểu nữ tử căn bản không biết đạo tâm ta chí thành, không sợ tất cả."
+Lạc Vô Song liếc ả một cái, rồi mắt nhìn mũi, mũi nhìn tâm: "Tiểu nữ tử căn bản không biết đạo tâm ta chí thành, không sợ tất cả."
 
 Vân Sơ Tụ tức nghẹn.
 
-Kẻ gan to bằng trời như Tần Mục từng mắng nàng là tiểu nương bì, nhưng Tần Mục là Mục Thiên Tôn, mắng nàng một câu cũng có tư cách ấy. Tên Lạc Vô Song này vậy mà cũng dám xem thường nàng, nói nàng là tiểu nữ tử.
+Kẻ gan to bằng trời như Tần Mục từng mắng ả là tiểu nương bì, nhưng Tần Mục là Mục Thiên Tôn, mắng ả một câu cũng có tư cách ấy. Tên Lạc Vô Song này vậy mà cũng dám xem thường ả, nói ả là tiểu nữ tử.
 
-Nhưng dù sao nàng cũng là Đế hậu nương nương, lại là Thiên Tôn, còn chưa đến mức vì vậy mà so đo với hắn.
+Nhưng dù sao ả cũng là Đế hậu nương nương, lại là Thiên Tôn, còn chưa đến mức vì vậy mà so đo với hắn.
 
 Ánh mắt Tần Mục lóe lên, rơi trên người Lạc Vô Song. Lạc Vô Song như có cảm giác, hừ lạnh một tiếng, thản nhiên nói: "Ở đây không giết ngươi, tới Thái Hư ta lấy mạng ngươi. Nếu ngươi sợ, thì đi cầu tiểu nữ tử dạy ngươi Phi Tưởng Phi Phi Tưởng."
 
@@ -34,13 +34,13 @@ Thiên Đình quản hạt chư thiên vạn giới, tuyển chọn đệ tử x
 
 Mắt Tần Mục sáng lên, chú ý tới một nữ tử. Dung mạo nữ tử kia vậy mà có vài phần giống chân thân của tỷ muội Đế hậu, không khỏi hỏi Vân Sơ Tụ: "Cô còn có một muội muội sao?"
 
-Trong lòng Vân Sơ Tụ không hiểu, nhìn theo tầm mắt hắn. Đột nhiên đầu mày nàng nhướng lên, cười lạnh một tiếng.
+Trong lòng Vân Sơ Tụ không hiểu, nhìn theo tầm mắt hắn. Đột nhiên đầu mày ả nhướng lên, cười lạnh một tiếng.
 
-Nàng cũng thấy nữ tử kia. Quả thật có vài phần giống nàng và Nguyên Mẫu phu nhân, chỉ là tuổi tác của nữ tử này trông không lớn, giống nàng đều là thiếu nữ trẻ trung xinh đẹp.
+Ả cũng thấy nữ tử kia. Quả thật có vài phần giống ả và Nguyên Mẫu phu nhân, chỉ là tuổi tác của nữ tử này trông không lớn, giống ả đều là thiếu nữ trẻ trung xinh đẹp.
 
 Vân Sơ Tụ đi về phía nữ tử kia, nụ cười lạnh trên mặt biến mất, biến thành nụ cười thuần chân vô tà, tới bên cạnh nữ tử ấy.
 
-Cô gái kia thấy nàng, không khỏi kinh ngạc. Hai cô gái đang nói gì đó, vừa nói vừa cười, dường như rất vui vẻ.
+Cô gái kia thấy ả, không khỏi kinh ngạc. Hai cô gái đang nói gì đó, vừa nói vừa cười, dường như rất vui vẻ.
 
 Tần Mục hứng thú nhìn họ. Quan hệ giữa cô gái này và Vân Sơ Tụ khiến hắn hơi tò mò.
 
@@ -68,7 +68,7 @@ Vân Sơ Tụ hừ lạnh một tiếng.
 
 Liên Hoa Hồn tuy cũng rất đẹp, nhưng so với Tuyệt Vô Trần, nữ tử được sáng tạo bằng cách gom hết mọi vẻ đẹp trên đời vào một thân, thì kém hơn rất nhiều.
 
-Thân thể Vân Sơ Tụ này được tạo hóa dựa theo dáng vẻ Tuyệt Vô Trần, không ngờ Tần Mục chưa từng khen nàng, ngược lại khen Liên Hoa Hồn, có thể thấy thẩm mỹ của vị Mục Thiên Tôn này quả thật rất có vấn đề!
+Thân thể Vân Sơ Tụ này được tạo hóa dựa theo dáng vẻ Tuyệt Vô Trần, không ngờ Tần Mục chưa từng khen ả, ngược lại khen Liên Hoa Hồn, có thể thấy thẩm mỹ của vị Mục Thiên Tôn này quả thật rất có vấn đề!
 
 Liên Hoa Hồn dịu dàng đứng dậy, đôi mắt đẹp chớp động, nói: "Thiên Tôn học rộng nhiều tài, mở miệng thành văn."
 
@@ -80,7 +80,7 @@ Vân Sơ Tụ lắc đầu nói: "Không phải như vậy."
 
 Liên Hoa Hồn khẽ gõ răng ngọc, cười tủm tỉm nói: "Mây vô tâm rời khỏi núi, trong cuộc chơi, thanh danh vén động vũ trụ. Tên của Vân tỷ tỷ phần lớn là ý này. Thân thể này vô tâm, phóng túng hình hài, dạo chơi nhân gian, danh động vũ trụ càn khôn."
 
-Vân Sơ Tụ vỗ tay cười nói: "Vẫn là Liên muội muội hiểu ta! Lại thương cuống hoa yếu, không chịu nổi giá lạnh đổi dời. Tuyết sớm nào ganh ghét, gió âm đã thổi bao lần. Liên Hoa Hồn không phải nói ai thương, mà là nói tuyết sớm ganh ghét, gió âm thổi khiến hoa sớm tàn. Liên Hoa Hồn muội muội thông tuệ, nào giống mấy tên nam nhân ngu ngốc kia, trông có vẻ thông minh mà thực ra ngu xuẩn." Nói xong, nàng liếc Tần Mục một cái.
+Vân Sơ Tụ vỗ tay cười nói: "Vẫn là Liên muội muội hiểu ta! Lại thương cuống hoa yếu, không chịu nổi giá lạnh đổi dời. Tuyết sớm nào ganh ghét, gió âm đã thổi bao lần. Liên Hoa Hồn không phải nói ai thương, mà là nói tuyết sớm ganh ghét, gió âm thổi khiến hoa sớm tàn. Liên Hoa Hồn muội muội thông tuệ, nào giống mấy tên nam nhân ngu ngốc kia, trông có vẻ thông minh mà thực ra ngu xuẩn." Nói xong, ả liếc Tần Mục một cái.
 
 Tần Mục hậm hực không nói.
 

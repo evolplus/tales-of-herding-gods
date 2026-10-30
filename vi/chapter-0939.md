@@ -6,7 +6,7 @@ Tần Mục hơi nhíu mày. Lạc Vô Song hận hắn cực sâu, nếu Lạc 
 
 "Thái Hư rốt cuộc là nơi nào?"
 
-Tần Mục không để lộ dấu vết rút cánh tay khỏi lòng nàng, không nhịn được hỏi: "Sau khi ta tới Thiên Đình liền nghe nói có một nơi như vậy, rất thần bí. Vì sao phải đi thăm dò nơi đó?"
+Tần Mục không để lộ dấu vết rút cánh tay khỏi lòng ả, không nhịn được hỏi: "Sau khi ta tới Thiên Đình liền nghe nói có một nơi như vậy, rất thần bí. Vì sao phải đi thăm dò nơi đó?"
 
 "Còn không phải vì Vô Ưu Hương?"
 
@@ -16,7 +16,7 @@ Trong lòng Tần Mục khẽ động.
 
 Vân Sơ Tụ tiếp tục nói: "Khai Hoàng dù sao cũng là Tần Thiên Tôn. Tuy hắn phản bội Thiên Minh, nhưng rốt cuộc vẫn là một trong năm đại nguyên lão sáng lập Thiên Minh. Hắn không chết, rất nhiều người trong lòng không yên. Hơn nữa hắn lại cứ không chịu an phận. Lần này thảo phạt phản nghịch Nguyên giới, nghe nói có tin tức truyền ra rằng hắn ở Vô Ưu Hương phát hiệu lệnh, bảo Phong Đô tránh chiến, ẩn nấp xuống. Phong Đô chỉ là chuyện nhỏ, Vô Ưu Hương mới là họa lớn trong lòng Thiên Đình."
 
-Nàng cẩn thận quan sát vẻ mặt Tần Mục, lại không phát hiện thần thái của Tần Mục có gì khác thường, cười như không cười nói: "Mục Thiên Tôn ngược lại bình tĩnh thong dong. Tần Thiên Tôn Tần Nghiệp là tổ tông của ngươi, ngươi không tò mò chút nào sao?"
+Ả cẩn thận quan sát vẻ mặt Tần Mục, lại không phát hiện thần thái của Tần Mục có gì khác thường, cười như không cười nói: "Mục Thiên Tôn ngược lại bình tĩnh thong dong. Tần Thiên Tôn Tần Nghiệp là tổ tông của ngươi, ngươi không tò mò chút nào sao?"
 
 "Năm xưa ta và ông ta cùng dạo chơi Thiên Đình đầu thời Long Hán. Ông ta làm việc do do dự dự, không dứt khoát, hơn nữa sau gáy mọc phản cốt, vậy mà hạ độc thủ với Hạo Thiên Tôn, còn dám giết người ở Dao Trì, chống nghịch Nguyên Mẫu phu nhân! Khi đó ta đã nhìn ra ông ta định sẵn sẽ làm phản tặc, khinh thường cách làm người xử sự của ông ta. Thân thể ta là huyết mạch của ông ta, nhưng linh hồn ta không liên quan tới huyết mạch Khai Hoàng."
 
@@ -24,7 +24,7 @@ Tần Mục chính khí đầy người, nghĩa lẫm liệt nói: "Nay ông ta 
 
 Vân Sơ Tụ cẩn thận quan sát vẻ mặt nhỏ nhất của hắn, vẫn không nhìn ra bất kỳ chỗ nào không ổn, dường như quyết liệt với Khai Hoàng là suy nghĩ thật của Tần Mục.
 
-Nàng lắc đầu nói: "Có tin nói Vô Ưu Hương có thể ở ngay trong Thái Hư, vì vậy những năm qua Thiên Đình vẫn luôn thăm dò Thái Hư, mưu toan tìm tung tích Vô Ưu Hương, diệt trừ mối họa ngầm này. Sau khi Hỏa Thiên Tôn và Hư Thiên Tôn tới Thái Hư thì tách ra. Họ tìm được rất nhiều nơi kỳ quái. Nơi Thái Hư này, khắp chốn đều lộ vẻ quỷ dị... Đi Thái Hư, người không thể nhiều, người càng nhiều càng nguy hiểm. Lần này do vị Thiên Tôn là ngươi dẫn mọi người tới Thái Hư, tổng cộng chỉ có ba trăm người."
+Ả lắc đầu nói: "Có tin nói Vô Ưu Hương có thể ở ngay trong Thái Hư, vì vậy những năm qua Thiên Đình vẫn luôn thăm dò Thái Hư, mưu toan tìm tung tích Vô Ưu Hương, diệt trừ mối họa ngầm này. Sau khi Hỏa Thiên Tôn và Hư Thiên Tôn tới Thái Hư thì tách ra. Họ tìm được rất nhiều nơi kỳ quái. Nơi Thái Hư này, khắp chốn đều lộ vẻ quỷ dị... Đi Thái Hư, người không thể nhiều, người càng nhiều càng nguy hiểm. Lần này do vị Thiên Tôn là ngươi dẫn mọi người tới Thái Hư, tổng cộng chỉ có ba trăm người."
 
 Trong lòng Tần Mục khẽ động, nói: "Nương nương từng tới Thái Hư?"
 
@@ -84,13 +84,13 @@ Tim Tần Mục thót lại. Thần Vũ quân là một trong Thiên Đình Th�
 
 Hắn từng thấy tướng sĩ Vũ Lâm quân trên Quỷ thuyền, gần như mỗi vị thần ma đều là nhân vật đáng sợ cảnh giới Ngọc Kinh, thậm chí còn mạnh hơn!
 
-Đế hậu nương nương dẫn một trong Thập Vệ là Thần Vũ quân thăm dò Thái Hư, mục đích của nàng e rằng không phải thăm dò, mà là định đánh chiếm nơi này!
+Đế hậu nương nương dẫn một trong Thập Vệ là Thần Vũ quân thăm dò Thái Hư, mục đích của ả e rằng không phải thăm dò, mà là định đánh chiếm nơi này!
 
 "Thái Hư là một di tích trong vũ trụ này, là một vùng hào quang. Nhưng đi vào trong đó sẽ phát hiện bên trong có một cõi trời đất khác."
 
 Vân Sơ Tụ dựa vào vai hắn, hồi tưởng quá khứ, thì thầm: "Khi ấy, sau khi chúng ta vào vùng hào quang kia, chuyện lạ liên tiếp xảy ra. Đủ loại chuyện kỳ quái rực rỡ quái dị, sinh vật trong tưởng tượng, tầng tầng lớp lớp."
 
-Nàng nhíu chặt mày, nói: "Chúng ta gặp đủ loại sự kiện kỳ quái tập kích, chết và bị thương thảm trọng, Thần Vũ quân mười không còn một. Ngay cả bản cung và hai vị Thiên Sư kia cũng bị trọng thương! Mãi đến sau này, Nhạc Thiên Sư đột nhiên giác ngộ, tham ngộ ra bí mật của Thái Hư. Đó chính là lòng nghĩ điều gì, điều ấy thành hiện thực."
+Ả nhíu chặt mày, nói: "Chúng ta gặp đủ loại sự kiện kỳ quái tập kích, chết và bị thương thảm trọng, Thần Vũ quân mười không còn một. Ngay cả bản cung và hai vị Thiên Sư kia cũng bị trọng thương! Mãi đến sau này, Nhạc Thiên Sư đột nhiên giác ngộ, tham ngộ ra bí mật của Thái Hư. Đó chính là lòng nghĩ điều gì, điều ấy thành hiện thực."
 
 Tâm thần Tần Mục chấn động nhẹ: "Lòng nghĩ điều gì, điều ấy thành hiện thực? Ý vị Nhạc Thiên Sư này là..."
 
@@ -98,7 +98,7 @@ Tâm thần Tần Mục chấn động nhẹ: "Lòng nghĩ điều gì, điều 
 
 Vân Sơ Tụ nói: "Có người tưởng tượng mình bị sét đánh chết, liền thật sự có lôi đình đáng sợ đánh xuống. Có người tưởng tượng có ma thần nghìn đầu vạn tay giết hắn, liền thật sự có ma thần như vậy xuất hiện. Có người lo trời sập đất nứt, liền thật sự có trời sập đất nứt, tinh cầu rơi từ bầu trời xuống. Đủ loại đại khủng bố liên tiếp ập tới, đến mức quân mạnh nhất của Thiên Đình bị đánh tan tác, căn bản chưa nhìn thấy bộ mặt thật của Thái Hư đã buộc phải quay về. Cuối cùng, người còn sống rời khỏi Thái Hư chỉ có mình bản cung, nhưng cũng thân bị trọng thương, suýt chết mà sống lại. Hai vị Thiên Sư..."
 
-Nàng thở dài, ảm đạm nói: "Hai vị Thiên Sư đều là những bậc trí tuệ tuyệt đỉnh, cũng là đại cao thủ Đế Tọa viên mãn, đáng tiếc đều không thể sống mà ra."
+Ả thở dài, ảm đạm nói: "Hai vị Thiên Sư đều là những bậc trí tuệ tuyệt đỉnh, cũng là đại cao thủ Đế Tọa viên mãn, đáng tiếc đều không thể sống mà ra."
 
 Tần Mục nheo mắt.
 
@@ -110,19 +110,19 @@ Những gì Vân Sơ Tụ nói thật sự quá đáng sợ. Thái Hư thật s�
 
 Trên mặt Vân Sơ Tụ lộ vẻ sợ hãi, giọng hơi khàn: "Bản cung tuy đã giết ông ta, nhưng thứ sợ nhất cũng là ông ta! Trong Thái Hư, ông ta lại xuất hiện, lao tới tấn công chúng ta, ta sợ..."
 
-Nàng rùng mình liên tiếp, lạnh thấu xương.
+Ả rùng mình liên tiếp, lạnh thấu xương.
 
 Tần Mục đột nhiên nói: "Vậy hai đại Thiên Sư và những người sống sót khác chết thế nào? Vị Nhạc Thiên Sư kia đã tham ngộ ra bí mật Thái Hư, biết lòng nghĩ điều gì, điều ấy thành hiện thực, vậy ông ấy chắc chắn sẽ ràng buộc mọi người không nghĩ gì cả. Với những nhân vật như họ, hẳn không khó làm được chứ? Vì sao họ đều chết trong Thái Hư, chỉ có một mình nương nương sống mà ra?"
 
-Vân Sơ Tụ lộ ra nụ cười thuần chân vô tà, đẹp đến khiến lòng người rung động. Nàng còn ưỡn ngực, y phục ở cổ áo bị kéo căng, vẻ đẹp như muốn bật ra ngoài, cười nói: "Mục Thiên Tôn muốn nói gì?"
+Vân Sơ Tụ lộ ra nụ cười thuần chân vô tà, đẹp đến khiến lòng người rung động. Ả còn ưỡn ngực, y phục ở cổ áo bị kéo căng, vẻ đẹp như muốn bật ra ngoài, cười nói: "Mục Thiên Tôn muốn nói gì?"
 
-Tần Mục làm như không thấy dáng vẻ quyến rũ của nàng, mỉm cười nói: "Điều ta muốn nói là, trong đại khủng bố ấy, tướng sĩ Thần Vũ quân còn sống đã mất lý trí, hoảng sợ bất an, hơn nữa nương nương không biết suy nghĩ của người khác. Vì tự bảo vệ, cách tốt nhất là giết những người khác, để họ không còn cách nào suy nghĩ. Lòng nghĩ điều gì, điều ấy thành hiện thực, chỉ cần họ chết, họ sẽ không cần nghĩ nữa."
+Tần Mục làm như không thấy dáng vẻ quyến rũ của ả, mỉm cười nói: "Điều ta muốn nói là, trong đại khủng bố ấy, tướng sĩ Thần Vũ quân còn sống đã mất lý trí, hoảng sợ bất an, hơn nữa nương nương không biết suy nghĩ của người khác. Vì tự bảo vệ, cách tốt nhất là giết những người khác, để họ không còn cách nào suy nghĩ. Lòng nghĩ điều gì, điều ấy thành hiện thực, chỉ cần họ chết, họ sẽ không cần nghĩ nữa."
 
 Ánh mắt hắn nhìn chằm chằm dung nhan xinh đẹp của thiếu nữ này, gằn từng chữ: "Vì vậy, nương nương liền giết họ. Nương nương còn không tin hai vị Thiên Sư, thế nên cũng giết họ. Nương nương chính là dựa vào cách này, sống sót rời khỏi Thái Hư."
 
 Vân Sơ Tụ cười khanh khách, ngực chập chờn như sóng: "Mục Thiên Tôn, chúng ta quả nhiên là cùng một hạng người! Ngươi lập tức đoán ra cách bản cung rời Thái Hư, ngươi và ta có lẽ mới thật sự là một đôi!"
 
-Tần Mục làm như không thấy vẻ yêu kiều của nàng, thản nhiên nói: "Nương nương, chúng ta không phải một đôi, cũng vĩnh viễn không thể là người cùng đường. Ta tuyệt đối sẽ không bỏ lại đồng bạn của mình, càng không xuống tay độc ác với đồng bạn! Ta chỉ đã thấy quen bóng tối, nên mới đoán ra lòng dạ độc ác của nương nương."
+Tần Mục làm như không thấy vẻ yêu kiều của ả, thản nhiên nói: "Nương nương, chúng ta không phải một đôi, cũng vĩnh viễn không thể là người cùng đường. Ta tuyệt đối sẽ không bỏ lại đồng bạn của mình, càng không xuống tay độc ác với đồng bạn! Ta chỉ đã thấy quen bóng tối, nên mới đoán ra lòng dạ độc ác của nương nương."
 
 Vân Sơ Tụ cười lạnh một tiếng: "Mục Thiên Tôn, ngươi quá lý tưởng hóa rồi. Họ không phải đồng bạn của ta, chỉ là nô lệ tôi tớ mà thôi. Không phải họ chết thì bản cung chết, vì vậy chỉ có thể là họ chết! Đợi ngươi tới Thái Hư, đối mặt với tình cảnh giống ta, lựa chọn của ngươi chỉ giống ta mà thôi! Ngươi và ta trước sau vẫn là người cùng đường! Dù bây giờ chưa phải, tương lai ngươi cũng sẽ biến thành giống ta!"
 

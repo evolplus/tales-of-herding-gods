@@ -8,9 +8,9 @@ Trên mặt biển cũng không chỉ có lá sen Quy Khư của Tần Mục, m�
 
 Tần Mục tới nơi này, chỉ thấy công tử Vô Cực đang ngồi trên một phiến lá sen, nghiêng người vốc một bụm nước hỗn độn gội tóc.
 
-Tóc nàng trắng như tuyết, nhưng con người lại có vẻ rất trẻ trung.
+Tóc ả trắng như tuyết, nhưng con người lại có vẻ rất trẻ trung.
 
-Tần Mục đứng trên lá sen của mình, lặng lẽ thưởng thức. Công tử Vô Cực cũng xem như một giai nhân tuyệt sắc. Nếu không tà ác như vậy, nàng sẽ là một nữ tử khiến người ta rung động.
+Tần Mục đứng trên lá sen của mình, lặng lẽ thưởng thức. Công tử Vô Cực cũng xem như một giai nhân tuyệt sắc. Nếu không tà ác như vậy, ả sẽ là một nữ tử khiến người ta rung động.
 
 Rất lâu sau, công tử Vô Cực đột nhiên phì cười: "Lão Thất, ngươi còn định nhìn bao lâu?"
 
@@ -64,9 +64,9 @@ Rất lâu sau, Tần Mục cười hỏi: "Vậy nhị tỷ còn bao lâu mới
 
 Công tử Vô Cực cười rạng rỡ, hai tay gom mái tóc bạc vừa gội ra sau, bấm đứt mấy sợi tóc, buộc những sợi còn lại.
 
-Bím tóc đuôi ngựa màu bạc chảy xuống sau lưng nàng, tóc dài tới eo.
+Bím tóc đuôi ngựa màu bạc chảy xuống sau lưng ả, tóc dài tới eo.
 
-Tần Mục vẫn mỉm cười, lặng lẽ nhìn nàng.
+Tần Mục vẫn mỉm cười, lặng lẽ nhìn ả.
 
 Công tử Vô Cực kéo năm sợi xích đi tới đi lui trên lá sen, cười hì hì nói: "Có thể là ngày mai, cũng có thể là một vạn năm sau. Đương nhiên, cũng có thể là bây giờ. Ngươi đoán xem. Đoán trúng có thưởng."
 
@@ -98,7 +98,7 @@ Nhưng cửa tòa đại điện này cũng đóng chặt. Trong điện có gì
 
 Tòa đại điện này chính là thành tựu tối cao đại đạo của công tử Vô Cực, Vô Cực Điện!
 
-Công tử Vô Cực quả thật đã rất gần thoát khốn. Nàng thậm chí có thể triệu hoán Vô Cực Điện của mình từ Di La Cung tới!
+Công tử Vô Cực quả thật đã rất gần thoát khốn. Ả thậm chí có thể triệu hoán Vô Cực Điện của mình từ Di La Cung tới!
 
 Cùng lúc đó, từng tòa Quy Khư Đại Uyên cũng phát ra tiếng ầm vang dữ dội. Từng đóa hoa sen Quy Khư liên tiếp biến mất. Dưới chân công tử Vô Cực, một đóa sen hiện lên, tầng đài sen thứ nhất hiện ra, tiếp đó là tầng thứ hai, tầng thứ ba...
 
@@ -106,17 +106,17 @@ Cùng lúc đó, từng tòa Quy Khư Đại Uyên cũng phát ra tiếng ầm v
 
 Mặt biển Hỗn Độn Hải nổi sóng dữ dội. Sáu cây sen Quy Khư khác lay động rồi lại xuất hiện lần nữa. Hiển nhiên công tử Vô Cực chưa hoàn toàn giải phong, vì vậy không thể thu lại những cây sen Quy Khư khác, hóa thành đài sen mười sáu phẩm.
 
-Con đường tu luyện Quy Khư thành đạo của nàng và con đường tu luyện Quy Khư của Tần Mục vẫn có chỗ khác nhau. Tần Mục dựa vào lĩnh ngộ của mình, dựa vào hấp thu năng lượng và dưỡng chất từ từng trận kiếp Phá Diệt và kiếp Sáng Sinh, để đạo phẩm đài sen của mình tăng lên.
+Con đường tu luyện Quy Khư thành đạo của ả và con đường tu luyện Quy Khư của Tần Mục vẫn có chỗ khác nhau. Tần Mục dựa vào lĩnh ngộ của mình, dựa vào hấp thu năng lượng và dưỡng chất từ từng trận kiếp Phá Diệt và kiếp Sáng Sinh, để đạo phẩm đài sen của mình tăng lên.
 
 Còn công tử Vô Cực hẳn đi một con đường khác, đó chính là hấp thu hoa sen Quy Khư của các vũ trụ kỷ khác, hóa thành đài sen mười sáu đạo phẩm!
 
-Nhưng phong ấn của Chủ nhân Di La Cung khiến nàng không thể điều động nhiều đài sen hơn. Nếu không, nếu nàng có thể điều động đài sen mười sáu phẩm, vậy nàng đã có thể thoát khốn.
+Nhưng phong ấn của Chủ nhân Di La Cung khiến ả không thể điều động nhiều đài sen hơn. Nếu không, nếu ả có thể điều động đài sen mười sáu phẩm, vậy ả đã có thể thoát khốn.
 
 Tần Mục khẽ mỉm cười: "Nhị tỷ, tỷ có được không vậy? Tiểu đệ rất lợi hại đấy."
 
 Công tử Vô Cực cũng khẽ mỉm cười: "Lão Thất, ngươi chưa hỗn độn thành đạo thì thật sự không được đâu."
 
-Lời nàng chưa dứt, Tần Mục đã bước ra một bước. Khi hắn bước ra bước này, tiếng chuông vang lên, Hỗn Độn Hải đột nhiên nổ tung. Hồng Chung Vũ Trụ cuốn khí hỗn độn trong Hỗn Độn Hải, nâng cao uy năng của một đòn này!
+Lời ả chưa dứt, Tần Mục đã bước ra một bước. Khi hắn bước ra bước này, tiếng chuông vang lên, Hỗn Độn Hải đột nhiên nổ tung. Hồng Chung Vũ Trụ cuốn khí hỗn độn trong Hỗn Độn Hải, nâng cao uy năng của một đòn này!
 
 Trên Hỗn Độn Hải, hắn chính là Thất công tử của Di La Cung, có thể phát huy sức mạnh vô biên!
 
@@ -128,7 +128,7 @@ Có thể nói chiêu này là thần thông mạnh mẽ nhất của hắn. Đ�
 
 "Lão Thất, hóa ra ngươi thật sự không được!"
 
-Công tử Vô Cực đứng trong đài sen, cười khanh khách. Đột nhiên Vô Cực Điện sau lưng nàng mở rộng. Khoảnh khắc cửa điện mở ra, năng lượng phá diệt mọi thứ trong điện tuôn ra. Vừa va chạm nhẹ với Hồng Chung Vũ Trụ của Tần Mục, đã thấy vũ trụ càn khôn do Hồng Chung Vũ Trụ chấn động khai mở trực tiếp hủy diệt!
+Công tử Vô Cực đứng trong đài sen, cười khanh khách. Đột nhiên Vô Cực Điện sau lưng ả mở rộng. Khoảnh khắc cửa điện mở ra, năng lượng phá diệt mọi thứ trong điện tuôn ra. Vừa va chạm nhẹ với Hồng Chung Vũ Trụ của Tần Mục, đã thấy vũ trụ càn khôn do Hồng Chung Vũ Trụ chấn động khai mở trực tiếp hủy diệt!
 
 Nhưng ngay khoảnh khắc Ngũ Thái nghịch biến, Tần Mục giữ thân chuông, khẽ gẩy. Đại chuông rít lên xoay tròn, bốc lên, úp ngược xuống dưới.
 
@@ -140,15 +140,15 @@ Vù!
 
 Sau lưng Tần Mục, Lục Đạo Thiên Luân rực rỡ sáng ngời xoay chuyển. Vũ trụ càn khôn lớn nhỏ đều bị bao trùm dưới Lục Đạo Luân Hồi, sinh sinh diệt diệt, luân hồi không dứt!
 
-Công tử Vô Cực vừa đánh tới trước đã bị vũ trụ càn khôn lớn nhỏ quanh đó đẩy bật ra. Dù nàng phá diệt bao nhiêu vũ trụ càn khôn cực nhỏ, luân hồi lập tức chuyển một vòng, lại có vũ trụ mới sinh ra.
+Công tử Vô Cực vừa đánh tới trước đã bị vũ trụ càn khôn lớn nhỏ quanh đó đẩy bật ra. Dù ả phá diệt bao nhiêu vũ trụ càn khôn cực nhỏ, luân hồi lập tức chuyển một vòng, lại có vũ trụ mới sinh ra.
 
-Công tử Vô Cực nổi giận, thúc động thần thông Quy Khư, cũng như Tần Mục, dùng đạo sinh diệt đối phó Tần Mục. Nhưng nàng cần tiêu hao tu vi của mình để duy trì sinh diệt, còn Tần Mục lại dùng đạo Luân Hồi để duy trì sinh diệt, cao thấp lập tức rõ ràng!
+Công tử Vô Cực nổi giận, thúc động thần thông Quy Khư, cũng như Tần Mục, dùng đạo sinh diệt đối phó Tần Mục. Nhưng ả cần tiêu hao tu vi của mình để duy trì sinh diệt, còn Tần Mục lại dùng đạo Luân Hồi để duy trì sinh diệt, cao thấp lập tức rõ ràng!
 
 "Nhị tỷ, tỷ lỗi thời rồi, thật sự không được nữa!"
 
 Tần Mục áp sát tiến lên, đưa tay chụp về phía năm sợi xích sau lưng công tử Vô Cực, luyện hóa dị chủng phù văn trong dây xích, bổ sung phù văn kết ấn dây đỏ.
 
-Công tử Vô Cực tức tới nứt mắt, điên cuồng công kích hắn, nhưng dưới sự vận chuyển của Lục Đạo Thiên Luân, nàng trước sau không thể tới gần.
+Công tử Vô Cực tức tới nứt mắt, điên cuồng công kích hắn, nhưng dưới sự vận chuyển của Lục Đạo Thiên Luân, ả trước sau không thể tới gần.
 
 Tần Mục nhanh chóng tu sửa phong ấn kết ấn dây đỏ, khôi phục từng phù văn bị công tử Vô Cực phá hoại.
 

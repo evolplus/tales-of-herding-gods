@@ -36,11 +36,11 @@ Chỉ có mấy luồng khí Hỗn Độn do thám tử Thiên Đình hóa thàn
 
 Nơi đó phẳng lặng như cũ.
 
-Đột nhiên, ánh mắt Thái Âm nương nương chớp động, nàng thúc động thần thông. Một đạo thần thông hóa thành trường hà dài nghìn dặm, cuồn cuộn gầm thét lao thẳng về phía Tần Mục!
+Đột nhiên, ánh mắt Thái Âm nương nương chớp động, ả thúc động thần thông. Một đạo thần thông hóa thành trường hà dài nghìn dặm, cuồn cuộn gầm thét lao thẳng về phía Tần Mục!
 
 Khi trường hà ấy cuồn cuộn chảy xiết, nó biến hóa cực nhanh. Đến gần Tần Mục, nó đã hóa thành thân xác máu thịt, như một con trường long nghìn dặm nhe nanh múa vuốt, dữ tợn hung ác!
 
-Thần thông của Thái Cực cổ thần quả thật thần diệu khó lường. Uy lực một đòn này cực mạnh, là nàng toàn lực phát ra, liệu rằng dù là Thiên Tôn cũng phải đứng dậy chống đỡ.
+Thần thông của Thái Cực cổ thần quả thật thần diệu khó lường. Uy lực một đòn này cực mạnh, là ả toàn lực phát ra, liệu rằng dù là Thiên Tôn cũng phải đứng dậy chống đỡ.
 
 Cùng lúc đó, Thái Dương Thiên Tôn cũng tự thi triển thần thông. Thần thông của hai người vừa khéo bổ sung cho nhau, hai con trường long một đen một trắng đầu đuôi móc nối, hóa thành một đạo đại thần thông Thái Cực!
 
@@ -98,7 +98,7 @@ Tinh Ngạn đành thôi.
 
 Thái Sơ và Đế hậu nương nương lập tức mang Táng Đạo Thần Quan cùng chín mươi chín chiếc Thần đinh Tru Đạo chạy tới “nơi chôn thân” của Tần Mục. Đến nơi đó, Thái Sơ lập tức cảm thấy đại đạo trong một thân mình rục rịch, gần như sắp bị mài diệt hóa thành Hỗn Độn, không khỏi tán thán: “Dư uy thật lợi hại!”
 
-Hai người đi tới dưới Thế Giới Thụ, đang định đến gần Tần Mục thì khóe mắt Đế hậu nương nương đột nhiên giật mạnh. Nàng quát một tiếng, phất tay đánh ra một đạo Quy Khư Đại Uyên ấn về phía cái bóng của Tần Mục!
+Hai người đi tới dưới Thế Giới Thụ, đang định đến gần Tần Mục thì khóe mắt Đế hậu nương nương đột nhiên giật mạnh. Ả quát một tiếng, phất tay đánh ra một đạo Quy Khư Đại Uyên ấn về phía cái bóng của Tần Mục!
 
 Cái bóng của Tần Mục ngọ nguậy. Đột nhiên một luồng đao quang chém vào đại uyên, xoẹt một tiếng, vậy mà chẻ đại uyên nứt ra!
 
@@ -106,9 +106,9 @@ Cái bóng của Tần Mục ngọ nguậy. Đột nhiên một luồng đao qua
 
 Tim Thái Sơ giật thót, vết thương lại âm ỉ đau. Hắn vội nói: “Tử Đồng, nàng kiềm chế Thương Quân, ta đưa Mục Thiên Tôn vào quan tài!”
 
-Đế hậu nương nương hừ lạnh. Xung quanh nàng, từng khe nứt màu đen nhỏ bé lơ lửng, giao chiến với cái bóng của Tần Mục.
+Đế hậu nương nương hừ lạnh. Xung quanh ả, từng khe nứt màu đen nhỏ bé lơ lửng, giao chiến với cái bóng của Tần Mục.
 
-Cái bóng của Tần Mục ngọ nguậy, vặn vẹo, sinh trưởng trên mặt đất, hóa thành hình tượng một người cầm đao, đại chiến với nàng ngay trên mặt đất!
+Cái bóng của Tần Mục ngọ nguậy, vặn vẹo, sinh trưởng trên mặt đất, hóa thành hình tượng một người cầm đao, đại chiến với ả ngay trên mặt đất!
 
 Thái Sơ luống cuống đi chuyển “thi thể” Tần Mục, nào ngờ khi hắn thử nhấc “thi thể”, hồ Hỗn Độn phía dưới cũng bị nhấc lên, Thế Giới Thụ cũng theo đó bay lên, nặng nề vô cùng!
 

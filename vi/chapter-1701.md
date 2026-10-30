@@ -16,7 +16,7 @@ Thế công lần này của Thiên Đình đáng sợ vô cùng, đã dốc to�
 
 Vân Thiên Tôn làm như không thấy tất cả, đi thẳng tới nghênh đón Hạo Thiên Đế.
 
-Lúc này Hạo Thiên Đế đang là thân nam nhi. Nhị công tử chỉ kinh ngạc vì Tần Mục trong thời gian ngắn ngủi như vậy đã chém giết tám đại phân thân cổ thần của Chủ điện Linh Quan nên mới ra xem thử. Nàng không có hứng thú với trận quyết chiến Vô Ưu Hương, vì vậy lại nhường thân thể cho Hạo Thiên Đế.
+Lúc này Hạo Thiên Đế đang là thân nam nhi. Nhị công tử chỉ kinh ngạc vì Tần Mục trong thời gian ngắn ngủi như vậy đã chém giết tám đại phân thân cổ thần của Chủ điện Linh Quan nên mới ra xem thử. Ả không có hứng thú với trận quyết chiến Vô Ưu Hương, vì vậy lại nhường thân thể cho Hạo Thiên Đế.
 
 “Vân, ngươi chỉ là bại tướng dưới tay trẫm.”
 
@@ -162,17 +162,17 @@ Hạo Thiên Đế bị hắn đánh cho trở tay không kịp. Mắt thấy k�
 
 “Thần thông mà lão sư chuyên tạo ra để đối phó ta!”
 
-Nhị công tử Vô Cực phát ra tiếng thét phẫn nộ thê lương. Chiêu kết ấn dây đỏ này của Vân Thiên Tôn còn chưa tới mi tâm nàng đã bị sức mạnh khủng bố vô biên của nàng phá tan!
+Nhị công tử Vô Cực phát ra tiếng thét phẫn nộ thê lương. Chiêu kết ấn dây đỏ này của Vân Thiên Tôn còn chưa tới mi tâm ả đã bị sức mạnh khủng bố vô biên của ả phá tan!
 
 Bàn tay Vân Thiên Tôn thậm chí máu thịt tung tóe, hóa thành xương trắng chồng chất!
 
 Nhị công tử ngẩn ra: “Không phải kết ấn dây đỏ?”
 
-Nàng vô cùng sợ hãi kết ấn dây đỏ, cho rằng đó là thần thông Chủ nhân Di La Cung chuyên sáng tạo để giết nàng. Thấy Vân Thiên Tôn thi triển, nàng lập tức lửa giận bốc lên, không nói một lời đoạt xá Hạo Thiên Đế, chiếm lấy thân xác, định tự mình chém giết Vân Thiên Tôn.
+Ả vô cùng sợ hãi kết ấn dây đỏ, cho rằng đó là thần thông Chủ nhân Di La Cung chuyên sáng tạo để giết ả. Thấy Vân Thiên Tôn thi triển, ả lập tức lửa giận bốc lên, không nói một lời đoạt xá Hạo Thiên Đế, chiếm lấy thân xác, định tự mình chém giết Vân Thiên Tôn.
 
-Thế nhưng chiêu kết ấn dây đỏ này chỉ có vẻ ngoài mà không có thực chất, còn chưa chạm tới nàng đã bị khí tức của nàng phá vỡ.
+Thế nhưng chiêu kết ấn dây đỏ này chỉ có vẻ ngoài mà không có thực chất, còn chưa chạm tới ả đã bị khí tức của ả phá vỡ.
 
-Hai bàn tay hóa thành xương trắng của Vân Thiên Tôn đã tới trước mặt nàng. Thần thông ẩn dưới kết ấn dây đỏ đột nhiên bộc phát!
+Hai bàn tay hóa thành xương trắng của Vân Thiên Tôn đã tới trước mặt ả. Thần thông ẩn dưới kết ấn dây đỏ đột nhiên bộc phát!
 
 “Bất Dịch thần thông!”
 

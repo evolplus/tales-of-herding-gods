@@ -26,13 +26,13 @@ Vân Sơ Tụ thở dài, nước mắt như sắp rơi, giọng buồn bã:
 
 Liên Hoa Hồn nhớ đến chuyện Tần Mục kích phát dấu ấn của Hỏa Thiên Tôn đêm qua, cũng không khỏi hơi sợ hãi.
 
-Nếu không phải hai tỷ muội nàng thấy tình thế nhanh, dùng thần thông Quy Khư ẩn trốn, chỉ e cũng sẽ giống Phan Xuân Tẫn, Tú Du Phương và những người khác, chôn thân trong tòa thành này!
+Nếu không phải hai tỷ muội ả thấy tình thế nhanh, dùng thần thông Quy Khư ẩn trốn, chỉ e cũng sẽ giống Phan Xuân Tẫn, Tú Du Phương và những người khác, chôn thân trong tòa thành này!
 
 Dấu ấn Thiên Tôn quá đáng sợ, nhưng may là thần thông Quy Khư có chỗ huyền diệu riêng, mà điều then chốt nhất là đại đạo Quy Khư đến nay vẫn chưa bị ai phá giải.
 
-Chính nhờ đặc tính của thần thông Quy Khư, các nàng mới sống sót trong biến cố đêm qua.
+Chính nhờ đặc tính của thần thông Quy Khư, các ả mới sống sót trong biến cố đêm qua.
 
-Liên Hoa Hồn từng giao thủ với Tần Mục một lần, đánh gãy bốn cánh tay của Tần Mục. Nàng có lòng tin đánh bại Tần Mục, đoạt lại thân xác Nguyên Mẫu. Song thứ đáng sợ nhất của Tần Mục không phải thực lực, mà là hắn giỏi mượn mọi thứ có thể mượn, biến thành vũ khí của mình, ví như dấu ấn Hỏa Thiên Tôn tối qua.
+Liên Hoa Hồn từng giao thủ với Tần Mục một lần, đánh gãy bốn cánh tay của Tần Mục. Ả có lòng tin đánh bại Tần Mục, đoạt lại thân xác Nguyên Mẫu. Song thứ đáng sợ nhất của Tần Mục không phải thực lực, mà là hắn giỏi mượn mọi thứ có thể mượn, biến thành vũ khí của mình, ví như dấu ấn Hỏa Thiên Tôn tối qua.
 
 "Ngươi chuẩn bị đi, lấy thân xác của ta từ Quỷ Thuyền về, đổi lấy thân xác của ngươi."
 
@@ -80,7 +80,7 @@ Tần Mục thu dược liệu xong, tiếp tục lên đường, lòng tin trà
 
 Hắn nghĩ tới hai người Vân Sơ Tụ và Liên Hoa Hồn, khóe mắt không khỏi giật giật, hơi thiếu lòng tin.
 
-Về thân phận của hai nàng, hắn đã đoán sai.
+Về thân phận của hai ả, hắn đã đoán sai.
 
 Lạc Vô Song hỏi:
 

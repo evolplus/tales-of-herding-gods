@@ -146,7 +146,7 @@ Trong đại doanh Thiên Đình, các lộ quân hầu lần lượt xuất đ�
 
 Thân hình Đế hậu biến mất, khoảnh khắc sau đã xuất hiện trên không một tòa Quy Khư, ra tay quyết liệt!
 
-Ngay khi một chiêu thần thông của nàng nuốt chửng một chiếc lâu thuyền, đại hạm Diên Khang, bóng dáng quen thuộc xuất hiện trước mặt nàng. Hư Sinh Hoa và Lam Ngự Điền sóng vai đi tới.
+Ngay khi một chiêu thần thông của ả nuốt chửng một chiếc lâu thuyền, đại hạm Diên Khang, bóng dáng quen thuộc xuất hiện trước mặt ả. Hư Sinh Hoa và Lam Ngự Điền sóng vai đi tới.
 
 Khóe mắt Đế hậu nương nương giật giật.
 

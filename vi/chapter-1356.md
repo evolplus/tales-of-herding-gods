@@ -2,7 +2,7 @@
 
 Vân Sơ Tụ vội vã rời đi.
 
-Tần Mục nhìn theo nàng đi xa, lúc này mới thở phào nhẹ nhõm, trở lại lâu thuyền.
+Tần Mục nhìn theo ả đi xa, lúc này mới thở phào nhẹ nhõm, trở lại lâu thuyền.
 
 Ngụy Tùy Phong khẽ hỏi: “Đó là Nguyên Mẫu phu nhân? Sao giống như bị giẫm trúng chỗ đau vậy?”
 
@@ -36,7 +36,7 @@ Lâu thuyền đi vào Linh Năng Đối Thiên Kiều, chạy tới Tổ Đình
 
 Còn Vân Sơ Tụ linh hoạt cổ quái, tung tăng đi tới Văn Đạo Viện, tìm Vân Tiệm Ly.
 
-Vân Tiệm Ly nhìn thấy nàng liền không khỏi đau đầu. Nghĩ tới vị nghĩa muội này của mình là Nguyên Mẫu phu nhân, trong lòng hắn liền thấp thỏm.
+Vân Tiệm Ly nhìn thấy ả liền không khỏi đau đầu. Nghĩ tới vị nghĩa muội này của mình là Nguyên Mẫu phu nhân, trong lòng hắn liền thấp thỏm.
 
 Vân Sơ Tụ kéo hắn không buông, năn nỉ: “Ca, có một con tiện nhân nhỏ muốn cướp bảo vật của nghĩa muội của huynh. Huynh phải làm chủ cho nghĩa muội!”
 
@@ -50,7 +50,7 @@ Vân Tiệm Ly run bắn, xin tha: “Ta nào dám chọc vào Thiên Tôn? Xin 
 
 Sắc mặt Vân Sơ Tụ trầm xuống, rồi lại nở nụ cười: “Ngươi yên tâm. Lần này con tiện nhân nhỏ kia phái mèo nhỏ của ả tới tìm ta gây chuyện. Con mèo nhỏ kia chẳng qua là cảnh giới Lăng Tiêu, đối phó không khó. Hơn nữa ta còn có tỷ muội tốt. Địa Đức Nguyên Quân và Diên Tú Đế đều là chị em kết bái của ta. Ta đi tìm họ, ngươi đi cùng ta.”
 
-Vân Tiệm Ly xưa nay gan to bằng trời, lúc này cũng không khỏi mặt cắt không còn giọt máu, bị nàng kéo đi tìm Công Tôn Yến.
+Vân Tiệm Ly xưa nay gan to bằng trời, lúc này cũng không khỏi mặt cắt không còn giọt máu, bị ả kéo đi tìm Công Tôn Yến.
 
 Công Tôn Yến nghe rõ ý định của họ, nói: “Ta phải trấn thủ Địa Đức Thiên Cung, không thể đi cùng tỷ tỷ, nhưng chỗ ta có một đại cao thủ cảnh giới Lăng Tiêu viên mãn tên là Phượng Thu Vân. Nàng đi cùng các người, hẳn có thể đối phó thi yêu kia.”
 
@@ -66,7 +66,7 @@ Ba người đang định bay qua từ trên cao, đột nhiên sững sờ. Ch�
 
 Vân Sơ Tụ thở dài: “Chính là thi yêu trong nhục thân của người ta tác quái. Tiểu yêu tinh e rằng đã tham ngộ được một phần đại đạo pháp tắc trong nhục thân ta, mới có thể vô thanh vô tức đoạt mạng nhiều người như vậy.”
 
-Nàng phất phơ tay áo dài, cắn móng tay mình, để lộ trọn vẻ thiếu nữ.
+Ả phất phơ tay áo dài, cắn móng tay mình, để lộ trọn vẻ thiếu nữ.
 
 Vân Tiệm Ly và Phượng Thu Vân đều rùng mình.
 

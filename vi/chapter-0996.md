@@ -68,9 +68,9 @@ Tần Mục không nói nhiều, kéo tay nàng xông vào phòng. Thúc Quân c
 
 Cánh cửa phòng ầm một tiếng mở ra. Hai sừng trên đầu Hư Thiên Tôn như lửa cháy vọt lên trời, chín khúc mười tám vòng, giống hai dòng sông ma diễm U Đô.
 
-Nàng thương tích đầy mình, nhìn quanh bốn phía. Chỉ thấy Cầu Hư Không là từng đoạn dòng sáng, bốn phía đều là loạn lưu hư không sụp đổ co rút, còn Tần Mục và những người kia chẳng thấy bóng dáng, nàng không khỏi hừ lạnh, đột nhiên xoay người.
+Ả thương tích đầy mình, nhìn quanh bốn phía. Chỉ thấy Cầu Hư Không là từng đoạn dòng sáng, bốn phía đều là loạn lưu hư không sụp đổ co rút, còn Tần Mục và những người kia chẳng thấy bóng dáng, ả không khỏi hừ lạnh, đột nhiên xoay người.
 
-Hỏa Thiên Tôn cũng từ trong phòng bước ra, đối diện chính diện với nàng.
+Hỏa Thiên Tôn cũng từ trong phòng bước ra, đối diện chính diện với ả.
 
 Hắn cũng thương tích đầy mình, thương thế không nhẹ, trong thời gian ngắn khó khỏi hẳn.
 

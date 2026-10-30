@@ -22,7 +22,7 @@ Dị bảo Phi Yên là tu vi khi Nhị công tử Vô Cực thành đạo biế
 
 Nhị công tử Vô Cực không thể in đại đạo Quy Khư vào Chung Cực Hư Không, vì vậy phế bỏ tu vi Đạo Cảnh của bản thân, chuyển sang đi con đường Quy Khư thành đạo.
 
-Tu vi Đạo Cảnh của nàng với nàng mà nói là độc dược, vì vậy nhất định phải cắt bỏ. Nhưng dù sao nàng cũng là công tử của Di La Cung, tu vi bị chém xuống cũng không hề tầm thường.
+Tu vi Đạo Cảnh của ả với ả mà nói là độc dược, vì vậy nhất định phải cắt bỏ. Nhưng dù sao ả cũng là công tử của Di La Cung, tu vi bị chém xuống cũng không hề tầm thường.
 
 Bỗng nhiên trong Ngọc Kinh Thành lại có dị bảo bay ra. Điện chủ Di La Cung mang theo dị bảo của công tử Tử Tiêu, Lăng Tiêu, Trạm Tịch, Vô Tông bay ra, cùng nhau trấn áp Hỗn Nguyên Đỉnh.
 

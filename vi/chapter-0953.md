@@ -1,14 +1,14 @@
 # Chương 953: Phong ma
 
-Lúc còn trên thuyền, Vân Sơ Tụ từng nhắc tới chuyện năm đó nàng mang theo hai vị Thiên Sư của Thiên Đình, Thần Võ quân trong Thập vệ Thiên Đình, cùng rất nhiều đệ tử đắc ý của mình tiến vào Thái Hư, kết quả thương vong thảm trọng.
+Lúc còn trên thuyền, Vân Sơ Tụ từng nhắc tới chuyện năm đó ả mang theo hai vị Thiên Sư của Thiên Đình, Thần Võ quân trong Thập vệ Thiên Đình, cùng rất nhiều đệ tử đắc ý của mình tiến vào Thái Hư, kết quả thương vong thảm trọng.
 
-Thần Võ quân toàn quân bị diệt, đệ tử của nàng cũng không một ai sống sót. Hai vị Thiên Sư cũng chôn thân trong Thái Hư.
+Thần Võ quân toàn quân bị diệt, đệ tử của ả cũng không một ai sống sót. Hai vị Thiên Sư cũng chôn thân trong Thái Hư.
 
-Nàng từng nhắc trong hai vị Thiên Sư này có một vị Nhạc Thiên Sư, tham phá bí mật tâm ma Thái Hư, nhưng vị Nhạc Thiên Sư này cũng không thể sống sót đi ra khỏi Thái Hư.
+Ả từng nhắc trong hai vị Thiên Sư này có một vị Nhạc Thiên Sư, tham phá bí mật tâm ma Thái Hư, nhưng vị Nhạc Thiên Sư này cũng không thể sống sót đi ra khỏi Thái Hư.
 
-Nhưng Tần Mục vẫn nhìn thấu nàng.
+Nhưng Tần Mục vẫn nhìn thấu ả.
 
-Khi ấy nàng vì tự bảo vệ mình đã giết những Thần Võ quân kia cùng đệ tử của mình, thậm chí còn có cả hai vị Thiên Sư!
+Khi ấy ả vì tự bảo vệ mình đã giết những Thần Võ quân kia cùng đệ tử của mình, thậm chí còn có cả hai vị Thiên Sư!
 
 Nếu ác đạo nhân Nhạc Đình Ca này chính là vị Nhạc Thiên Sư trong miệng Vân Sơ Tụ, vậy ông ta làm thế nào sống sót dưới cuộc tàn sát của một vị Thiên Tôn?
 
@@ -178,7 +178,7 @@ Thần thông vực sâu kia bay tới, bay vào mi tâm Liên Hoa Hồn.
 
 Mi tâm thiếu nữ này hiện lên một dấu ấn màu đỏ, rồi biến mất.
 
-Nàng lấy ra một tấm gương. Trên gương hiện ra năm điểm đỏ, trong đó bốn điểm đỏ đang di chuyển.
+Ả lấy ra một tấm gương. Trên gương hiện ra năm điểm đỏ, trong đó bốn điểm đỏ đang di chuyển.
 
 Đây là bảo vật Hạo Thiên Tôn luyện chế cho mười chín đệ tử trong chuyến đi này, gọi là Hồn Kính. Mỗi đệ tử đều có thể thông qua điểm đỏ trên Hồn Kính nhanh chóng tìm được những người khác, như vậy có thể tụ tập lại, liên thủ trừ khử Tần Mục.
 
@@ -190,7 +190,7 @@ Liên Hoa Hồn lộ nụ cười, nâng Hồn Kính bay về phía một điể
 
 "Chín người khác không chôn thân trên đường thì cũng vào vùng đất Thái Hư rồi chết trong sự quỷ dị của Thái Hư. Chỉ không biết có ai bị Mục Thiên Tôn trừ khử không, mười tám pháp Đồ Mục không biết còn lại mấy loại. Nhưng ta muốn giết Mục Thiên Tôn cũng không cần dùng bao nhiêu loại pháp giết Mục."
 
-Rất nhanh, nàng đuổi kịp một điểm đỏ. Chỉ thấy một thiếu nữ đang chạy như bay trên hoang nguyên, trong tay cũng nâng một tấm gương.
+Rất nhanh, ả đuổi kịp một điểm đỏ. Chỉ thấy một thiếu nữ đang chạy như bay trên hoang nguyên, trong tay cũng nâng một tấm gương.
 
 "Lý sư tỷ!" Liên Hoa Hồn gọi lớn.
 
@@ -202,9 +202,9 @@ Sắc mặt Liên Hoa Hồn hơi đổi, đuổi tới:
 
 "Nếu đã bị sư tỷ biết, vậy ta càng không thể để sư tỷ sống. Đừng chạy nữa, tỷ không thoát khỏi lòng bàn tay ta đâu."
 
-Vị Lý sư tỷ kia tuy là Chân Thần, lại không dám tranh phong với nàng, hoảng hốt chạy trốn.
+Vị Lý sư tỷ kia tuy là Chân Thần, lại không dám tranh phong với ả, hoảng hốt chạy trốn.
 
-Liên Hoa Hồn giơ tay chỉ một cái, phía trước xuất hiện một vòng xoáy màu đen. Thân hình nàng lao vào vòng xoáy, biến mất.
+Liên Hoa Hồn giơ tay chỉ một cái, phía trước xuất hiện một vòng xoáy màu đen. Thân hình ả lao vào vòng xoáy, biến mất.
 
 Lý sư tỷ đang chạy trốn, đột nhiên bên cạnh xuất hiện một vòng xoáy màu đen. Nàng đang định dừng bước, vòng xoáy kia bỗng phình to nuốt chửng nàng.
 

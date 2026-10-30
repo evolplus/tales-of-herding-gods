@@ -1,6 +1,6 @@
 # Chương 877: Chào ngươi, Ngụy Tùy Phong
 
-"Muội muội của Đế hậu nương nương... Thi thể của nàng sao lại ở đây?"
+"Muội muội của Đế hậu nương nương... Thi thể của ả sao lại ở đây?"
 
 Trong đầu Tần Mục trống rỗng, gần như không thể tin vào mắt mình!
 
@@ -38,7 +38,7 @@ Ngụy Tùy Phong thì phát hiện chuyện mờ ám, kẻ chết thật ra là
 
 Tần Mục định thần lại, rơi vào trầm tư: "Đế hậu nương nương trong Thiên Đình chắc chắn là một trong hai chị em họ, vậy người đó là ai? Có lẽ còn có một khả năng khác, khi ấy chị em Đế hậu đang diễn trò kẻ tung người hứng, muội muội giả vờ tập kích tỷ tỷ, trước mắt mọi người đánh chết tỷ tỷ, tỷ tỷ giả chết thoát thân hóa thành Tuyệt Vô Trần, muội muội thì trở lại Thiên Đình, từ thân phận thay thế trở thành Đế hậu chính thức."
 
-"Sau khi Thiên Đế cổ thần bị giết, Đế hậu liền trừ khử muội muội, đưa thi thể nàng đến nơi này, chôn vùi chân tướng! Mãi đến khi Ngụy Tùy Phong đến nơi này, phát hiện thi thân muội muội Đế hậu..."
+"Sau khi Thiên Đế cổ thần bị giết, Đế hậu liền trừ khử muội muội, đưa thi thể ả đến nơi này, chôn vùi chân tướng! Mãi đến khi Ngụy Tùy Phong đến nơi này, phát hiện thi thân muội muội Đế hậu..."
 
 "Vẫn có chỗ không thông! Thi thân của chị em Đế hậu, một người giấu trên Quỷ thuyền, một người giấu ở Quy Khư, vậy hiện giờ họ là ai? Trong Thiên Đình còn Đế hậu không? Hay là nói, Đế hậu không trừ khử muội muội, mà là chị em đồng thể, ở lại Thiên Đình khống chế nhục thân Thiên Đế?"
 
@@ -56,7 +56,7 @@ Tần Mục nhíu mày. Quy Khư cực kỳ cổ quái, khắc chế thần thô
 
 Lông mày hắn càng nhíu chặt hơn, đi vòng quanh quan quách, nhìn nhục thân muội muội Đế hậu trong quan tài mà trầm ngâm không thôi.
 
-Thật sự phải mang nàng đi sao?
+Thật sự phải mang ả đi sao?
 
 Đột nhiên, tiếng nước ngập trời truyền đến từ bên ngoài. Tần Mục ngẩn ra, nhanh chóng bước ra khỏi cung đỏ, ngửa đầu nhìn ra ngoài. Tiếng nước truyền đến từ ngoài trời, nhưng không thấm vào thế giới trong hoa.
 

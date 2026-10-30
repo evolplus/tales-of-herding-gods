@@ -8,7 +8,7 @@ Minh Nhai Thái Tử không hỏi không đáp, mang thi yêu bay lên, biến m
 
 Ba người vội vàng đuổi qua. Đợi tới địa phận của U Thiên Tôn, Vân Sơ Tụ lập tức phát tác, tức giận nói: “U Thiên Tôn, ông chiếm nhục thân của ta là đạo lý gì? Ông cô đơn một mình, chẳng lẽ muốn vô lễ với nữ nhân của Thiên Đế?”
 
-U Thiên Tôn không chịu nổi nàng đanh đá như vậy. Thêm nữa, Vân Sơ Tụ dùng dáng vẻ của Tuyệt Vô Trần, mà năm xưa khi Tuyệt Vô Trần xuất hiện, ông cũng từng mê luyến nhan sắc của Tuyệt Vô Trần.
+U Thiên Tôn không chịu nổi ả đanh đá như vậy. Thêm nữa, Vân Sơ Tụ dùng dáng vẻ của Tuyệt Vô Trần, mà năm xưa khi Tuyệt Vô Trần xuất hiện, ông cũng từng mê luyến nhan sắc của Tuyệt Vô Trần.
 
 Bây giờ thấy Vân Sơ Tụ, U Thiên Tôn liền không nói nên lời, chỉ vẫy tay với Vân Tiệm Ly.
 
@@ -28,11 +28,11 @@ U Thiên Tôn thu Nguyên Mẫu thi yêu về.
 
 Vân Sơ Tụ nhìn nhục thân của mình, lại nhìn U Thiên Tôn, cười lạnh nói: “Ông là người thật thà, U Thiên Tôn, hành động lần này của ông không giống ông! Ai bày chủ ý tồi cho ông? Là Mục Thiên Tôn phải không?”
 
-U Thiên Tôn lặng lẽ đeo mặt nạ quỷ lên mặt, khiến nàng không nhìn thấy biểu cảm của mình.
+U Thiên Tôn lặng lẽ đeo mặt nạ quỷ lên mặt, khiến ả không nhìn thấy biểu cảm của mình.
 
 Vân Sơ Tụ cười lạnh nói: “Ta biết là hắn! Cũng chỉ có hắn mới âm hiểm như vậy. Ông dời cả Tà Vô Kỳ và Minh Nhai Thái Tử ra, e rằng cũng là chủ ý của hắn chứ? Ông đây là đắc tội Hạo Thiên Tôn đến chết!”
 
-Nàng xoay người rời đi: “Ta sẽ tới U Đô một chuyến, sửa tôn Thần Khí Ngự Thiên Tôn kia. Đến lúc đó, nếu ông không trả nhục thân cho ta, còn dám đưa ra bất cứ yêu cầu nào, lão nương sẽ đích thân giáng lâm làm thịt ông!”
+Ả xoay người rời đi: “Ta sẽ tới U Đô một chuyến, sửa tôn Thần Khí Ngự Thiên Tôn kia. Đến lúc đó, nếu ông không trả nhục thân cho ta, còn dám đưa ra bất cứ yêu cầu nào, lão nương sẽ đích thân giáng lâm làm thịt ông!”
 
 U Thiên Tôn vén mặt nạ lên, thở dài, khuôn mặt già nua đầy nếp nhăn.
 

@@ -18,7 +18,7 @@ Trên Thái Thanh cảnh Vô Ưu Hương, Lam Ngự Điền buồn chán ngồi 
 
 Một lát sau, Nguyên Mẫu phu nhân tỉnh lại, tiếp tục chủ đề vừa rồi, cười hì hì nói: “Ai mà ngờ Ngự Thiên Tôn năm xưa tuấn tú anh võ nhường ấy, nay lại biến thành tiểu mập mạp. Tỷ tỷ ta thấy ngươi chắc chắn sẽ đau lòng lắm.”
 
-Lam Ngự Điền ngẩng đầu, liếc nàng một cái, ném viên đá nhỏ trong tay ra ngoài: “Đã không còn mập rồi. Nguyên Mẫu, ngươi bị người ta ám toán.”
+Lam Ngự Điền ngẩng đầu, liếc ả một cái, ném viên đá nhỏ trong tay ra ngoài: “Đã không còn mập rồi. Nguyên Mẫu, ngươi bị người ta ám toán.”
 
 Nguyên Mẫu phu nhân tò mò nói: “Ta bị người ta ám toán? Sao ta không biết?”
 
@@ -26,7 +26,7 @@ Nguyên Mẫu phu nhân tò mò nói: “Ta bị người ta ám toán? Sao ta k
 
 Lam Ngự Điền nghiêm túc nói: “Vừa rồi ngươi tới tìm ta, trong thời gian ngắn như vậy, ngươi đã thất thần hai lần! Mỗi lần thất thần đều rất ngắn, một chữ mười hai giây ba hốt, ngươi sẽ tỉnh lại.” (Chú: chữ, giây, hốt là đơn vị tính giờ cổ. Một chữ khoảng năm phút, một giây chín giây, một hốt 0,09 giây.)
 
-Nguyên Mẫu phu nhân chớp chớp mắt, nàng hoàn toàn không cảm thấy mình thất thần.
+Nguyên Mẫu phu nhân chớp chớp mắt, ả hoàn toàn không cảm thấy mình thất thần.
 
 Lam Ngự Điền chống cằm, suy tư nói: “Chắc là ngươi trúng thần thông của người khác. Nếu ta muốn giết ngươi, chắc chắn có thể giết ngươi. Nhưng ta lại cảm nhận được trong cơ thể ngươi có một sức mạnh kỳ lạ bị ngươi phong ấn. Nếu ta giết ngươi, sẽ thả sức mạnh ấy ra ngoài. Khi ấy, chắc chắn ta lại đánh không lại ngươi. Dù vây đánh cũng không đánh lại.”
 
@@ -52,13 +52,13 @@ Nguyên Mẫu là thủ đoạn do người ta tạo ra để áp chế Đế h�
 
 Mà người kia chắc chắn là Tần Mục!
 
-Sở dĩ Nguyên Mẫu phu nhân luân hồi hết lần này tới lần khác, có thể chỉ vì Đế hậu quá mạnh, Tần Mục không thể áp chế nàng hoàn toàn, Luân Hồi thần thông xuất hiện sơ hở.
+Sở dĩ Nguyên Mẫu phu nhân luân hồi hết lần này tới lần khác, có thể chỉ vì Đế hậu quá mạnh, Tần Mục không thể áp chế ả hoàn toàn, Luân Hồi thần thông xuất hiện sơ hở.
 
 Lam Ngự Điền thu hồi thần thức, trợn to mắt. Qua một lát, hắn mới lẩm bẩm: “Ca ca ta thật hiểm... Đạo luân hồi của huynh ấy đã tới mức không thể tưởng tượng nổi, ta xem không hiểu.”
 
 Nguyên Mẫu phu nhân đối với hắn đã không còn nguy hiểm, nhưng Luân Hồi thần thông Tần Mục để lại sớm muộn gì cũng sẽ bị Đế hậu nương nương mài mòn hết. Đến khi ấy, Đế hậu sẽ hoàn toàn dung hợp Nguyên Mẫu phu nhân, biến thành Quy Khư Thần Nữ thật sự, giết khắp bốn phương, cực kỳ nguy hiểm!
 
-Lam Ngự Điền chống cằm suy tư: “Nhưng ca ca ta có thể ám toán Đế hậu nương nương, khiến Đế hậu xuất hiện tình trạng khựng lại. Mỗi lần nàng khựng lại, ta không có nguy hiểm. Nếu đã như vậy, sao ta không nghĩ xem làm thế nào mới có thể gieo một thần thông gì khác trong cơ thể Đế hậu? Dù tương lai Đế hậu thoát khốn, mức độ nguy hiểm cũng không lớn như vậy...”
+Lam Ngự Điền chống cằm suy tư: “Nhưng ca ca ta có thể ám toán Đế hậu nương nương, khiến Đế hậu xuất hiện tình trạng khựng lại. Mỗi lần ả khựng lại, ta không có nguy hiểm. Nếu đã như vậy, sao ta không nghĩ xem làm thế nào mới có thể gieo một thần thông gì khác trong cơ thể Đế hậu? Dù tương lai Đế hậu thoát khốn, mức độ nguy hiểm cũng không lớn như vậy...”
 
 Hắn động não, trầm tư khổ tưởng. Thái Thanh cảnh quả thật đúng như tên gọi, thanh tịnh vô cùng, còn các chư thiên khác của Vô Ưu Hương thì chém giết càng lúc càng thảm liệt.
 
@@ -78,7 +78,7 @@ Hai người đều nổi danh vì nguyên thần rộng lớn, sức mạnh ngu
 
 Nguyên thần của U Thiên Tôn mạnh hơn một chút. Những năm này hắn thử phát huy sở trường của mình đến cực hạn, cố gắng đạt tới nguyên thần thành đạo, thực lực nguyên thần càng thêm hùng hậu.
 
-Thế nhưng Hư Thiên Tôn chiếm lợi thế thân xác mạnh mẽ. Hơn nữa sau khi luyện hóa thân xác Thổ Bá, nhận được U Đô Đại Đạo không hoàn chỉnh, pháp lực của nàng càng có tiến bộ vượt bậc. Lại thêm hơn mười năm được Chủ điện Linh Quan chỉ điểm, nàng tiến bộ thần tốc!
+Thế nhưng Hư Thiên Tôn chiếm lợi thế thân xác mạnh mẽ. Hơn nữa sau khi luyện hóa thân xác Thổ Bá, nhận được U Đô Đại Đạo không hoàn chỉnh, pháp lực của ả càng có tiến bộ vượt bậc. Lại thêm hơn mười năm được Chủ điện Linh Quan chỉ điểm, ả tiến bộ thần tốc!
 
 Trận chiến của hai người họ vô cùng đặc sắc. Đạo pháp U Đô vốn nổi danh quỷ dị khó lường, ở trong tay họ, sự quỷ dị ấy càng được phát huy đến cực hạn.
 

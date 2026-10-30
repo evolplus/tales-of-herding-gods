@@ -146,7 +146,7 @@ Hai vị Thái Cực cổ thần chỉnh đốn tướng sĩ, quay đầu nhìn 
 
 “Mục Thiên Tôn chết rồi?”
 
-Khóe mắt Thái Âm Thiên Tôn giật giật. Nàng muốn tiến lên xem xét, nhưng không dám tùy tiện tiến lên, lập tức gọi hơn trăm tướng sĩ Thiên Đình tới, quát: “Vào xem thử, hắn chết hay còn sống!”
+Khóe mắt Thái Âm Thiên Tôn giật giật. Ả muốn tiến lên xem xét, nhưng không dám tùy tiện tiến lên, lập tức gọi hơn trăm tướng sĩ Thiên Đình tới, quát: “Vào xem thử, hắn chết hay còn sống!”
 
 Hơn trăm tướng sĩ kia trong lòng có một vạn điều không muốn, nhưng quân lệnh như núi, đành phải cắn răng bước vào lĩnh vực tàn phá của Tần Mục.
 

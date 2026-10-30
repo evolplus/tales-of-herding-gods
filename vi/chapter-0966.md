@@ -70,9 +70,9 @@ Tần Mục tâm thần rung động, cười nói: "Đế hậu và Nguyên M�
 
 Sắc mặt Liên Hoa Hồn tái nhợt. Vân Sơ Tụ thì uốn éo trên mặt đất, cười khúc khích: "Ngươi tới đánh đi, tới đánh mông ta đi!"
 
-Nàng như con cá mắc cạn, khiến người ta không nhịn được muốn nhào tới bắt lấy.
+Ả như con cá mắc cạn, khiến người ta không nhịn được muốn nhào tới bắt lấy.
 
-Tần Mục tuy biết không ổn, nhưng vẫn không nhịn được muốn nhào qua bắt nàng, trong lòng không khỏi do dự: "Không thể tha cho Đế hậu và Nguyên Mẫu..."
+Tần Mục tuy biết không ổn, nhưng vẫn không nhịn được muốn nhào qua bắt ả, trong lòng không khỏi do dự: "Không thể tha cho Đế hậu và Nguyên Mẫu..."
 
 Nhưng bảo hắn thật sự ra tay tàn nhẫn, hắn cũng không khỏi có chút chần chừ.
 

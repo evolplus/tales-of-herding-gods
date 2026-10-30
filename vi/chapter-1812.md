@@ -22,7 +22,7 @@ Trong ba tỷ rưỡi năm sau đó, bốn bên công phạt. Tần Mục vẫn 
 
 Nhưng Tần Mục đã hạn chế bọn họ đến chết.
 
-Từ sau khi Tần Mục phá hủy Quy Khư Đại Uyên, phong ấn lại hư không Tổ Đình, công tử Vô Cực mất đi nguồn sức mạnh. Muốn khôi phục tới trạng thái đỉnh phong, nàng chỉ có thể dựa vào chính mình từng bước tu luyện.
+Từ sau khi Tần Mục phá hủy Quy Khư Đại Uyên, phong ấn lại hư không Tổ Đình, công tử Vô Cực mất đi nguồn sức mạnh. Muốn khôi phục tới trạng thái đỉnh phong, ả chỉ có thể dựa vào chính mình từng bước tu luyện.
 
 Vô Nhai lão nhân cũng mất đi nguồn sức mạnh. Cường giả sử tiền dưới trướng lão đã không còn bậc thành đạo mới.
 

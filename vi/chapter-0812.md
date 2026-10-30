@@ -6,11 +6,11 @@ Trong lòng Tần Mục khẽ động, dùng thần thức hỏi Thiên Công:
 
 "Vậy nữ tử còn lại trong quan tài là Đế hậu nương nương sao?"
 
-Ánh mắt hắn rơi lên nữ tử kia. Thân thể nàng như được trời đất tạo nên, là đại đạo giữa thiên địa sinh ra. Tuy không diễm lệ như Tuyệt Vô Trần, nhưng cũng là tuyệt sắc nữ tử hiếm gặp.
+Ánh mắt hắn rơi lên nữ tử kia. Thân thể ả như được trời đất tạo nên, là đại đạo giữa thiên địa sinh ra. Tuy không diễm lệ như Tuyệt Vô Trần, nhưng cũng là tuyệt sắc nữ tử hiếm gặp.
 
-Nàng có khí độ mẫu nghi thiên hạ. Y phục trên người là vải dệt từ tơ luyện bằng thần kim quý trọng nhất, trên đầu đội mũ phượng, giữa mi tâm có một điểm chu sa, phấn son môi đỏ.
+Ả có khí độ mẫu nghi thiên hạ. Y phục trên người là vải dệt từ tơ luyện bằng thần kim quý trọng nhất, trên đầu đội mũ phượng, giữa mi tâm có một điểm chu sa, phấn son môi đỏ.
 
-Trên người nàng có thương thế nghiêm trọng. Theo Tần Mục, vết thương của nàng không tính là đặc biệt trí mạng, vẫn có cách chữa trị.
+Trên người ả có thương thế nghiêm trọng. Theo Tần Mục, vết thương của ả không tính là đặc biệt trí mạng, vẫn có cách chữa trị.
 
 Nhưng thời viễn cổ không có điều kiện như ngày nay, thương thế trên người nữ tử này đã đủ chí mạng.
 
@@ -24,7 +24,7 @@ Thiên Công mượn đôi mắt hắn quan sát hai nữ thi trong quan tài, t
 
 "Đế hậu nương nương vậy mà thật sự đã chết. Vị nữ tử này cũng thần thánh phi phàm, không ngờ rốt cuộc lại hóa thành thi thể. Ta vẫn luôn cho rằng thủ lĩnh cổ thần đầu tiên vẫn lạc là Thiên Âm nương nương, không ngờ lại là nàng. Đế hậu trong Thiên Đình rốt cuộc là ai? Chẳng lẽ là..."
 
-"Thiên Công có thể khẳng định nàng chính là Đế hậu?"
+"Thiên Công có thể khẳng định ả chính là Đế hậu?"
 
 Tần Mục đột nhiên nói:
 
@@ -40,7 +40,7 @@ Tần Mục cẩn thận quan sát điểm chu sa giữa mi tâm thi thân Đế
 
 Thiên Công thở dài:
 
-"Vì Thiên Đế mà chị em tương tàn, hà tất phải vậy? Nhưng Tuyệt Vô Trần vì sao cũng chết? Nữ tử này dụ dỗ Thiên Đế chuyển thế, tập sát Thiên Đế, đúng là lòng dạ ác độc, thủ đoạn phi phàm. Thi thân của nàng vì sao lại xuất hiện ở đây? Ai đã giết nàng rồi đặt nàng ở nơi này?"
+"Vì Thiên Đế mà chị em tương tàn, hà tất phải vậy? Nhưng Tuyệt Vô Trần vì sao cũng chết? Nữ tử này dụ dỗ Thiên Đế chuyển thế, tập sát Thiên Đế, đúng là lòng dạ ác độc, thủ đoạn phi phàm. Thi thân của ả vì sao lại xuất hiện ở đây? Ai đã giết ả rồi đặt ả ở nơi này?"
 
 Tần Mục bị ông hỏi đến mờ mịt. Những vấn đề Thiên Công hỏi cũng là điều hắn muốn hỏi, nhưng hiển nhiên Thiên Công cũng không biết đáp án, nên mới hỏi hắn.
 
@@ -78,7 +78,7 @@ Thiên Công nói:
 
 "Đúng là một giai nhân tuyệt sắc. Nếu có thể ở chung một phòng với người như vậy... Kỳ lạ, trên người nàng không có vết thương rõ ràng!" Xích Minh Thần Tử phát hiện điều gì, đột nhiên nói.
 
-Mọi người vội quan sát kỹ. Tuyệt Vô Trần trong quan tài quả thật không có bất kỳ vết thương nào. Nàng yên tĩnh nằm ở đó, như đang ngủ, gương mặt trắng nõn phảng phất chút hồng phấn nhạt, chỉ là không có hơi thở.
+Mọi người vội quan sát kỹ. Tuyệt Vô Trần trong quan tài quả thật không có bất kỳ vết thương nào. Ả yên tĩnh nằm ở đó, như đang ngủ, gương mặt trắng nõn phảng phất chút hồng phấn nhạt, chỉ là không có hơi thở.
 
 "Chẳng lẽ có người dùng pháp thuật U Đô, cưỡng ép tước đoạt hồn phách của nàng?"
 

@@ -26,7 +26,7 @@ Từ lúc đó, mỗi ngày tướng sĩ Thiên Đình đều trốn đi một p
 
 Ánh mắt Đế hậu nương nương khẽ động, thầm nghĩ: "Đạo tâm của hắn đã xong rồi. Cho dù hắn trở về Tổ Đình, cũng không thể chấn chỉnh cờ trống nữa. Các tộc phản loạn, số tướng sĩ ngày càng ít, Thiên Đình ở Tổ Đình căn bản không phát triển nổi. Trận này, Mục Thiên Tôn đã đánh sụp hắn hoàn toàn! Có nên thay thế hắn..."
 
-Nàng lập tức lắc đầu. Hiện giờ Diên Khang chiếm hết thiên thời địa lợi nhân hòa, chư thiên vạn giới phản loạn, địa bàn của Thiên Đình co rút dữ dội, Tổ Đình có giữ được hay không vẫn còn chưa biết.
+Ả lập tức lắc đầu. Hiện giờ Diên Khang chiếm hết thiên thời địa lợi nhân hòa, chư thiên vạn giới phản loạn, địa bàn của Thiên Đình co rút dữ dội, Tổ Đình có giữ được hay không vẫn còn chưa biết.
 
 Bây giờ đoạt quyền, tự mình xưng đế, chỉ là chuốc khổ vào thân!
 
@@ -40,7 +40,7 @@ Quyền lực vốn là món hàng có thể mua bán trao đổi. Đổi triề
 
 Đế hậu đã thấy quá nhiều.
 
-Nàng vừa nghĩ tới đây, đột nhiên Lăng Tiêu Bảo Điện sau đầu Hạo Thiên Đế chấn động, kết ấn dây đỏ tự mở ra. Từng luồng đạo uy cuồn cuộn trào ra, trong khoảnh khắc tràn đầy cơ thể Hạo Thiên Đế, mãnh liệt không dứt!
+Ả vừa nghĩ tới đây, đột nhiên Lăng Tiêu Bảo Điện sau đầu Hạo Thiên Đế chấn động, kết ấn dây đỏ tự mở ra. Từng luồng đạo uy cuồn cuộn trào ra, trong khoảnh khắc tràn đầy cơ thể Hạo Thiên Đế, mãnh liệt không dứt!
 
 Tim Đế hậu nương nương nhảy dựng, vội vàng xóa sạch những tính toán nhỏ trong lòng.
 
@@ -124,7 +124,7 @@ Hạo Thiên Đế thu dọn tâm tình, nói với Đế hậu nương nương:
 
 Đế hậu nương nương cười dịu dàng nói: "Hạo nhi cứ đi."
 
-Hạo Thiên Đế nghe nàng nói Hạo nhi chứ không phải bệ hạ, trong lòng có phần không vui: "Đợi đến khi ta Đông Sơn tái khởi, tất cả những gì ta mất đều phải đòi lại gấp bội!"
+Hạo Thiên Đế nghe ả nói Hạo nhi chứ không phải bệ hạ, trong lòng có phần không vui: "Đợi đến khi ta Đông Sơn tái khởi, tất cả những gì ta mất đều phải đòi lại gấp bội!"
 
 Hắn lắc mình rời đi.
 

@@ -10,7 +10,7 @@ Sau lưng hắn còn có Thanh Long như dải lụa, quấn quanh toàn thân.
 
 Bậc thành đạo của vũ trụ quá khứ này có dung mạo dữ tợn, không giống Thần tộc, Ma tộc, Nhân tộc hay những sinh linh hậu thiên của thế gian hiện nay.
 
-Hư Thiên Tôn nén nỗi chấn kinh trong lòng, ánh mắt lại không tự chủ được rơi xuống rốn Chủ điện Linh Quan. Cái đầu rồng kia vậy mà mở mắt, nhìn nàng một cái.
+Hư Thiên Tôn nén nỗi chấn kinh trong lòng, ánh mắt lại không tự chủ được rơi xuống rốn Chủ điện Linh Quan. Cái đầu rồng kia vậy mà mở mắt, nhìn ả một cái.
 
 Tim Hư Thiên Tôn thót lên, vội dời mắt đi.
 
@@ -34,7 +34,7 @@ Vị Chủ điện Linh Quan này hẳn chính là hộ pháp thần của Di La
 
 Đợi đến khi chư thiên Thiên Hồ hoàn toàn bị luyện hóa thành vật hiến tế, thân thể Chủ điện Linh Quan cuối cùng cũng thoát khỏi kiếp Phá Diệt của kỷ thứ mười sáu, giáng lâm U Đô.
 
-Chủ điện Linh Quan duỗi thân thể. Hư Thiên Tôn không tự chủ được lùi liền mấy bước. Sức mạnh hắn vô tình tiết lộ khiến nàng khó lòng chịu nổi, buộc nàng phải lui lại tránh khỏi luồng khí tức cuồng bạo ấy.
+Chủ điện Linh Quan duỗi thân thể. Hư Thiên Tôn không tự chủ được lùi liền mấy bước. Sức mạnh hắn vô tình tiết lộ khiến ả khó lòng chịu nổi, buộc ả phải lui lại tránh khỏi luồng khí tức cuồng bạo ấy.
 
 Hạo Thiên Đế vẫn đứng sừng sững bất động. Chủ điện Linh Quan mang đến cho hắn cảm giác áp bách cực mạnh, nhưng vẫn chưa đến mức khiến hắn phải lùi bước.
 
@@ -64,11 +64,11 @@ Chủ điện Linh Quan thử một phen, cau chặt mày, không cưỡng ép t
 
 Ánh mắt hắn rơi xuống người Hạo Thiên Đế. Hạo Thiên Đế nghiêng đầu nhìn Hư Thiên Tôn, nói: “Chủ điện Linh Quan pháp lực vô biên, chính là chiến lực số một của Thiên Đình ta! Hư ái khanh, ngươi hãy hiến tế bốn đại chư thiên Ngọc Cơ, Sư Tú, Linh Thư, Linh Uyên, bảo đảm Đạo Thụ của điện chủ đến được đây. Việc này vô cùng trọng đại, lập tức đi làm.”
 
-Dù Hư Thiên Tôn có phần không tình nguyện, nàng vẫn lập tức đi làm.
+Dù Hư Thiên Tôn có phần không tình nguyện, ả vẫn lập tức đi làm.
 
-Sinh linh trong bốn đại chư thiên Ngọc Cơ, Sư Tú, Linh Thư, Linh Uyên đều đã chết trong tay Hư Thiên Tôn. Bốn đại chư thiên cũng đã bị nàng ma hóa, kéo vào U Đô, phía trên đầy quỷ thần và Ma Thần, đã là địa bàn của nàng.
+Sinh linh trong bốn đại chư thiên Ngọc Cơ, Sư Tú, Linh Thư, Linh Uyên đều đã chết trong tay Hư Thiên Tôn. Bốn đại chư thiên cũng đã bị ả ma hóa, kéo vào U Đô, phía trên đầy quỷ thần và Ma Thần, đã là địa bàn của ả.
 
-Hạo Thiên Đế bảo nàng giao địa bàn của mình ra hiến tế, nàng đương nhiên hơi không vui.
+Hạo Thiên Đế bảo ả giao địa bàn của mình ra hiến tế, ả đương nhiên hơi không vui.
 
 “Chỉ một điện chủ đã cần hiến tế năm đại chư thiên mới có thể hoàn toàn giáng lâm. Nếu điện chủ bảy mươi hai điện của Ngọc Kinh Thành đều giáng lâm, e rằng phải hiến tế ba trăm sáu mươi chư thiên!”
 
@@ -96,7 +96,7 @@ Hạo Thiên Đế cáo từ rời đi, nói: “Đạo huynh cứ yên tâm. N�
 
 “Linh Quan đạo huynh, đời trước vì sao ngươi chỉ tu thành Đạo hoa mà chưa tu thành Đạo quả?” Hư Thiên Tôn hỏi.
 
-Chủ điện Linh Quan liếc nàng một cái. Một lúc sau hắn mới nói: “Thời gian ngắn, linh năng không đủ.”
+Chủ điện Linh Quan liếc ả một cái. Một lúc sau hắn mới nói: “Thời gian ngắn, linh năng không đủ.”
 
 Hư Thiên Tôn không hiểu ý hắn.
 

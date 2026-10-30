@@ -72,13 +72,13 @@ Tịch Mộ Hồng, Tịch Thiên Quân là một nam tử tuấn mỹ, chỉ l�
 
 Hư Thiên Tôn nhìn hắn một cái, thong thả nói: “Mạnh Vân Quy tuy thông minh, nhưng tư tâm quá nhiều, không thuần túy bằng ngươi. Ngươi đi đi. Chờ đã!”
 
-Ánh mắt nàng nhìn chằm chằm Tịch Thiên Quân: “Nếu Hạo Thiên Tôn trọng thương không cứu được, ngươi hiểu nên làm thế nào rồi chứ?”
+Ánh mắt ả nhìn chằm chằm Tịch Thiên Quân: “Nếu Hạo Thiên Tôn trọng thương không cứu được, ngươi hiểu nên làm thế nào rồi chứ?”
 
 Tịch Thiên Quân lạnh cả lòng, cười nói: “Thiên Tôn vốn nên làm như vậy từ lâu rồi! Tịch mỗ cáo lui, nhất định làm tốt chuyện lớn này, không khiến Thiên Tôn thất vọng!”
 
 Hư Thiên Tôn thở phào, thấp giọng nói: “Hiện giờ người đi tìm Hạo Thiên Tôn hẳn không ít nhỉ? Ngoài ta và Hỏa Thiên Tôn, e rằng Khai Hoàng Tần Thiên Tôn và Tạo Vật Chủ Thần Vương tên Lãng Uyển kia cũng sẽ phái tinh binh cường tướng riêng, nhất định phải thừa cơ hội này trừ khử Hạo Thiên Tôn. Nhưng nói đi cũng phải nói lại, hiện giờ quả thật là thời cơ tốt nhất để trừ khử Hạo Thiên Tôn!”
 
-Quả đúng như nàng dự liệu, Yên Vân Hề nhận được truyền lệnh của Khai Hoàng, lập tức gọi con lừa Lữ Tranh tới, cưỡi lừa chuẩn bị xuất phát.
+Quả đúng như ả dự liệu, Yên Vân Hề nhận được truyền lệnh của Khai Hoàng, lập tức gọi con lừa Lữ Tranh tới, cưỡi lừa chuẩn bị xuất phát.
 
 Đúng lúc này, chỉ thấy rất nhiều trưởng lão Tạo Vật Chủ gào thét lao ra, đi về bốn phương tám hướng.
 

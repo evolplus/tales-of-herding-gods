@@ -50,7 +50,7 @@ Tên đệ tử hắn dẫn lên thuyền vội chạy tới, lấy thuốc tr�
 
 Tên đệ tử kia kinh hãi, lập tức đặt hộp đao xuống bên chân, canh giữ Lạc Vô Song, giận dữ quát: "Mụ điên, ngươi nói bậy bạ gì đó?"
 
-Những người khác trên thuyền cũng chấn động trong lòng, nhìn về phía Vân Sơ Tụ, không hiểu vì sao nàng lại nói vậy.
+Những người khác trên thuyền cũng chấn động trong lòng, nhìn về phía Vân Sơ Tụ, không hiểu vì sao ả lại nói vậy.
 
 Vân Sơ Tụ cười lạnh: "Sau khi một người hôn mê, thần thức hỗn loạn, đạo tâm mất khống chế, ngược lại nguy hiểm nhất. Trong cơn mê, ý nghĩ lung tung, quần ma loạn vũ, sẽ sinh ra đại hung hiểm không thể đoán trước!"
 
@@ -98,7 +98,7 @@ Tần Mục như không nghe thấy, hai tay mười ngón lay động, kết ra
 
 Bên kia, Liên Hoa Hồn tung mình bay tới, hai tay đẩy về phía Lạc Vô Song và Tần Mục.
 
-Trong cơ thể thiếu nữ này bắn ra khí tức mạnh mẽ vô cùng. Hai tay nàng đẩy ra, khí huyết thảm liệt vô cùng, thần thông bùng nổ, lại phát ra tiếng vang "mãng cô, mãng cô" cực lớn!
+Trong cơ thể thiếu nữ này bắn ra khí tức mạnh mẽ vô cùng. Hai tay ả đẩy ra, khí huyết thảm liệt vô cùng, thần thông bùng nổ, lại phát ra tiếng vang "mãng cô, mãng cô" cực lớn!
 
 Sau lưng Tần Mục đột nhiên mọc ra một cái đầu, tiếp đó chui ra bốn cánh tay. Bốn bàn tay đồng thời thi triển Thiên Ấn, ầm ầm va chạm với chưởng lực của thiếu nữ này.
 
@@ -106,7 +106,7 @@ Thần thông hai người va chạm. Kình lực truyền tới từ đôi tay 
 
 Tần Mục đáp xuống đất. Bốn cánh tay đột nhiên nổ tung lốp bốp, bị thần thông của Liên Hoa Hồn mạnh mẽ chấn vỡ, xương cốt gãy vụn.
 
-Liên Hoa Hồn đang định thừa thắng truy kích thì Vân Sơ Tụ lách mình chắn trước nàng. Ánh mắt hai thiếu nữ chạm nhau, mỗi người đều có điều kiêng dè.
+Liên Hoa Hồn đang định thừa thắng truy kích thì Vân Sơ Tụ lách mình chắn trước ả. Ánh mắt hai thiếu nữ chạm nhau, mỗi người đều có điều kiêng dè.
 
 Đột nhiên, Lạc Vô Song bật người ngồi dậy.
 

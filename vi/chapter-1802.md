@@ -38,7 +38,7 @@ Sắc mặt Tần Mục hơi trầm xuống. Những người khác nghe vậy, 
 
 Tần Mục dùng Quy Khư Đại Uyên để phong ấn ba mươi sáu tầng hư không, khiến không ai có thể ký thác hư không. Mà Nhị công tử Vô Cực lại là người nắm giữ Quy Khư Đại Uyên.
 
-Nàng liên thủ với Vô Nhai lão nhân, liền có thể khiến cường giả dưới trướng Vô Nhai lão nhân có khả năng ký thác hư không, trở thành thành đạo giả!
+Ả liên thủ với Vô Nhai lão nhân, liền có thể khiến cường giả dưới trướng Vô Nhai lão nhân có khả năng ký thác hư không, trở thành thành đạo giả!
 
 Trên đời này, chỉ có ba pháp môn thoát khỏi sự khống chế của Vô Nhai lão nhân. Một là bảo điện của Di La Cung, một là thành đạo ở bên trong của Diên Khang, còn một là Quy Khư thành đạo.
 

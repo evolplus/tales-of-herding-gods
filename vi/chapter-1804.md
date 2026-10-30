@@ -116,7 +116,7 @@ Lão nghĩ tới đây, nhưng bầu trời Tổ Đình lại không có bất k
 
 Trong lòng Vô Nhai lão nhân hoảng hốt, lập tức bị công tử Lăng Tiêu nắm lấy cơ hội, đột phá rễ Thế Giới Thụ. Mũi đạo thương xoay tròn, đâm thủng vô số thần thông, đi tới giữa mi tâm Vô Nhai lão nhân!
 
-Vô Nhai lão nhân liên tục lùi lại, trong lòng càng thêm hoảng loạn, càng khẳng định suy nghĩ của mình: "Công tử Vô Cực cũng là kẻ báng đạo. Nàng đang chờ ta và công tử Lăng Tiêu lưỡng bại câu thương, sau đó nàng mới ra tay, một lưới bắt hết chúng ta!"
+Vô Nhai lão nhân liên tục lùi lại, trong lòng càng thêm hoảng loạn, càng khẳng định suy nghĩ của mình: "Công tử Vô Cực cũng là kẻ báng đạo. Ả đang chờ ta và công tử Lăng Tiêu lưỡng bại câu thương, sau đó ả mới ra tay, một lưới bắt hết chúng ta!"
 
 Đạo tâm của lão không ổn định, chiêu pháp lập tức tán loạn.
 
@@ -148,15 +148,15 @@ Tần Mục và Vô Nhai lão nhân chật vật không chịu nổi, thương t
 
 "Khí tức của kẻ yếu..."
 
-Bóng dáng công tử Vô Cực hiện lên từ bầu trời. Sau lưng nàng, từng cây sen Quy Khư thẳng tắp đứng sừng sững trong mười sáu tòa Quy Khư Đại Uyên. Nàng cười khanh khách: "Lão Tam, lão Tứ, lão Thất, còn có Vô Nhai, trên người các ngươi ngập tràn khí tức của kẻ yếu!"
+Bóng dáng công tử Vô Cực hiện lên từ bầu trời. Sau lưng ả, từng cây sen Quy Khư thẳng tắp đứng sừng sững trong mười sáu tòa Quy Khư Đại Uyên. Ả cười khanh khách: "Lão Tam, lão Tứ, lão Thất, còn có Vô Nhai, trên người các ngươi ngập tràn khí tức của kẻ yếu!"
 
-Sau lưng nàng, từng dây xích do kết ấn dây đỏ hóa thành khóa nàng lại, nhưng đã không còn áp chế được tu vi thực lực của nàng!
+Sau lưng ả, từng dây xích do kết ấn dây đỏ hóa thành khóa ả lại, nhưng đã không còn áp chế được tu vi thực lực của ả!
 
 "Vẫn để ta tiễn tất cả các ngươi lên đường thôi!"
 
 Công tử Vô Cực cười lớn. Từng cây sen Quy Khư hợp nhất với nhau, từng tòa Quy Khư Đại Uyên vậy mà cũng đang nuốt chửng lẫn nhau, có xu thế hóa thành một đại uyên!
 
-Sau lưng nàng, từng sợi xích dây đỏ nổ tung răng rắc. Phong ấn kết ấn dây đỏ mà Tần Mục lưu lại đang nhanh chóng tan rã, còn những phong ấn khác đã bị Vô Nhai lão nhân phá đi gần một nửa!
+Sau lưng ả, từng sợi xích dây đỏ nổ tung răng rắc. Phong ấn kết ấn dây đỏ mà Tần Mục lưu lại đang nhanh chóng tan rã, còn những phong ấn khác đã bị Vô Nhai lão nhân phá đi gần một nửa!
 
 Công tử Vô Cực lúc này đã không thể bị trấn áp nữa!
 

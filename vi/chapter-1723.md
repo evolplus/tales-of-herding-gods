@@ -72,7 +72,7 @@ Mà lần này, Thương Quân vẫn chọn nghênh chiến hắn và Đế hậ
 
 Phải biết rằng, phân thân của Nhị công tử đã chết trong trận chiến Chung Cực Hư Không, bị Vân Thiên Tôn giết, thậm chí ngay cả Hạo Thiên Đế cũng vì vậy mà bị trọng thương.
 
-Đế hậu nương nương giống Nhị công tử, đi theo con đường thành đạo bằng Quy Khư. Trong Chung Cực Hư Không, nàng bị bó tay bó chân, cẩn thận từng li từng tí. Gió tịch diệt lạnh lẽo không ngừng thổi qua, đối kháng với gió nhiệt tịch Quy Khư của nàng, làm suy yếu thực lực nàng.
+Đế hậu nương nương giống Nhị công tử, đi theo con đường thành đạo bằng Quy Khư. Trong Chung Cực Hư Không, ả bị bó tay bó chân, cẩn thận từng li từng tí. Gió tịch diệt lạnh lẽo không ngừng thổi qua, đối kháng với gió nhiệt tịch Quy Khư của ả, làm suy yếu thực lực ả.
 
 Hai người đối chiến Thương Quân, trận này quả thật vất vả.
 
@@ -126,7 +126,7 @@ Hư Sinh Hoa vái dài sát đất, nói: “Hôm nay từ biệt nương nươn
 
 Đế hậu nương nương đáp lễ, nước mắt rơi, che mặt rời đi: “Cũng mong Hư công tử không cần nương tay. Đáng hận không thể quen biết Hư công tử sớm hơn. Nếu sớm hơn trăm năm, hoặc công tử sinh sớm hơn trăm vạn năm, ngươi và ta có lẽ sẽ có kết cục khác...”
 
-Hư Sinh Hoa nhìn nàng đi xa, tiếp tục nâng quan quách lên đường.
+Hư Sinh Hoa nhìn ả đi xa, tiếp tục nâng quan quách lên đường.
 
 Tần Mục gõ gõ trong quan tài. Hư Sinh Hoa mở ra một đường, giọng Tần Mục từ trong quan tài truyền ra: “Hư huynh, nếu Đế hậu chịu đầu quân cho trận doanh Diên Khang, đối chiến Thiên Đình tất nhiên sẽ là ưu thế áp đảo. Sao huynh không chịu thiệt...”
 

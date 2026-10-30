@@ -106,9 +106,9 @@ Bọn họ vội vàng ổn định thân hình, chỉ thấy mình vậy mà tr
 
 Trán tất cả mọi người đều toát mồ hôi lạnh, cánh mũi phập phồng, đồng tử co rút, cổ họng khô khốc.
 
-Đế hậu nương nương cười khanh khách, đột nhiên thúc giục thần thông Quy Khư. Quy Khư Đại Uyên xuất hiện, thân hình nàng lao vào trong Đại Uyên, cười nói: “Ta không chơi với các ngươi nữa! Cáo từ...”
+Đế hậu nương nương cười khanh khách, đột nhiên thúc giục thần thông Quy Khư. Quy Khư Đại Uyên xuất hiện, thân hình ả lao vào trong Đại Uyên, cười nói: “Ta không chơi với các ngươi nữa! Cáo từ...”
 
-Quy Khư Đại Uyên nuốt chửng nàng, sau đó Đại Uyên khép lại, biến mất không còn tung tích.
+Quy Khư Đại Uyên nuốt chửng ả, sau đó Đại Uyên khép lại, biến mất không còn tung tích.
 
 Cùng lúc đó, hai vị Thái Cực cổ thần đột nhiên hợp thể, hóa thành người khổng lồ đầu rắn thân người, thúc giục Thái Cực sa bàn. Sa bàn xoay tròn, mang theo bọn họ gào thét rời đi!
 
@@ -120,9 +120,9 @@ Vụt!
 
 Một mảng ánh sáng đen dao động. Đại Uyên nứt ra, Đế hậu nương nương bước ra từ Đại Uyên, cười nói: “Bây giờ có thể đánh vào Diên Khang rồi...”
 
-Nụ cười trên mặt nàng đột nhiên cứng lại. Chỉ thấy phía trước Thế Giới Thụ xanh um tươi tốt, che lấp chư thiên, bản thân nàng vẫn ở trong lĩnh vực ba mươi ba tầng trời, hơn nữa còn gần Tần Mục hơn!
+Nụ cười trên mặt ả đột nhiên cứng lại. Chỉ thấy phía trước Thế Giới Thụ xanh um tươi tốt, che lấp chư thiên, bản thân ả vẫn ở trong lĩnh vực ba mươi ba tầng trời, hơn nữa còn gần Tần Mục hơn!
 
-Nàng thúc giục thần thông Quy Khư, cũng không thể trốn khỏi lĩnh vực của Tần Mục!
+Ả thúc giục thần thông Quy Khư, cũng không thể trốn khỏi lĩnh vực của Tần Mục!
 
 Cùng lúc đó, Thái Cực sa bàn gào thét xoay tròn, đột ngột dừng lại. Hai vị Thái Cực cổ thần tách ra, mồ hôi trên mặt trên người như mưa, nhìn chằm chằm Tần Mục dưới tàng cây phía trước.
 

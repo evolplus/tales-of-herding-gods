@@ -76,9 +76,9 @@ Bọn họ tranh từng giây từng khắc. Tần Mục khởi động rừng b
 
 Khai Thiên chúng có một bộ thuật hợp kích, có thể cứng rắn chống lại công tử Di La Cung, thậm chí có thể trọng thương Nhị công tử Vô Cực trong Quy Khư Đại Uyên!
 
-Nhị công tử Vô Cực, thực lực rất có thể còn trên Đại công tử Thái Thượng. Dù nàng bị nút dây đỏ khóa lại, muốn trọng thương nàng cũng cực kỳ không dễ.
+Nhị công tử Vô Cực, thực lực rất có thể còn trên Đại công tử Thái Thượng. Dù ả bị nút dây đỏ khóa lại, muốn trọng thương ả cũng cực kỳ không dễ.
 
-Ba mươi lăm Khai Thiên chúng có thể tại nơi nàng sinh ra, Quy Khư Đại Uyên, trọng thương nàng, đồng thời đánh thoát khỏi Quy Khư. Tần Mục đã xem ba mươi lăm Khai Thiên chúng này như cường giả cấp công tử!
+Ba mươi lăm Khai Thiên chúng có thể tại nơi ả sinh ra, Quy Khư Đại Uyên, trọng thương ả, đồng thời đánh thoát khỏi Quy Khư. Tần Mục đã xem ba mươi lăm Khai Thiên chúng này như cường giả cấp công tử!
 
 Khởi động rừng bia phương tiêm cần thời gian, thúc động trận pháp tế đàn Khai Thiên cũng cần thời gian. Lúc này ai chiếm được tiên cơ trước, người đó có thể thắng!
 

@@ -106,7 +106,7 @@ Lang Hiên Thần Hoàng hừ lạnh một tiếng, vẫn hoài nghi Giang Vân 
 
 Hư Thiên Tôn hứng thú nói: “Thái Dịch hiểu U Đô đại đạo của ta không?”
 
-Giang Vân Gian nhìn về phía nàng, chỉ thấy trên đầu nàng thiếu một chiếc sừng, như bị người chặt đứt, cười nói: “Ngươi là Hư Thiên Tôn? Sừng trên đầu ngươi đâu rồi?”
+Giang Vân Gian nhìn về phía ả, chỉ thấy trên đầu ả thiếu một chiếc sừng, như bị người chặt đứt, cười nói: “Ngươi là Hư Thiên Tôn? Sừng trên đầu ngươi đâu rồi?”
 
 Hư Thiên Tôn hừ một tiếng, không có nửa điểm thiện cảm với tiểu tử này, trực tiếp thi triển một thức ma đạo đại thần thông, thản nhiên nói: “Bị nghĩa phụ ngươi chặt đứt. Ngươi không nhận ra vết kiếm trên sừng ta sao?”
 

@@ -62,11 +62,11 @@ Cường giả sử tiền thành đạo, trong Chung Cực Hư Không xuất hi
 
 Diên Khang hai mặt thụ địch, hình thành hỗn chiến ba bên. Biến pháp Diên Khang cuối cùng được tiếp tục một cách oanh liệt, bậc thành đạo của Diên Khang càng lúc càng nhiều, đè ép hai thế lực lớn.
 
-Vào lúc ấy, Vô Cực chuyển thế thành đạo lần thứ hai, tái tạo Quy Khư Đại Uyên, tung hoành tàn sát. Bậc thành đạo của ba bên thế lực hiếm ai là đối thủ của nàng.
+Vào lúc ấy, Vô Cực chuyển thế thành đạo lần thứ hai, tái tạo Quy Khư Đại Uyên, tung hoành tàn sát. Bậc thành đạo của ba bên thế lực hiếm ai là đối thủ của ả.
 
 Khi công tử Vô Cực sắp vô địch thiên hạ, công tử Thái Thượng và Thái Dịch cuối cùng bộc lộ chiến lực kinh người, dốc sức giao chiến với Vô Cực.
 
-Công tử Vô Cực không còn vô địch, nhưng Thái Thượng và Thái Dịch cũng không làm gì được nàng.
+Công tử Vô Cực không còn vô địch, nhưng Thái Thượng và Thái Dịch cũng không làm gì được ả.
 
 Bên kia, Di La Cung đứng vững gót chân, bắt đầu xâm chiếm một phần chư thiên, tuyển chọn thần thông giả xuất sắc, truyền thụ thần thông đạo pháp, thử cắm rễ ở Đệ Thập Thất Kỷ.
 

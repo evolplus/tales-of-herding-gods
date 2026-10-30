@@ -108,7 +108,7 @@ Hai Hạo Thiên Tôn hợp hai làm một, phịch một tiếng quỳ xuống 
 
 Trong song liên lặng ngắt.
 
-Qua một lát, tiếng Nguyên Mẫu phu nhân truyền tới, nàng cười khanh khách: "Tỷ tỷ, Hạo nhi nhà ta tới rồi, bây giờ tỷ không còn niệm tưởng gì nữa chứ? Tỷ vẫn còn một đường sống, đó là dùng Đạo Luân Hồi giấu mình đi, giấu càng sâu càng tốt, đừng để ta tìm được tỷ!"
+Qua một lát, tiếng Nguyên Mẫu phu nhân truyền tới, ả cười khanh khách: "Tỷ tỷ, Hạo nhi nhà ta tới rồi, bây giờ tỷ không còn niệm tưởng gì nữa chứ? Tỷ vẫn còn một đường sống, đó là dùng Đạo Luân Hồi giấu mình đi, giấu càng sâu càng tốt, đừng để ta tìm được tỷ!"
 
 Tiếng Đế hậu biến mất. Qua một lát, Nguyên Mẫu phu nhân cười khanh khách: "Con tiện nhân kia quả nhiên trốn rồi, hi hi. Hạo nhi, con giải kết ấn dây đỏ ra, mẹ liền có thể thoát thân!"
 
@@ -136,7 +136,7 @@ Kết ấn dây đỏ không phải là một cái nút, mà là một loại �
 
 Tóc Hạo Thiên Tôn dựng đứng. Dù không trực diện một đòn này, hắn cũng cảm nhận được mối uy hiếp vô song, huống chi Nguyên Mẫu phu nhân còn đang ở trong song liên cùng cuống dưới ấn pháp!
 
-Nàng sẽ một mình gánh chịu uy năng đáng sợ này!
+Ả sẽ một mình gánh chịu uy năng đáng sợ này!
 
 "Đây căn bản không phải thần thông mà Mục Thiên Tôn có thể thi triển!" Hạo Thiên Tôn thất thanh nói.
 
@@ -170,6 +170,6 @@ Nguyên Mẫu không có động tĩnh.
 
 Hắn nhìn xuống, chỉ thấy Nguyên Mẫu phu nhân bị ép nằm sấp trong song liên cùng cuống, nửa thân người bị đánh đến máu thịt be bét, không sao nhúc nhích.
 
-Hạo Thiên Tôn giận dữ gầm lên. Cành Đạo Thụ trên đỉnh đầu tung bay, cuốn lấy Nguyên Mẫu, mạnh mẽ lôi nàng ra ngoài!
+Hạo Thiên Tôn giận dữ gầm lên. Cành Đạo Thụ trên đỉnh đầu tung bay, cuốn lấy Nguyên Mẫu, mạnh mẽ lôi ả ra ngoài!
 
 [Xem chương tiếp theo](chapter-1612.md)

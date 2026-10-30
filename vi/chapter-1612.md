@@ -108,7 +108,7 @@ Mâu thuẫn giữa Nguyên Mẫu phu nhân và Thái Sơ không thể điều h
 
 "Hạo nhi chẳng phải nói muốn chữa thương cho mẹ sao?"
 
-Khí sắc Nguyên Mẫu phu nhân khá hơn một chút, nàng cười nói: "Đạo thương Mục Thiên Tôn để lại cho mẹ cực kỳ ngoan cố, bằng sức của ta khó mà loại bỏ. Hạo nhi nuốt Thái Tố thần nữ, luyện thành đạo Thái Tố, có cầu tất ứng. Nghĩ chắc chữa khỏi cho mẹ cũng không khó. Dùng đạo Thái Tố chữa khỏi ta, mẹ liền rơi vào sự khống chế của con, Hạo nhi chẳng phải nghĩ như vậy sao?"
+Khí sắc Nguyên Mẫu phu nhân khá hơn một chút, ả cười nói: "Đạo thương Mục Thiên Tôn để lại cho mẹ cực kỳ ngoan cố, bằng sức của ta khó mà loại bỏ. Hạo nhi nuốt Thái Tố thần nữ, luyện thành đạo Thái Tố, có cầu tất ứng. Nghĩ chắc chữa khỏi cho mẹ cũng không khó. Dùng đạo Thái Tố chữa khỏi ta, mẹ liền rơi vào sự khống chế của con, Hạo nhi chẳng phải nghĩ như vậy sao?"
 
 Hạo Thiên Tôn nghiêm mặt nói: "Mẫu hậu đâu phải người ngoài, trẫm sao có thể thử khống chế mẫu hậu? Mẫu hậu yên tâm, trẫm nghe nói Diên Khang có thần y, trẫm sẽ để Mục Thiên Tôn đưa thần y tới, liệu hắn cũng không dám không nghe."
 
@@ -118,7 +118,7 @@ Hạo Thiên Tôn nghiêm mặt nói: "Mẫu hậu đâu phải người ngoài,
 
 Nguyên Mẫu phu nhân lắc đầu, lẩm bẩm: "Đạo thương ta còn có thể chữa khỏi, chỉ cần thôi động Đạo Luân Hồi mà Mục Thiên Tôn truyền cho ta, hẳn là có thể khỏi hẳn. Nhưng Đạo Luân Hồi bị tên khốn Mục Thiên Tôn âm thầm giấu huyền cơ. Ta thôi động Đạo Luân Hồi, e rằng lại một lần nữa rơi vào tính toán của hắn. Hơn nữa thôi động Đạo Luân Hồi, ta sẽ tạm thời mất khống chế nhục thân. Tỷ tỷ, con tiện nhân kia, vẫn luôn chờ cơ hội này..."
 
-Nàng yên tĩnh lại: "Thần y Dược sư của Diên Khang nghe đâu là nam tử tuấn mỹ, để hắn tới xem cũng không tệ..."
+Ả yên tĩnh lại: "Thần y Dược sư của Diên Khang nghe đâu là nam tử tuấn mỹ, để hắn tới xem cũng không tệ..."
 
 "Bệ hạ, sứ giả Diên Khang tới rồi."
 

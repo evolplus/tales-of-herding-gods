@@ -62,7 +62,7 @@ Hạo Thiên Đế và Thái Sơ đồng loạt quay đầu nhìn ả.
 
 Đế hậu nương nương cúi đầu nhìn mũi chân mình, đầu mũi chân phải xoay qua xoay lại trên mặt đất, khẽ cười nói: “Hạo nhi và phu quân quá cố cũng đã thất thủ rồi. Bây giờ người có tư cách tranh đoạt đế vị chỉ còn lại lão nương. Cuối cùng lão nương cũng có thể muốn làm gì thì làm rồi, hi hi...”
 
-Ánh mắt Tần Mục cũng rơi lên người ả. Hắn khẽ mỉm cười, thầm nghĩ: “Đế hậu và Nguyên Mẫu đã rất khó tách ra. Các nàng đã phá thần thông luân hồi của ta, hoàn toàn dung hợp thành một thể rồi. Có điều, hình như Lam Ngự Điền để lại thứ gì rất ghê gớm trong cơ thể nàng, có lẽ có thể lợi dụng...”
+Ánh mắt Tần Mục cũng rơi lên người ả. Hắn khẽ mỉm cười, thầm nghĩ: “Đế hậu và Nguyên Mẫu đã rất khó tách ra. Các ả đã phá thần thông luân hồi của ta, hoàn toàn dung hợp thành một thể rồi. Có điều, hình như Lam Ngự Điền để lại thứ gì rất ghê gớm trong cơ thể ả, có lẽ có thể lợi dụng...”
 
 Hắn thu ánh mắt lại, thản nhiên nói: “Lão Tam, Lão Tứ, đến hôm nay các ngươi vẫn chưa nhìn ra Di La Cung đã già mục rồi sao? Di La Cung mục nát đến mức ngay cả sư phụ cũng tuyệt vọng, vậy mà các ngươi vẫn tưởng có thể dựa vào Di La Cung để chinh phục tương lai. Ta với tư cách Thất công tử, không phải bị các ngươi ép tới cùng đường mới trở về quá khứ, mà là ta đánh bại các ngươi ở đây, rồi mới ung dung trở về quá khứ. Các ngươi...”
 
@@ -122,17 +122,17 @@ Tam công tử cười nhạt một tiếng, chắp hai tay sau lưng bước l�
 
 Tam công tử thản nhiên nói: “Trận này, tướng sĩ Diên Khang, cho dù là Thiên Tôn cũng rất khó đỡ nổi một đòn của ngươi. Mau đi!”
 
-Hư Thiên Tôn vốn bị khóa trong lĩnh vực của Tần Mục, bất kể nhìn từ hướng nào cũng thấy Tần Mục, trong lòng không khỏi tuyệt vọng. Thế nhưng một bước giậm chân này của Tam công tử khiến nàng thoát khỏi lĩnh vực Tần Mục, không khỏi thở phào nhẹ nhõm.
+Hư Thiên Tôn vốn bị khóa trong lĩnh vực của Tần Mục, bất kể nhìn từ hướng nào cũng thấy Tần Mục, trong lòng không khỏi tuyệt vọng. Thế nhưng một bước giậm chân này của Tam công tử khiến ả thoát khỏi lĩnh vực Tần Mục, không khỏi thở phào nhẹ nhõm.
 
-Nếu chính diện đối mặt Tần Mục, nàng nghi ngờ mình có thể đi trọn một chiêu trong tay Tần Mục hay không!
+Nếu chính diện đối mặt Tần Mục, ả nghi ngờ mình có thể đi trọn một chiêu trong tay Tần Mục hay không!
 
-Thế nhưng lời Tam công tử lại khiến nàng hơi chần chừ. Chủ trì huyết tế tất sẽ dẫn thành đạo giả Di La Cung giáng lâm. Nếu thành đạo giả Di La Cung giáng lâm, nàng còn có địa vị hiện giờ sao?
+Thế nhưng lời Tam công tử lại khiến ả hơi chần chừ. Chủ trì huyết tế tất sẽ dẫn thành đạo giả Di La Cung giáng lâm. Nếu thành đạo giả Di La Cung giáng lâm, ả còn có địa vị hiện giờ sao?
 
-Có điều ý nghĩ này chỉ lướt qua trong đầu nàng trong thoáng chốc, liền bị nàng gạt ra sau.
+Có điều ý nghĩ này chỉ lướt qua trong đầu ả trong thoáng chốc, liền bị ả gạt ra sau.
 
 “Con dân U Đô, theo ta chinh chiến!”
 
-Nàng rung Minh Hà trường tiên, dẫn theo vô số Ma Thần, ma quái U Đô, đi về phía Lam Phong cốc địa Diên Khang.
+Ả rung Minh Hà trường tiên, dẫn theo vô số Ma Thần, ma quái U Đô, đi về phía Lam Phong cốc địa Diên Khang.
 
 Khí thế Tứ công tử bộc phát, nhấc chân giậm mạnh một cái. Lại có bốn tầng Đạo Cảnh của Tần Mục chấn động. Tổ Thần Vương như trút được gánh nặng, lập tức dẫn đại quân Huyền Đô thoát khỏi lĩnh vực Thần Tàng của Tần Mục.
 

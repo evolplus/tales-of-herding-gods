@@ -6,7 +6,7 @@ Dù hắn từ trước tới nay luôn mặt lạnh mắt lạnh, gần như ch
 
 "Sau lưng hai nữ tử này là hai vị Thiên Tôn? Còn Hạo và Kỳ là ai? Hạo sẽ không phải Hạo Thiên Tôn chứ? Còn Ngự Thiên Tôn nữa, nữ tử kia lại dám gọi hắn là tiểu bạch kiểm..."
 
-Lạc Vô Song quyết định thật nhanh, trốn vào bóng râm của kiến trúc phía dưới, vẫy tay với Tần Mục, ra hiệu hắn cũng mau trốn vào, tránh bị hai nàng phát hiện.
+Lạc Vô Song quyết định thật nhanh, trốn vào bóng râm của kiến trúc phía dưới, vẫy tay với Tần Mục, ra hiệu hắn cũng mau trốn vào, tránh bị hai ả phát hiện.
 
 Tần Mục cũng nghe đến ngây người. Lạc Vô Song vội xông ra kéo hắn vào bóng râm, hạ giọng nói: "Ngươi không muốn sống nữa à! Nghe được những bí mật này, nếu bị phát hiện, chúng ta chết chắc! Ta nghe nói trước kia Thiên Đình có một vị cổ thần vì biết quá nhiều bí mật, lúc xông lên chiến trường đã bị người bắn chết từ sau lưng!"
 
@@ -16,7 +16,7 @@ Tần Mục cùng hắn tới trong bóng râm, trong lòng chấn động muôn
 
 Đế hậu nương nương nổi giận vì muội muội Nguyên Mẫu phu nhân tư thông với Thiên Đế cổ thần, sinh ra Hạo Thiên Tôn, nhưng Hạo Thiên Tôn lại thông minh khác thường, khai mở Ngũ Diệu Thần Tàng, trở thành Thiên Tôn, còn con trai của mình lại không có vinh quang ấy.
 
-Vì địa vị của mình, nàng mới nâng đỡ Ngự Thiên Tôn chèn ép Hạo Thiên Tôn.
+Vì địa vị của mình, ả mới nâng đỡ Ngự Thiên Tôn chèn ép Hạo Thiên Tôn.
 
 Thế nhưng điều Tần Mục không ngờ là trong lòng hắn, người nói ra câu "nuôi tiểu bạch kiểm Ngự Thiên Tôn" lẽ ra phải là Liên Hoa Hồn, nhưng thực tế câu này lại từ miệng Vân Sơ Tụ!
 
@@ -26,23 +26,23 @@ Vân Sơ Tụ là Nguyên Mẫu phu nhân, Liên Hoa Hồn mới là Đế hậu
 
 Tần Mục đang liếc mắt đưa tình, cợt nhả với mẹ ruột của Hạo Thiên Tôn, Nguyên Mẫu phu nhân!
 
-"Hôm Dao Trì, ta giao thủ với Vân Sơ Tụ. Vân Sơ Tụ bị ta ép dùng tuyệt học. Nàng giả mạo Đế hậu nương nương, vậy tuyệt học thi triển ra chắc chắn cũng không phải thật."
+"Hôm Dao Trì, ta giao thủ với Vân Sơ Tụ. Vân Sơ Tụ bị ta ép dùng tuyệt học. Ả giả mạo Đế hậu nương nương, vậy tuyệt học thi triển ra chắc chắn cũng không phải thật."
 
 Mồ hôi lạnh trên trán Tần Mục lăn xuống. Đây cũng là một cái bẫy, một cái bẫy lớn!
 
-Ai tin đó là tuyệt học của nàng thì chắc chắn sẽ chết rất thảm.
+Ai tin đó là tuyệt học của ả thì chắc chắn sẽ chết rất thảm.
 
-"Còn chuyện nàng thấy thi thân Nguyên Mẫu phu nhân trong quan tài thủy tinh liền lập tức ra tay giúp ta, căn bản không phải lo Nguyên Mẫu phu nhân sống lại, mà là lo thân phận của nàng bại lộ!"
+"Còn chuyện ả thấy thi thân Nguyên Mẫu phu nhân trong quan tài thủy tinh liền lập tức ra tay giúp ta, căn bản không phải lo Nguyên Mẫu phu nhân sống lại, mà là lo thân phận của ả bại lộ!"
 
-Tần Mục mồ hôi như mưa. Lúc ấy nếu hắn chiêu hồn cho Nguyên Mẫu phu nhân, chỉ sợ lập tức sẽ gọi Vân Sơ Tụ qua, khiến nàng bại lộ ngay tại chỗ!
+Tần Mục mồ hôi như mưa. Lúc ấy nếu hắn chiêu hồn cho Nguyên Mẫu phu nhân, chỉ sợ lập tức sẽ gọi Vân Sơ Tụ qua, khiến ả bại lộ ngay tại chỗ!
 
 Hơn nữa chuyện Nguyên Mẫu phu nhân chưa chết cũng sẽ vì vậy mà bị người biết.
 
 "Tiểu nương bì này..." Tần Mục ngứa răng.
 
-Hai người lặng lẽ đi trong bóng râm. Kiến trúc trong thành Tạo Vật Chủ cực lớn, thuận tiện cho bọn họ xuyên qua, không bị hai nàng đang giao chiến phía trên phát hiện.
+Hai người lặng lẽ đi trong bóng râm. Kiến trúc trong thành Tạo Vật Chủ cực lớn, thuận tiện cho bọn họ xuyên qua, không bị hai ả đang giao chiến phía trên phát hiện.
 
-Chiến lực của Vân Sơ Tụ và Liên Hoa Hồn phía trên kinh người. Từng tòa kiến trúc nguy nga bị thần thông của các nàng chém đứt, những tảng đá khổng lồ lớn như đỉnh núi nhỏ từ trên trời rơi xuống, khiến Tần Mục và Lạc Vô Song tê cả da đầu. Nếu những mảnh kiến trúc này nện vào ấn ký Hỏa Thiên Tôn hoặc giọt thần huyết kia, chỉ sợ cả thành, bao gồm bọn họ trong thành, đều sẽ bị phá hủy!
+Chiến lực của Vân Sơ Tụ và Liên Hoa Hồn phía trên kinh người. Từng tòa kiến trúc nguy nga bị thần thông của các ả chém đứt, những tảng đá khổng lồ lớn như đỉnh núi nhỏ từ trên trời rơi xuống, khiến Tần Mục và Lạc Vô Song tê cả da đầu. Nếu những mảnh kiến trúc này nện vào ấn ký Hỏa Thiên Tôn hoặc giọt thần huyết kia, chỉ sợ cả thành, bao gồm bọn họ trong thành, đều sẽ bị phá hủy!
 
 Nhưng điều kỳ dị là những mảnh kiến trúc này còn chưa rơi xuống đã tan rã giữa không trung, biến mất, hóa thành dòng thần thức kỳ lạ phóng lên trời.
 
@@ -50,7 +50,7 @@ Những kiến trúc bị phá hủy lại lần nữa phục nguyên, như có 
 
 Đây chính là chỗ kỳ diệu của thành Tạo Vật Chủ!
 
-Những kiến trúc bị phá hủy không thể đập xuống, nhưng dư ba thần thông của hai nàng lại có thể xung kích xuống. Hai nàng tuy đều ở cảnh giới Thần Kiều, nhưng Tần Mục lại hiểu rất rõ bản lĩnh của họ.
+Những kiến trúc bị phá hủy không thể đập xuống, nhưng dư ba thần thông của hai ả lại có thể xung kích xuống. Hai ả tuy đều ở cảnh giới Thần Kiều, nhưng Tần Mục lại hiểu rất rõ bản lĩnh của họ.
 
 Khi còn trên thuyền, Liên Hoa Hồn từng đánh lén hắn, đánh gãy bốn cánh tay của hắn, còn Vân Sơ Tụ cũng đánh với Tần Mục tới mức lưỡng bại câu thương.
 
@@ -70,7 +70,7 @@ Tần Mục và Lạc Vô Song nhanh chóng xuyên qua tòa thành trống rỗn
 
 Điều này khiến bọn họ có cảm giác như bị đao kề lên cổ, lại không biết khi nào sẽ chết.
 
-Hơn nữa, họ cũng không thể bại lộ thân phận. Nếu bị hai nàng phát hiện, họ cũng sẽ chết.
+Hơn nữa, họ cũng không thể bại lộ thân phận. Nếu bị hai ả phát hiện, họ cũng sẽ chết.
 
 Hai nữ tử này tuyệt đối sẽ không dung thứ cho người khác biết bí mật của họ!
 
@@ -98,7 +98,7 @@ Hai người một rồng rón rén đi về phía trước, cố lén lút rờ
 
 Đột nhiên trên một cung điện phía trước truyền tới tiếng cười của nữ tử. Hai người một rồng ngẩng đầu nhìn, chỉ thấy Vân Sơ Tụ ngồi trên mái hiên điện, hai tay chống bên mép hiên, hai cẳng chân buông thõng xuống, thong thả đung đưa.
 
-Cặp chân nàng trắng nõn, có đường cong xinh đẹp, rất mê người.
+Cặp chân ả trắng nõn, có đường cong xinh đẹp, rất mê người.
 
 Vân Sơ Tụ cười khúc khích nói: "Thiên Tôn và Thần Đao lén lén lút lút, đây là định đi đâu?"
 
@@ -152,7 +152,7 @@ Liên Hoa Hồn bay về, đáp xuống mái hiên cung điện phía trước, 
 
 Vân Sơ Tụ kinh ngạc vì trong Thái Hư lại có nhân vật có thể địch nổi Hỏa Thiên Tôn, cười khanh khách nói: "Vậy Mục Thiên Tôn đúng là lên trời không lối, xuống đất không cửa rồi. Hỏa Thiên Tôn không ở đây, chỉ sợ không ai có thể ngăn các ngươi giết Mục Thiên Tôn."
 
-Nàng thở dài, u u nói: "Thiên Tôn thứ lỗi, thiếp thân đối mặt với tình hình này cũng có lòng mà không có sức."
+Ả thở dài, u u nói: "Thiên Tôn thứ lỗi, thiếp thân đối mặt với tình hình này cũng có lòng mà không có sức."
 
 Lúc này mặt trời lặn về tây, chìm sau núi phía tây, bầu trời dần tối xuống. Đột nhiên, trong từng tòa đèn lâu bốc lên ánh sáng dữ dội, chiếu sáng tòa thành này.
 

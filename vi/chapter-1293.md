@@ -4,13 +4,13 @@
 
 Tần Mục lập tức lấy quan tài Đế hậu ra, dựng trước mặt Nghiên Thiên Phi.
 
-Nghiên Thiên Phi phất tay áo một cái, nắp quan tài mở ra. Nàng nhìn kỹ thân thể của mình từ trên xuống dưới.
+Nghiên Thiên Phi phất tay áo một cái, nắp quan tài mở ra. Ả nhìn kỹ thân thể của mình từ trên xuống dưới.
 
-Bên trong, ngoài thân xác Đế hậu nương nương ra, thân thể còn lại chính là thân xác Tuyệt Vô Trần, nữ nhân khiến Thiên Đế Thái Sơ phải chết vì nàng.
+Bên trong, ngoài thân xác Đế hậu nương nương ra, thân thể còn lại chính là thân xác Tuyệt Vô Trần, nữ nhân khiến Thiên Đế Thái Sơ phải chết vì ả.
 
-Tần Mục tặng thân xác Tuyệt Vô Trần cho nàng, hiển nhiên cũng không có ý tốt, dụng ý là khơi lên mâu thuẫn giữa nàng và Hiểu Thiên Tôn.
+Tần Mục tặng thân xác Tuyệt Vô Trần cho ả, hiển nhiên cũng không có ý tốt, dụng ý là khơi lên mâu thuẫn giữa ả và Hiểu Thiên Tôn.
 
-Nghiên Thiên Phi biết rõ điều này, nhưng mâu thuẫn giữa nàng và Thiên Đế Thái Sơ đã không thể điều hòa. Có được thân xác Tuyệt Vô Trần đối với nàng chỉ là dệt hoa trên gấm.
+Nghiên Thiên Phi biết rõ điều này, nhưng mâu thuẫn giữa ả và Thiên Đế Thái Sơ đã không thể điều hòa. Có được thân xác Tuyệt Vô Trần đối với ả chỉ là dệt hoa trên gấm.
 
 “Mục Thiên Tôn, tay nào của ngươi từng chạm vào thân thể ta?” Nghiên Thiên Phi đột nhiên hỏi.
 
@@ -34,7 +34,7 @@ Tư duy của Nghiên Thiên Phi đột nhiên tiến vào cơ thể Tuyệt Vô
 
 Nghiên Thiên Phi khống chế Tuyệt Vô Trần xoay người, múa trước mặt Tần Mục, nhẹ nhàng như chim én, thân hình mê người.
 
-“Đẹp không?” Ánh mắt nàng quyến rũ khó tả, giọng nói chứa đựng nhu tình như nước.
+“Đẹp không?” Ánh mắt ả quyến rũ khó tả, giọng nói chứa đựng nhu tình như nước.
 
 Tần Mục nhìn đến ngây người, không nghĩ ngợi liền buột miệng: “Đẹp!”
 
@@ -82,13 +82,13 @@ Mèo trắng nói: “Đúng là Địa Mẫu Nguyên Quân. Ta ngửi thấy m�
 
 Nghiên Thiên Phi nói: “Ngươi chưa thấy cảnh tượng thảm án Huyền Đô. Nếu đã thấy, ngươi sẽ không bao giờ dám tới gần ả nữa. Huyền Đô rất lớn, không kém U Đô, vô số ánh sáng hợp thành thân thể Thiên Công. Trên thân thể Thiên Công có vô số Thần thành không đêm, cư trú vô vàn thần minh. Những thần minh ấy đã chết trong vòng một ngày.”
 
-Sắc mặt nàng bình tĩnh nói: “Ta từng tới xem thảm trạng nơi đó. Tất cả thần minh đều biến thành xác khô, bị rút cạn khí huyết toàn thân, nguyên thần khô héo, không còn chút sinh cơ nào. Chỉ có Đại Nhật Tinh Quân tốc độ nhanh, trốn thoát được. Địa Mẫu Nguyên Quân bị tà hóa cực kỳ đáng sợ.”
+Sắc mặt ả bình tĩnh nói: “Ta từng tới xem thảm trạng nơi đó. Tất cả thần minh đều biến thành xác khô, bị rút cạn khí huyết toàn thân, nguyên thần khô héo, không còn chút sinh cơ nào. Chỉ có Đại Nhật Tinh Quân tốc độ nhanh, trốn thoát được. Địa Mẫu Nguyên Quân bị tà hóa cực kỳ đáng sợ.”
 
 Tần Mục không khỏi rùng mình.
 
 Nghiên Thiên Phi nói: “Địa Mẫu đã đi lên tà lộ. Ả tới Tổ Đình, mưu đồ không nhỏ. Năm xưa, với tư cách là mẹ của đại địa, ả chính là kẻ điều khiển những cự thú kia. Nay triệu hồi những cự thú ấy ra, mục đích của ả e là muốn tái hiện huy hoàng năm xưa ở nơi này. Chỉ là...”
 
-Nàng lắc đầu: “Nay đã khác xưa, thời đại thuộc về ả đã sớm qua rồi. Mục Thiên Tôn, ngươi cũng nghe đủ rồi, còn không rời đi chuẩn bị?”
+Ả lắc đầu: “Nay đã khác xưa, thời đại thuộc về ả đã sớm qua rồi. Mục Thiên Tôn, ngươi cũng nghe đủ rồi, còn không rời đi chuẩn bị?”
 
 Tần Mục cáo từ, bước ra khỏi biệt cung.
 
@@ -106,12 +106,12 @@ Mèo trắng nói: “Thần nghe nói, Địa Mẫu rơi vào cảnh thê thả
 
 Nghiên Thiên Phi lắc đầu nói: “Không cần. Hắn định vào khoáng mạch lấy nguyên thạch, chuyến này chắc chắn phải chết. Hà tất phí tâm đi báo cho Địa Mẫu? Tính tình như Địa Mẫu, bản cung nhìn cũng thấy phiền.”
 
-Mèo trắng đành không nói nữa, ngoan ngoãn nằm trong lòng nàng ngủ gà ngủ gật.
+Mèo trắng đành không nói nữa, ngoan ngoãn nằm trong lòng ả ngủ gà ngủ gật.
 
 Tần Mục rời lãnh địa của Nghiên Thiên Phi. Trứng Thái Thủy vẫn luôn im lặng lập tức xao động, oán trách: “Mục Thiên Tôn, vì sao không trực tiếp vào khoáng mạch tìm nguyên thạch? Có chủ đất là ta ở đây, khu mỏ không làm gì được ngươi mảy may!”
 
 “Nếu ta không chuẩn bị mà trực tiếp vào khu mỏ, ngược lại Nghiên Thiên Phi sẽ nghi ngờ ta có đủ nắm chắc lấy được nguyên thạch, từ đó nghi ngờ ngươi đang ở bên cạnh ta.”
 
-Tần Mục cười nói: “Ta lấy lui làm tiến, nàng sẽ không nghi ngờ nữa. Hơn nữa trong khoảng thời gian này, ta cũng cần tu luyện đạo Thái Thủy một chút. Đạo huynh, ngươi đã hứa truyền thụ đạo Thái Thủy cho ta, hiện giờ chính là thời cơ.”
+Tần Mục cười nói: “Ta lấy lui làm tiến, ả sẽ không nghi ngờ nữa. Hơn nữa trong khoảng thời gian này, ta cũng cần tu luyện đạo Thái Thủy một chút. Đạo huynh, ngươi đã hứa truyền thụ đạo Thái Thủy cho ta, hiện giờ chính là thời cơ.”
 
 [Xem chương tiếp theo](chapter-1294.md)

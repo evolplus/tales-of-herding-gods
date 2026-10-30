@@ -60,7 +60,7 @@ Tần Mục đang suy diễn, khóe mắt lại đột nhiên giật giật.
 
 Sau lưng hắn, nữ thi lặng yên không tiếng động bay xuống, thân thể lơ lửng giữa không trung, đầu đẹp cúi thấp, mái tóc đen như thác nước chảy xuống bên chiếc cổ trắng như tuyết.
 
-Đầu nàng dần đến gần cổ Tần Mục.
+Đầu ả dần đến gần cổ Tần Mục.
 
 Tần Mục vẫn như không hề hay biết, nhưng trên trán lại có mồ hôi chảy ra. Kiếm hoàn trong túi Thao Thiết bên hông như biến thành thủy ngân chậm rãi chảy ra, lặng lẽ đi đến sau gáy nữ thi, từ từ hóa thành mũi kiếm, chỉ vào vết thương vừa mới lành chưa được bao lâu sau gáy nữ thi.
 
@@ -78,7 +78,7 @@ Nữ thi sau lưng Tần Mục nghe hắn gọi ra chân danh của mình, phát
 
 Tần Mục lập tức cảm thấy uy áp lớn lao.
 
-Đó là sức mạnh cổ thần thức tỉnh trong cơ thể nữ thi, giống như sức mạnh khủng bố nuốt chửng vạn vật thế gian bộc phát sau lưng hắn. Nhưng nguyên thần của nam tử trung niên kia ấn một chưởng lên trán nàng, sức mạnh bộc phát, ép toàn bộ bóng tối tràn đến sau lưng nàng về thế giới hoa đen!
+Đó là sức mạnh cổ thần thức tỉnh trong cơ thể nữ thi, giống như sức mạnh khủng bố nuốt chửng vạn vật thế gian bộc phát sau lưng hắn. Nhưng nguyên thần của nam tử trung niên kia ấn một chưởng lên trán ả, sức mạnh bộc phát, ép toàn bộ bóng tối tràn đến sau lưng ả về thế giới hoa đen!
 
 Nữ thi thân bất do kỷ ngã về sau, phịch một tiếng rơi vào trong quan tài thủy tinh. Quan tài thủy tinh khép lại, trấn áp nữ thi trong quan tài.
 
@@ -134,7 +134,7 @@ Tần Mục hoàn hồn, lập tức khiêng quan tài thủy tinh đi về phí
 
 Trong quan tài thủy tinh, nữ thi Nguyên Mẫu phu nhân cười khanh khách, mong đợi nhìn thế giới hoa đen càng lúc càng gần mình.
 
-Tuy nàng là sản vật thi biến, nhưng thế giới hoa đen dù sao cũng là nơi nàng sinh ra, có sức hấp dẫn lớn lao với nàng. Hơn nữa, chỉ cần tiến vào thế giới hoa đen, nàng có thể điều động đại đạo của thế giới hoa đen để phá trấn áp của Ngụy Tùy Phong và cỗ quan tài thủy tinh này.
+Tuy ả là sản vật thi biến, nhưng thế giới hoa đen dù sao cũng là nơi ả sinh ra, có sức hấp dẫn lớn lao với ả. Hơn nữa, chỉ cần tiến vào thế giới hoa đen, ả có thể điều động đại đạo của thế giới hoa đen để phá trấn áp của Ngụy Tùy Phong và cỗ quan tài thủy tinh này.
 
 Tần Mục đứng trước thế giới hoa đen, đặt quan tài thủy tinh xuống, tháo lá liễu ở mi tâm, cao giọng nói: "Thiên Công, giúp ta trông coi nữ thi này, đừng để ca ca ăn mất!" Nói xong, hắn nhét quan tài thủy tinh vào Tần tự đại lục.
 

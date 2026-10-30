@@ -76,7 +76,7 @@ Lang Hiên Thần Hoàng chớp được cơ hội, lập tức xoay người ch
 
 Vết thương Hư Thiên Tôn chịu gần như giống hệt vết thương ở Tổ Đình Ngọc Kinh Thành. Tại Tổ Đình Ngọc Kinh Thành, Tần Mục cũng dùng cùng một kiếm chiêu chém đứt một chiếc sừng của Hư Thiên Tôn!
 
-Hiện tại, Khai Hoàng cũng dùng cùng một chiêu, chém đứt chiếc sừng còn lại của nàng!
+Hiện tại, Khai Hoàng cũng dùng cùng một chiêu, chém đứt chiếc sừng còn lại của ả!
 
 Lang Hiên bỏ chạy, rồi thấy Tổ Thần Vương dùng tốc độ còn nhanh hơn vượt qua hắn, từ phía sau hắn chạy tới phía trước.
 

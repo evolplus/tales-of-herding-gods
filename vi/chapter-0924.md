@@ -50,13 +50,13 @@ Tần Mục phất tay áo, cỗ quan tài kia phịch một tiếng mở ra, tr
 
 Tim Vân Sơ Tụ nảy lên, nhìn thấy thi thể trong quan tài.
 
-Tần Mục sải bước về phía quan tài, trầm giọng: "Nếu U Thiên Tôn không chống nổi, vậy ta sẽ thi triển Khiên Hồn Dẫn, triệu hồn phách chủ nhân thi thể này tới, tái tạo thần hồn cho nàng, để nàng sống lại!"
+Tần Mục sải bước về phía quan tài, trầm giọng: "Nếu U Thiên Tôn không chống nổi, vậy ta sẽ thi triển Khiên Hồn Dẫn, triệu hồn phách chủ nhân thi thể này tới, tái tạo thần hồn cho ả, để ả sống lại!"
 
-Vân Sơ Tụ liếc hắn một cái. Ánh mắt Tần Mục cũng vừa vặn nhìn về phía nàng.
+Vân Sơ Tụ liếc hắn một cái. Ánh mắt Tần Mục cũng vừa vặn nhìn về phía ả.
 
 Hai người đối mắt, Vân Sơ Tụ khanh khách cười: "Đại pháp sư quả nhiên là đại pháp sư."
 
-Nàng nói xong câu này liền không mở miệng nữa. Đúng lúc ấy, bầu trời lại chấn động dữ dội. Lại một vị Thiên Tôn giáng lâm, khí thế bùng phát, một chuỗi Thiên Cung hiện ra, đạo âm chấn động không dứt!
+Ả nói xong câu này liền không mở miệng nữa. Đúng lúc ấy, bầu trời lại chấn động dữ dội. Lại một vị Thiên Tôn giáng lâm, khí thế bùng phát, một chuỗi Thiên Cung hiện ra, đạo âm chấn động không dứt!
 
 Nhưng vị Thiên Tôn này lại không nhắm vào U Thiên Tôn, mà nhắm vào hai vị Thiên Tôn vừa rồi.
 
@@ -82,7 +82,7 @@ Dù Vân Tiệm Ly biết cô gái này không có ý tốt, trong lòng vẫn k
 
 Bọn họ lại không ngờ, Tần Mục và Vân Sơ Tụ căn bản không phải đang nói chuyện yêu đương, trái lại còn hung hiểm vô cùng!
 
-Tần Mục chỉ nắm được điểm yếu của "Vân Sơ Tụ", dùng việc phục sinh Nguyên Mẫu phu nhân uy hiếp nàng mà thôi. Còn "Vân Sơ Tụ" tuy giúp Tần Mục thoát khỏi cục diện nguy hiểm, nhưng cũng đang uy hiếp hắn.
+Tần Mục chỉ nắm được điểm yếu của "Vân Sơ Tụ", dùng việc phục sinh Nguyên Mẫu phu nhân uy hiếp ả mà thôi. Còn "Vân Sơ Tụ" tuy giúp Tần Mục thoát khỏi cục diện nguy hiểm, nhưng cũng đang uy hiếp hắn.
 
 Tuy nhiên, nhờ vậy Tần Mục cuối cùng có thể chứng thực một phỏng đoán trong lòng mình. Đó là muội muội của Đế Hậu nương nương, Nguyên Mẫu phu nhân, quả thật đã chết, hơn nữa chính là chết trong tay Đế Hậu nương nương.
 

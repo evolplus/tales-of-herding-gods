@@ -52,7 +52,7 @@ Vân Thiên Tôn đối kháng uy năng của Đại Uyên. Hắn đã có thể
 
 Cũng may tu vi của hắn đủ hùng hậu, cuối cùng đã tới tầng đáy của Quy Khư Đại Uyên. Chỉ thấy phía dưới có một khối cầu trắng như tuyết bao lấy Nguyên Mẫu phu nhân, không ngừng xoay tròn, khiến Nguyên Mẫu phu nhân khó lòng chống đỡ.
 
-Khối cầu trắng như tuyết kia do từng sợi tóc tạo thành. Tóc trắng như tơ, phong tỏa Nguyên Mẫu phu nhân, một bậc thành đạo, khiến nàng khó thể thoát thân.
+Khối cầu trắng như tuyết kia do từng sợi tóc tạo thành. Tóc trắng như tơ, phong tỏa Nguyên Mẫu phu nhân, một bậc thành đạo, khiến ả khó thể thoát thân.
 
 Vân Thiên Tôn đưa tay nắm lấy cuống của song liên cùng cuống, nhìn xuống dưới. Chỉ thấy dưới đáy biển có một gương mặt nữ tử khổng lồ, bị từng sợi xiềng xích quấn quanh.
 
@@ -84,7 +84,7 @@ Nguyên Mẫu phu nhân xuyên qua từng tầng luân hồi, rất nhanh đã t
 
 Nguyên Mẫu phu nhân hưng phấn khác thường, cười khanh khách: “Tỷ tỷ, ngươi đúng là ngây thơ, thật sự cho rằng ta sẽ giao nhục thân cho ngươi ư?”
 
-Ngay lúc này, nàng nhìn thấy một nam tử tuấn mỹ từ trên cao ung dung hạ xuống. Mười ngón tay của hắn tung bay, như cánh sen xoay tròn nở rộ!
+Ngay lúc này, ả nhìn thấy một nam tử tuấn mỹ từ trên cao ung dung hạ xuống. Mười ngón tay của hắn tung bay, như cánh sen xoay tròn nở rộ!
 
 Nguyên Mẫu phu nhân trở tay không kịp, phất tay áo liên tục ngăn cản, nhưng vẫn bị nam tử kia điểm một ngón tay lên vầng sáng luân hồi đang xoay.
 
@@ -100,7 +100,7 @@ Vân Thiên Tôn hơi khom người: “Lăng Thiên Tôn ở đâu?”
 
 Đế hậu nương nương bay lên không, trầm giọng nói: “Ngươi giúp bản cung trấn áp con tiện nhân kia, bản cung sẽ không nói dối ngươi.”
 
-Vân Thiên Tôn sánh vai với nàng mà đi, nói: “Ta tin được nương nương.”
+Vân Thiên Tôn sánh vai với ả mà đi, nói: “Ta tin được nương nương.”
 
 Hai người trước sau lao ra khỏi Quy Khư Đại Uyên, một người đáp xuống bên trái Đại Uyên, một người đáp xuống bên phải Đại Uyên.
 
@@ -120,13 +120,13 @@ Vân Thiên Tôn cười lớn, lắc đầu nói: “Buồn cười thay, nươ
 
 Vân Thiên Tôn không phủ nhận, gật đầu cười nói: “Đúng là như vậy. Vậy Đế hậu nương nương lựa chọn thế nào?”
 
-Đế hậu nương nương thôi động thần thông luân hồi. Dung mạo, giọng nói, tính tình của nàng đều trở nên giống Nguyên Mẫu phu nhân như đúc. Nàng bay xéo lên, vẫn chính diện đối mặt hắn, không dám thả lỏng chút nào, cười khanh khách: “Bản cung sẽ như ý ngươi!”
+Đế hậu nương nương thôi động thần thông luân hồi. Dung mạo, giọng nói, tính tình của ả đều trở nên giống Nguyên Mẫu phu nhân như đúc. Ả bay xéo lên, vẫn chính diện đối mặt hắn, không dám thả lỏng chút nào, cười khanh khách: “Bản cung sẽ như ý ngươi!”
 
 Vân Thiên Tôn chần chừ một chút. Trong bầu trời phía sau Đế hậu nương nương, Thần Thức Đại La Thiên của hắn hiện lên, Thái Sơ Đế Kiếm treo trên Đạo Thụ, từ xa như muốn đâm xuống.
 
 Nhưng hắn lại dừng lại, không nhân cơ hội ám sát Đế hậu.
 
-“Lăng Thiên Tôn không ở đây, cao thủ của Diên Khang lại thiếu mất một người, chỉ có thể giữ Đế hậu lại. Huống chi ta chưa chắc ám sát được nàng...”
+“Lăng Thiên Tôn không ở đây, cao thủ của Diên Khang lại thiếu mất một người, chỉ có thể giữ Đế hậu lại. Huống chi ta chưa chắc ám sát được ả...”
 
 Nghĩ tới đây, Thần Thức Đại La Thiên của hắn ẩn đi, hắn mỉm cười với Đế hậu nương nương.
 

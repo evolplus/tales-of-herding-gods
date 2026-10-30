@@ -100,7 +100,7 @@ Tần Mục trầm ngâm một lát, nói với Vân Sơ Tụ: "Nghe nói Thiên
 
 Vân Sơ Tụ lườm hắn, phì cười: "Gọi người ta là muội muội tốt..."
 
-Tề Cửu Nghi và Vân Tiệm Ly dựng cả tóc gáy, hoảng sợ nhìn hai người này. Nữ tử này không phải Đế hậu nương nương thì là Nguyên Mẫu phu nhân, Tần Mục vậy mà dám gọi nàng là muội muội tốt.
+Tề Cửu Nghi và Vân Tiệm Ly dựng cả tóc gáy, hoảng sợ nhìn hai người này. Nữ tử này không phải Đế hậu nương nương thì là Nguyên Mẫu phu nhân, Tần Mục vậy mà dám gọi ả là muội muội tốt.
 
 "Vị Mục Thiên Tôn từ hạ giới đi lên này, có biết chữ chết có bao nhiêu cách viết không?"
 
@@ -116,9 +116,9 @@ Tần Mục nghiêm mặt: "Diên Khang đã quy thuận Thiên Đình, là thu�
 
 Vân Sơ Tụ phì cười, đảo mắt một vòng, nghiêm mặt nói: "Ngươi đưa bản vẽ Cầu Linh Năng Đối Chuyển cho ta, ta giúp ngươi chế tạo mấy cây. Mở thông vách ngăn thế giới giữa Thiên Đình và hạ giới là chuyện trọng đại. Ngươi còn chưa đứng vững ở Thiên Đình, chuyện này ngươi không làm chủ được, phải có Thiên Tôn gật đầu."
 
-Tần Mục lấy bản vẽ Cầu Linh Năng Đối Chuyển ra, đưa hết cho nàng. Bản vẽ chất như núi, số lượng cực nhiều. Vân Sơ Tụ rút mấy tấm, nhìn thấy phù văn thuật số bên trên cũng không khỏi nhíu mày, thấy nhiều bản vẽ như vậy liền bực bội, nói: "Chuyện này vẫn giao cho Đạo môn, để Đạo môn mang bản vẽ tới Tạo Phụ Thiên Cung, chế tạo mấy cây Cầu Linh Năng Đối Chuyển... Ca, Thiên Tôn, Cửu ca ca, ta đi trước một bước!"
+Tần Mục lấy bản vẽ Cầu Linh Năng Đối Chuyển ra, đưa hết cho ả. Bản vẽ chất như núi, số lượng cực nhiều. Vân Sơ Tụ rút mấy tấm, nhìn thấy phù văn thuật số bên trên cũng không khỏi nhíu mày, thấy nhiều bản vẽ như vậy liền bực bội, nói: "Chuyện này vẫn giao cho Đạo môn, để Đạo môn mang bản vẽ tới Tạo Phụ Thiên Cung, chế tạo mấy cây Cầu Linh Năng Đối Chuyển... Ca, Thiên Tôn, Cửu ca ca, ta đi trước một bước!"
 
-Nàng mang bản vẽ vội vã rời đi, trở về Ngọc Thanh Thiên Cung, thầm nghĩ: "Cầu Linh Năng Đối Chuyển này lại rất hữu dụng, có thể kết nối Thiên Đình với các chư thiên khác, không phải chỉ kết nối Nguyên giới. Nếu chế tạo được loại Cầu Linh Năng Đối Chuyển này, bản cung có thể thống trị nhiều thế giới chư thiên hơn..."
+Ả mang bản vẽ vội vã rời đi, trở về Ngọc Thanh Thiên Cung, thầm nghĩ: "Cầu Linh Năng Đối Chuyển này lại rất hữu dụng, có thể kết nối Thiên Đình với các chư thiên khác, không phải chỉ kết nối Nguyên giới. Nếu chế tạo được loại Cầu Linh Năng Đối Chuyển này, bản cung có thể thống trị nhiều thế giới chư thiên hơn..."
 
 Tần Mục cùng Tề Cửu Nghi, Vân Tiệm Ly và những người khác thì đi về phía Dao Trì. Trong lòng Vân Tiệm Ly sinh nghi, nhịn rất lâu mới hỏi: "Vì sao Thiên Tôn giao Cầu Linh Năng Đối Chuyển cho Vân Sơ Tụ? Cầu Linh Năng Đối Chuyển này có tác dụng rất lớn. Nếu kết nối Thiên Đình và Nguyên giới, chư thần Thiên Đình muốn xuống hạ giới lúc nào thì xuống lúc ấy, khiến Nguyên giới căn bản không có cơ hội phản ứng! Sự thống trị của Thiên Đình chỉ càng vững chắc hơn!"
 

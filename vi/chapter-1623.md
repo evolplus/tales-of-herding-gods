@@ -86,7 +86,7 @@ Tu vi của hắn tổn hao nặng. Hắn đột ngột xoay người, chỉ th�
 
 Trong Quy Khư có hành cung của Đế hậu nương nương. Trong hành cung, một nữ tử thân ngọc nằm ngang, lười biếng tựa trên giường ngọc, vô cùng thoải mái, đang cười nhìn sự kinh hãi của Hỏa Thiên Tôn. Gương mặt ấy rõ ràng là gương mặt của Đế hậu nương nương.
 
-Nhưng nốt ruồi đen giữa mi tâm nàng lại cho thấy thân phận của nàng: Nguyên Mẫu phu nhân!
+Nhưng nốt ruồi đen giữa mi tâm ả lại cho thấy thân phận của ả: Nguyên Mẫu phu nhân!
 
 “Ngọc Lang Quân, chàng xem thủ đoạn của bản cung thế nào?”
 
@@ -108,7 +108,7 @@ Nguyên Mẫu phu nhân cười khanh khách bay lên trời, lướt qua trên 
 
 Dược sư không khỏi khâm phục Tần Mục vạn phần: “Đổi lại là ta thì không chịu nổi!”
 
-Nguyên Mẫu phu nhân thò tay chộp một cái. Song liên cùng cuống trong Đại Uyên chậm rãi dâng lên, rơi vào tay nàng. Nàng cười nói: “Hỏa Thiên Tôn, Hạo nhi của ta sai bản cung tới tiễn ngươi lên đường.”
+Nguyên Mẫu phu nhân thò tay chộp một cái. Song liên cùng cuống trong Đại Uyên chậm rãi dâng lên, rơi vào tay ả. Ả cười nói: “Hỏa Thiên Tôn, Hạo nhi của ta sai bản cung tới tiễn ngươi lên đường.”
 
 Hỏa Thiên Tôn trong lòng đại chấn. Trong khoảnh khắc giao phong vừa rồi, hắn có thể cảm nhận được chiến lực của Nguyên Mẫu phu nhân tuyệt đối không kém hắn, thậm chí còn mạnh hơn hắn!
 

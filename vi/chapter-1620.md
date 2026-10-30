@@ -94,7 +94,7 @@ Trên Độ Thế Kim Thuyền, ánh mắt Tần Mục lóe động, hạ giọn
 
 U Đô lúc này đã chia thành hai phạm vi thế lực lớn. Một bên là lãnh địa của Hư Thiên Tôn, một bên là lãnh địa của Âm Thiên Tử, mỗi bên đều có vô số Ma Thần trấn thủ, vững như thành đồng.
 
-Trong đó, lãnh địa của Hư Thiên Tôn đã được nàng chỉnh lý thỏa đáng. Nàng cưỡng ép ghép từng khối đại lục U Đô do nhục thân Thổ Bá tan rã sụp đổ hóa thành lại với nhau, tạo thành nguyên đại lục của U Đô, mênh mông vô tận, rộng lớn không bờ.
+Trong đó, lãnh địa của Hư Thiên Tôn đã được ả chỉnh lý thỏa đáng. Ả cưỡng ép ghép từng khối đại lục U Đô do nhục thân Thổ Bá tan rã sụp đổ hóa thành lại với nhau, tạo thành nguyên đại lục của U Đô, mênh mông vô tận, rộng lớn không bờ.
 
 Lãnh địa của Âm Thiên Tử thì tản mạn hơn nhiều. Vô số khối đại lục trôi nổi trong U Đô, được nối với nhau bằng xiềng xích luyện từ U Đô hắc thiết, hóa thành từng tuyến dây xích.
 
@@ -170,19 +170,19 @@ Lúc này, Đế Dịch Nguyệt mặc áo đỏ thẫm tân nương đi từ U 
 
 Cùng lúc đó, Hư Thiên Tôn xông vào Sinh Tử Thần Tàng của Hỏa Thiên Tôn, tấn công nguyên thần Hỏa Thiên Tôn!
 
-Nàng thôi thúc ma hỏa vô thượng, trong khoảnh khắc đã châm cháy nguyên thần Hỏa Thiên Tôn!
+Ả thôi thúc ma hỏa vô thượng, trong khoảnh khắc đã châm cháy nguyên thần Hỏa Thiên Tôn!
 
 Hỏa Thiên Tôn dường như đã sớm dự liệu. Từng tầng đạo hỏa luân sau đầu hắn điên cuồng xoay chuyển, hắn cười ha hả: "Đạo hỏa luyện thần hồn, bất diệt Đại Kim Cang! Hư, ngươi còn non lắm! Ta còn muốn mượn ma hỏa của ngươi để bù đắp một khâu cuối cùng mà hồn phách của ta chưa luyện tới!"
 
 Ầm!
 
-Nguyên thần Hỏa Thiên Tôn điên cuồng thôn phệ ma hỏa của Hư Thiên Tôn. Trong lòng Hư Thiên Tôn chấn động vô cùng, chỉ thấy nguyên thần Hỏa Thiên Tôn không hề cháy trong ma hỏa của nàng, trái lại còn hấp thu sức mạnh ma hỏa!
+Nguyên thần Hỏa Thiên Tôn điên cuồng thôn phệ ma hỏa của Hư Thiên Tôn. Trong lòng Hư Thiên Tôn chấn động vô cùng, chỉ thấy nguyên thần Hỏa Thiên Tôn không hề cháy trong ma hỏa của ả, trái lại còn hấp thu sức mạnh ma hỏa!
 
 "Ta từng đi gặp U Thiên Tôn, xin hắn giúp ta dùng ma hỏa rèn luyện hồn phách, nhưng hắn sống chết không chịu, còn nói gì mà đạo bất đồng bất tương vi mưu! Ta từng muốn cưới ngươi, mục đích cũng không phải liên thủ với ngươi, mà cũng là để có được ma hỏa của ngươi! Nhưng bây giờ..."
 
-Hư Thiên Tôn đang định thu hồi ma hỏa thì khí tức Hỏa Thiên Tôn đột nhiên tăng vọt, cưỡng ép chấn nàng ra khỏi cơ thể!
+Hư Thiên Tôn đang định thu hồi ma hỏa thì khí tức Hỏa Thiên Tôn đột nhiên tăng vọt, cưỡng ép chấn ả ra khỏi cơ thể!
 
-Hỏa Thiên Tôn giơ tay chộp về phía nàng, cười lạnh nói: "Nhưng bây giờ, ta đã không cần ngươi nữa!"
+Hỏa Thiên Tôn giơ tay chộp về phía ả, cười lạnh nói: "Nhưng bây giờ, ta đã không cần ngươi nữa!"
 
 Bàn tay hắn càng lúc càng lớn, vặn xoắn không gian, bao phủ Hư Thiên Tôn hoàn toàn!
 

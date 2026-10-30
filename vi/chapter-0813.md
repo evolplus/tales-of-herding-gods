@@ -88,7 +88,7 @@ Tần Mục hít sâu một hơi, thúc giục Bá Thể Tam Đan Công. Sau lư
 
 Tần Mục lập tức làm phép, trầm giọng nói:
 
-"Thôn trưởng yên tâm, con không hồi sinh các nàng, chỉ triệu hồn phách các nàng tới hỏi chuyện. Hỏi xong, con sẽ để các nàng ai về chỗ nấy, sẽ không giữ các nàng lại."
+"Thôn trưởng yên tâm, con không hồi sinh các ả, chỉ triệu hồn phách các ả tới hỏi chuyện. Hỏi xong, con sẽ để các ả ai về chỗ nấy, sẽ không giữ các ả lại."
 
 Thôn trưởng thở phào, nói:
 
@@ -118,15 +118,15 @@ Thôn trưởng nói:
 
 Tần Mục nghi hoặc không hiểu, nói:
 
-"Vừa rồi con dùng Khiên Hồn Dẫn tụ hồn cho nàng. Dù hồn phách của nàng tản lạc tới nơi nào trong vũ trụ thời không, cũng khó thoát khỏi cảm ứng thần thông của con. Nhưng vừa rồi khi con thi triển thần thông, lại hoàn toàn không cảm nhận được hồn phách của nàng, dù chỉ là hạt linh hồn! Thân thể này của nàng vốn chỉ là một cái vỏ rỗng!"
+"Vừa rồi con dùng Khiên Hồn Dẫn tụ hồn cho ả. Dù hồn phách của ả tản lạc tới nơi nào trong vũ trụ thời không, cũng khó thoát khỏi cảm ứng thần thông của con. Nhưng vừa rồi khi con thi triển thần thông, lại hoàn toàn không cảm nhận được hồn phách của ả, dù chỉ là hạt linh hồn! Thân thể này của ả vốn chỉ là một cái vỏ rỗng!"
 
 "Ý con là..."
 
 Sắc mặt Thôn trưởng cổ quái:
 
-"Tuyệt Vô Trần có khả năng vẫn còn sống? Nàng chỉ vứt bỏ thân thể này, nhưng đổi một gương mặt khác sống trên đời."
+"Tuyệt Vô Trần có khả năng vẫn còn sống? Ả chỉ vứt bỏ thân thể này, nhưng đổi một gương mặt khác sống trên đời."
 
-"Không. Dù nàng đổi thân xác, đổi gương mặt, cũng không đổi được linh hồn. Khiên Hồn Dẫn của con là dẫn dắt linh hồn. Dù nàng thay hình đổi dạng, linh hồn của nàng cũng sẽ bị thần thông của con triệu hồi; cho dù triệu hồi không đến, con cũng có thể cảm nhận được linh hồn nàng ở đâu."
+"Không. Dù ả đổi thân xác, đổi gương mặt, cũng không đổi được linh hồn. Khiên Hồn Dẫn của con là dẫn dắt linh hồn. Dù ả thay hình đổi dạng, linh hồn của ả cũng sẽ bị thần thông của con triệu hồi; cho dù triệu hồi không đến, con cũng có thể cảm nhận được linh hồn ả ở đâu."
 
 Sắc mặt Tần Mục càng cổ quái hơn. Đột nhiên hắn chém đinh chặt sắt:
 

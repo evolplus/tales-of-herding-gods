@@ -184,7 +184,7 @@ Tần Mục quay đầu lại, nói:
 
 Trong lòng Vân Thiên Tôn kinh hãi. Tần Mục đã đứng trên ván cửa, rít gào lao đi:
 
-“Vân, ngươi đi dọa lui Nguyên Mẫu phu nhân! Nàng đang đối quyết với Lăng Thiên Tôn, ta hơi lo cho nàng ấy!”
+“Vân, ngươi đi dọa lui Nguyên Mẫu phu nhân! Ả đang đối quyết với Lăng Thiên Tôn, ta hơi lo cho nàng ấy!”
 
 Vân Thiên Tôn nhíu mày:
 
@@ -194,17 +194,17 @@ Nơi sâu nhất của Quy Khư Đại Uyên, Hỗn Độn Hải cuộn trào. G
 
 “Hóa ra là vậy, hóa ra là vậy...”
 
-Nàng đột nhiên cười khanh khách:
+Ả đột nhiên cười khanh khách:
 
 “Hóa ra ngươi cũng như Lão Thất, đều đến từ Kỷ thứ mười bảy trong tương lai. Khó trách sư phụ mỗi lần nhắc đến ngươi đều vô cùng tán thưởng.”
 
-Sắc mặt Nguyên Mẫu phu nhân kinh nghi bất định. Nàng nhìn Lăng Thiên Tôn, lại nhìn Nhị công tử, không hiểu vị Nhị công tử ấy đang nói gì.
+Sắc mặt Nguyên Mẫu phu nhân kinh nghi bất định. Ả nhìn Lăng Thiên Tôn, lại nhìn Nhị công tử, không hiểu vị Nhị công tử ấy đang nói gì.
 
 “Ngươi khiến Di La Cung rất đau đầu. Theo lý mà nói, ta là Nhị công tử, gặp ngươi chắc chắn phải ra tay với ngươi, xóa sổ ngươi.”
 
-Nhị công tử Vô Cực chớp đôi mắt khổng lồ. Trong ánh mắt nàng đầy hưng phấn và hỗn loạn. Nguyên Mẫu phu nhân rất quen thuộc với ánh mắt ấy, đó là ánh mắt chỉ sợ thiên hạ chưa đủ loạn!
+Nhị công tử Vô Cực chớp đôi mắt khổng lồ. Trong ánh mắt ả đầy hưng phấn và hỗn loạn. Nguyên Mẫu phu nhân rất quen thuộc với ánh mắt ấy, đó là ánh mắt chỉ sợ thiên hạ chưa đủ loạn!
 
-Nàng và vị Nhị công tử này là cùng một hạng người!
+Ả và vị Nhị công tử này là cùng một hạng người!
 
 “Nhưng ta sẽ không làm vậy. Ta bị sư phụ trấn áp ở đây, sao lại đi giúp Di La Cung?”
 

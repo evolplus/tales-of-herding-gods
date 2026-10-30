@@ -58,7 +58,7 @@ Tần Mục dừng bước, nhìn về phía luồng đạo quang kia. Lờ mờ
 
 Tần Mục nhìn về phía tòa đại điện ấy, kinh nghi bất định. Chỉ thấy tòa đại điện ấy chính là Lăng Tiêu Bảo Điện!
 
-“Lăng Tiêu Bảo Điện là Bảo Điện của mấy công tử?” Hắn hỏi Đạo quả đang bay tới.
+“Lăng Tiêu Bảo Điện là Bảo Điện của công tử nào?” Hắn hỏi Đạo quả đang bay tới.
 
 Nữ tử trong Đạo quả nói: “Tam công tử.”
 

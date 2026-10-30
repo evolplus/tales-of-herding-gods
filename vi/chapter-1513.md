@@ -170,11 +170,11 @@ Hư Thiên Tôn đuổi theo phía sau thuyền, còn nàng đứng ở đuôi t
 
 Mắt thấy Hư Thiên Tôn sắp đuổi kịp, đột nhiên từ mé chéo có một tôn Thần khí Ngự Thiên Tôn xông ra, đánh về phía Hư Thiên Tôn.
 
-Hư Thiên Tôn bất đắc dĩ, đành phải chặn tôn Thần khí Ngự Thiên Tôn kia. Thuyền nhỏ đã lướt khỏi tầm mắt nàng.
+Hư Thiên Tôn bất đắc dĩ, đành phải chặn tôn Thần khí Ngự Thiên Tôn kia. Thuyền nhỏ đã lướt khỏi tầm mắt ả.
 
 “Thạch Kỳ La!”
 
-Hư Thiên Tôn giận dữ. Sau mấy hiệp, nàng nhẹ nhàng đóng một ấn lên mi tâm Thần khí Ngự Thiên Tôn, phong ấn tất cả giác quan của nó, đánh rơi vào Hỗn Độn Trường Hà.
+Hư Thiên Tôn giận dữ. Sau mấy hiệp, ả nhẹ nhàng đóng một ấn lên mi tâm Thần khí Ngự Thiên Tôn, phong ấn tất cả giác quan của nó, đánh rơi vào Hỗn Độn Trường Hà.
 
 Trên thuyền nhỏ, Tường Thiên Phi vừa thở phào nhẹ nhõm thì thấy một cây Đạo thụ xuất hiện sau thuyền. Thạch Kỳ La thân hình thô kệch xách Bách Bảo Tương, hớn hở đuổi đánh bọn họ!
 

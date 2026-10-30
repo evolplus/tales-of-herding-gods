@@ -112,7 +112,7 @@ Lãng Uyển Thần Vương không nói. Vân Sơ Tụ thi lễ với Nghiên Th
 
 Trong lòng Vân Sơ Tụ hồ nghi: "Giọng điệu Nghiên Thiên Tôn lợi hại như vậy, chẳng lẽ tiểu tiện nhân này là tỷ tỷ?"
 
-Từ sau khi phát hiện Liên Hoa Hồn chính là Đế hậu nương nương, nàng luôn có chút nghi thần nghi quỷ.
+Từ sau khi phát hiện Liên Hoa Hồn chính là Đế hậu nương nương, ả luôn có chút nghi thần nghi quỷ.
 
 Nghiên Thiên Phi cáo từ, cười nói: "Tìm được mèo nhi rồi, ta cũng yên tâm, không quấy rầy Mục Thiên Tôn tu hành nữa. Dù sao ta là Thiên phi, ở đây lâu dễ khiến người ta dị nghị. Hôm khác bản cung sẽ đưa bái thiếp trước, rồi lại tới bái phỏng."
 

@@ -150,7 +150,7 @@ Trong vực sâu còn lại cũng có một đóa hoa mọc ra. Sau khi hoa nở
 
 "Tiện nhân!"
 
-Nàng đứng phắt dậy, sát khí đằng đằng, lạnh lùng nói: "Đã đến lúc giải quyết ân oán giữa chúng ta rồi! Hôm nay ngươi nhất định phải chết ở đây!"
+Ả đứng phắt dậy, sát khí đằng đằng, lạnh lùng nói: "Đã đến lúc giải quyết ân oán giữa chúng ta rồi! Hôm nay ngươi nhất định phải chết ở đây!"
 
 Vân Sơ Tụ phì cười nói: "Ngươi ấy à, lúc nào cũng nghiêm túc đứng đắn như vậy, chẳng có chút thú vị nào. Khó trách tỷ phu lại chui vào chăn của ta. Ngươi hợp làm Đế hậu nương nương, còn ta hợp làm tình nhân nhỏ hơn."
 
@@ -160,7 +160,7 @@ Liên Hoa Hồn dừng bước, lạnh giọng nói: "Ngươi đoạt nhục th�
 
 Vân Sơ Tụ giũ tay áo của mình, cười hì hì nói: "Ngươi có muốn lấy lại không?"
 
-Ánh mắt Liên Hoa Hồn rơi trên mặt nàng, muốn xem nàng có thành ý này hay không.
+Ánh mắt Liên Hoa Hồn rơi trên mặt ả, muốn xem ả có thành ý này hay không.
 
 Vân Sơ Tụ cười nói: "Vân La Đế Ngụy Tùy Phong đã được đưa lên thuyền ma. Ngươi hẳn phải hiểu rốt cuộc là ai đang thử tìm nhục thân của ngươi. Địa Mẫu Nguyên Quân chết mà chưa tan, chẳng lẽ tỷ phu lại dễ chết như vậy?"
 

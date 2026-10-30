@@ -32,7 +32,7 @@ Lăng Thiên Tôn tự nói một mình, thấp giọng:
 
 Nguyên Mẫu phu nhân dựng tóc gáy.
 
-Khi nàng gặp Nhị công tử Di La Cung ở đây, Nhị công tử đã từng nói với nàng về một con đường thành đạo khác, hơn nữa chính là đặc tính của Quy Khư Thần Nữ, chỉ cổ thần sinh ra trong Quy Khư mới có thể làm được.
+Khi ả gặp Nhị công tử Di La Cung ở đây, Nhị công tử đã từng nói với ả về một con đường thành đạo khác, hơn nữa chính là đặc tính của Quy Khư Thần Nữ, chỉ cổ thần sinh ra trong Quy Khư mới có thể làm được.
 
 Không ngờ Lăng Thiên Tôn vừa tới đây đã nhận ra có một con đường thành đạo khác, đồng thời nhìn ra nguyên lý của hai con đường thành đạo Thế Giới Thụ và Quy Khư!
 
@@ -48,17 +48,17 @@ Trên mặt Nguyên Mẫu phu nhân treo nụ cười, dịu giọng nói:
 
 “Lăng muội muội, ngươi nói không phiền phức, vậy phải làm thế nào mới có thể thành đạo bằng Quy Khư? Ngươi xem bổn cung, có phải đã làm được Quy Khư thành đạo rồi không?”
 
-Lăng Thiên Tôn liếc nàng một cái, lắc đầu:
+Lăng Thiên Tôn liếc ả một cái, lắc đầu:
 
 “Ngươi chưa thành. Con đường ngươi đi chỉ là phương pháp Đạo Thụ thành đạo truyền thống. Nhưng đạo Quy Khư của ngươi xung đột với Chung Cực Hư Không, không thể tu thành Đạo Thụ. Đường của ngươi đi lệch rồi.”
 
-Khí thế của Nguyên Mẫu phu nhân nghẹn lại. Nàng là một trong những người mạnh mẽ nhất thế gian hiện nay, chưa ai dám nói trước mặt nàng rằng con đường của nàng đã đi lệch!
+Khí thế của Nguyên Mẫu phu nhân nghẹn lại. Ả là một trong những người mạnh mẽ nhất thế gian hiện nay, chưa ai dám nói trước mặt ả rằng con đường của ả đã đi lệch!
 
-Nhưng kể từ khi Hạo Thiên Đế cứu mẹ, đưa nàng thoát khỏi phong ấn kết ấn dây đỏ của Tần Mục, nàng quả thật từng thử in dấu đạo của mình vào Chung Cực Hư Không, nhưng lần nào cũng thất bại.
+Nhưng kể từ khi Hạo Thiên Đế cứu mẹ, đưa ả thoát khỏi phong ấn kết ấn dây đỏ của Tần Mục, ả quả thật từng thử in dấu đạo của mình vào Chung Cực Hư Không, nhưng lần nào cũng thất bại.
 
-Gió Lãnh Tịch của Chung Cực Hư Không khi gặp gió Nhiệt Tịch của đạo Quy Khư của nàng liền triệt tiêu lẫn nhau!
+Gió Lãnh Tịch của Chung Cực Hư Không khi gặp gió Nhiệt Tịch của đạo Quy Khư của ả liền triệt tiêu lẫn nhau!
 
-Đừng nói Đạo Thụ, thậm chí mỗi khi nàng tiến vào Chung Cực Hư Không, đều cảm thấy nguy cơ tử vong!
+Đừng nói Đạo Thụ, thậm chí mỗi khi ả tiến vào Chung Cực Hư Không, đều cảm thấy nguy cơ tử vong!
 
 “Trên đời này có một người đã làm được Quy Khư thành đạo.”
 
@@ -66,7 +66,7 @@ Lăng Thiên Tôn tiếp tục nói:
 
 “Mục Thiên Tôn lấy bản thân làm vũ trụ, diễn hóa Quy Khư, gieo sen trong Hỗn Độn Quy Khư, mọc ra hoa sen. Vì vậy hắn mới là chính tông Quy Khư thành đạo. Nhưng đường của hắn cũng đi hơi lệch. Hắn không phải do tham ngộ đạo Quy Khư mà tu thành sen trong Hỗn Độn, mà giống Thế Giới Thụ của hắn, đều dựa vào ngoại vật. Hắn dựa vào hạt sen Quy Khư.”
 
-Nguyên Mẫu phu nhân như có điều suy nghĩ. Lúc này, một chiếc lá sen lặng lẽ trôi tới từ xa. Nhị công tử vốn bị trấn áp trong Hỗn Độn Hải đang định ra tay với hai người trên lá sen, cưỡng ép bắt họ tới. Nghe vậy, nàng không khỏi hơi ngẩn ra, chưa vội ra tay.
+Nguyên Mẫu phu nhân như có điều suy nghĩ. Lúc này, một chiếc lá sen lặng lẽ trôi tới từ xa. Nhị công tử vốn bị trấn áp trong Hỗn Độn Hải đang định ra tay với hai người trên lá sen, cưỡng ép bắt họ tới. Nghe vậy, ả không khỏi hơi ngẩn ra, chưa vội ra tay.
 
 “Kiến giải của ngươi rất bất phàm. Kỷ thứ mười bảy vậy mà có một người như ngươi, đúng là một vùng đất quý.”
 
@@ -74,7 +74,7 @@ Hỗn Độn Hải cuộn trào, sóng lớn cuồn cuộn. Gương mặt khổn
 
 “Xem ra sư phụ nói không sai. Ông từng cảm khái rằng những bậc thành đạo như chúng ta chính là sâu mọt của vũ trụ. Chúng ta lén vượt sang vũ trụ sau, chiếm đoạt linh khí linh lực nơi đó, khiến vũ trụ nguyên sinh càng lúc càng nhỏ, sinh linh trí tuệ sinh ra cũng càng lúc càng ít, đến mức muốn xuất hiện một bậc có thể giải quyết đại kiếp Phá Diệt cũng càng khó. Kỷ thứ mười bảy không bị bậc thành đạo tiền sử xâm nhập, vậy mà sinh ra một nữ tử linh tuệ như ngươi.”
 
-Gương mặt nàng dần dần hiện lên từ Hỗn Độn Hải, xuất hiện trên mặt biển cách đó không xa.
+Gương mặt ả dần dần hiện lên từ Hỗn Độn Hải, xuất hiện trên mặt biển cách đó không xa.
 
 Lăng Thiên Tôn nhìn xuống. Chỉ thấy vị Nhị công tử Di La Cung này dung mạo mỹ lệ, có nét tương tự Nguyên Mẫu phu nhân, nhưng còn xinh đẹp hơn một chút.
 

@@ -126,7 +126,7 @@ Cuối cùng, chư thiên Linh Uyên hoàn toàn hóa thành năng lượng, bi�
 
 Hư Thiên Tôn khom người cảm tạ.
 
-Mười năm này, Chủ điện Linh Quan chỉ điểm nàng tu hành, khiến nàng được lợi rất nhiều, một thân tu vi thực lực tiến bộ vượt bậc, hơn xa trước kia.
+Mười năm này, Chủ điện Linh Quan chỉ điểm ả tu hành, khiến ả được lợi rất nhiều, một thân tu vi thực lực tiến bộ vượt bậc, hơn xa trước kia.
 
 “Ngươi cứ dựa theo điều ta dạy mà tu hành, thành đạo không phải việc khó.”
 

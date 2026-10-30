@@ -30,9 +30,9 @@ Lúc này, tốc độ mở rộng của màn sáng vàng khó thể tưởng t�
 
 Tinh quang trong mắt Hư Thiên Tôn lóe lên: "Ông ta quyết định kéo toàn bộ chúng sinh thiên hạ chôn cùng mình sao? Quả nhiên ông ta đã táng tận lương tâm, bắt đầu đại khai sát giới rồi! Nhưng nói đi cũng phải nói lại, đây mới là Thổ Bá, đây mới là ma đạo chân chính!"
 
-Ma khí quanh người nàng phun trào, nhuộm đen Minh Hà, cười nói: "Ông luôn giả vờ đạo mạo, giả vờ công chính vô tư, giả vờ công đạo, dáng vẻ chấp pháp công bằng không có tư tâm. Nhưng ta là nữ nhi của ông, sao ta lại không biết ma đạo là gì? Giờ ông cuối cùng cũng lộ ra bộ mặt thật rồi!"
+Ma khí quanh người ả phun trào, nhuộm đen Minh Hà, cười nói: "Ông luôn giả vờ đạo mạo, giả vờ công chính vô tư, giả vờ công đạo, dáng vẻ chấp pháp công bằng không có tư tâm. Nhưng ta là nữ nhi của ông, sao ta lại không biết ma đạo là gì? Giờ ông cuối cùng cũng lộ ra bộ mặt thật rồi!"
 
-Sau lưng nàng, hư không nứt ra, gương mặt khổng lồ của Thiên Công chen vỡ chân trời, cúi xuống nhìn.
+Sau lưng ả, hư không nứt ra, gương mặt khổng lồ của Thiên Công chen vỡ chân trời, cúi xuống nhìn.
 
 Tổ Thần Vương đứng ở mi tâm Thiên Công. Ma khí và thần khí Huyền Đô va chạm, hủy diệt lẫn nhau, khiến xung quanh Thiên Công tràn ngập ngọn lửa do hủy diệt tạo thành, phủ kín bầu trời.
 
@@ -46,13 +46,13 @@ Tổ Thần Vương nhíu mày.
 
 Hư Thiên Tôn lạnh lùng nói: "Cùng lắm chúng ta lại tạo ra chư thiên, tạo hóa chúng sinh, sáng tạo ra một lứa sinh linh và chư thần nghe lời!"
 
-Đột nhiên, nàng bất giác lệ ướt hai má. Nước mắt trượt qua gò má nàng, bay trong không trung, hóa thành từng đóa ma hỏa trôi nổi.
+Đột nhiên, ả bất giác lệ ướt hai má. Nước mắt trượt qua gò má ả, bay trong không trung, hóa thành từng đóa ma hỏa trôi nổi.
 
 "Sao ta lại rơi lệ?"
 
 Hư Thiên Tôn lẩm bẩm: "Đời này ta chỉ rơi lệ một lần, vẫn là lúc thơ ấu vô tri. Từ đó về sau ta chưa từng rơi lệ nữa..."
 
-Nàng nhìn những giọt nước mắt ma hỏa lơ lửng trong không trung, hơi thất thần, trong lòng mơ hồ có chút bất an.
+Ả nhìn những giọt nước mắt ma hỏa lơ lửng trong không trung, hơi thất thần, trong lòng mơ hồ có chút bất an.
 
 Đúng lúc này, trên bề mặt Sinh Tử Bộ bao phủ toàn bộ U Đô thế giới hiện ra một cái tên.
 

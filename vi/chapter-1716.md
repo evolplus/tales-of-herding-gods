@@ -46,31 +46,31 @@ Nếu Ma Thần ma quái của U Đô công phá Diên Khang, đối với thầ
 
 Hư Thiên Tôn kéo A Sửu Thổ Bá, dùng sức sải bước về phía Lam Phong cốc địa, cười nói: “Lam Ngự Điền ở U Đô cũng không thể là đối thủ của ta! Diên Khang này đối với ta chính là bãi chăn thả không phòng bị, xông vào là có thể tung hoành tàn sát, ăn uống thỏa thuê! Phụ thần, đây chính là sức mạnh của chúng ta, sức mạnh mà người không dám vận dụng!”
 
-Trong mắt nàng lóe lên ánh sáng khoái ý, hệt như một bé gái trong lòng đầy u ám sắp đẩy ngã đập vỡ món đồ sứ mình muốn phá hoại từ lâu, trong lòng tràn ngập mong đợi, hưng phấn và ham muốn hủy diệt mãnh liệt!
+Trong mắt ả lóe lên ánh sáng khoái ý, hệt như một bé gái trong lòng đầy u ám sắp đẩy ngã đập vỡ món đồ sứ mình muốn phá hoại từ lâu, trong lòng tràn ngập mong đợi, hưng phấn và ham muốn hủy diệt mãnh liệt!
 
-“Nhưng ta dám!” nàng cười nói.
+“Nhưng ta dám!” ả cười nói.
 
 Lúc này tại Lam Phong cốc địa, Thôn trưởng đang truyền đạo giảng pháp. Lam Ngự Điền cúi mắt nhìn xuống, thấy Hư Thiên Tôn đang xách bắp chân A Sửu.
 
-Hắn đứng dậy. Nếu để Hư Thiên Tôn phá vào Lam Phong cốc địa, e rằng tất cả mọi người đều không phải đối thủ của nàng!
+Hắn đứng dậy. Nếu để Hư Thiên Tôn phá vào Lam Phong cốc địa, e rằng tất cả mọi người đều không phải đối thủ của ả!
 
 Chỉ có bản thân hắn còn có thể đánh một trận với Hư Thiên Tôn!
 
 Hắn đang định bước vào U Đô Nguyên giới thì đột nhiên dừng chân.
 
-Trong U Đô Nguyên giới, Hư Thiên Tôn cũng dừng bước, buông chân A Sửu ra. Nghiệp hỏa trên người A Sửu quá nặng, thiêu đốt bàn tay nàng, khiến nàng đau đớn khó chịu.
+Trong U Đô Nguyên giới, Hư Thiên Tôn cũng dừng bước, buông chân A Sửu ra. Nghiệp hỏa trên người A Sửu quá nặng, thiêu đốt bàn tay ả, khiến ả đau đớn khó chịu.
 
-Nàng quay đầu lại, chỉ thấy nghiệp hỏa kim thân của A Sửu bị ngọn lửa hừng hực thiêu đến cháy đen, như một người khổng lồ làm bằng than đen, mà than đen ấy đã bị châm lửa.
+Ả quay đầu lại, chỉ thấy nghiệp hỏa kim thân của A Sửu bị ngọn lửa hừng hực thiêu đến cháy đen, như một người khổng lồ làm bằng than đen, mà than đen ấy đã bị châm lửa.
 
 “Phụ thần, người vẫn không nỡ bỏ nhân tộc sao?”
 
-Hư Thiên Tôn bật cười, giễu cợt: “Người vì muốn làm người mà hại chết mẹ, hại chết con cái của người. Bây giờ người lại vì nhân tộc mà muốn giết đứa con gái duy nhất còn lại của người, đúng không?”
+Hư Thiên Tôn bật cười, giễu cợt: “Người vì muốn làm người mà hại chết mẫu thân, hại chết con cái của người. Bây giờ người lại vì nhân tộc mà muốn giết đứa con gái duy nhất còn lại của người, đúng không?”
 
 A Sửu chậm rãi bò dậy. Nghiệp hỏa trên người hắn càng dữ dội hơn, nỗi đau thiêu đốt thân xác căn bản không bằng một phần vạn nỗi đau thiêu đốt nguyên thần!
 
 Mà nỗi đau trên nguyên thần lại xa không bằng một phần vạn nỗi đau trên đạo tâm.
 
-“Con của cha, cha rất muốn bảo vệ các con...”
+“Con của vi phụ, vi phụ rất muốn bảo vệ các con...”
 
 Hắn quay lưng về phía Hư Thiên Tôn, hai vai run rẩy, giơ tay che mặt. Nước mắt lửa chảy ra từ ba con mắt của hắn.
 
@@ -138,7 +138,7 @@ Hắn là người.
 
 Nhưng khoảnh khắc này, hắn buộc phải đưa ra lựa chọn.
 
-“Con gái của cha...”
+“Con gái của vi phụ...”
 
 A Sửu siết chặt nắm tay, ngửa mặt gầm lên. U Đô Đại Đạo từ trong cơ thể hắn phóng thích ra, sức mạnh của U Đô đang thức tỉnh, Thổ Bá trong cơ thể hắn lại lần nữa hồi sinh.
 
@@ -148,9 +148,9 @@ Thổ Bá trong cơ thể A Sửu thức tỉnh, Đại Đạo U Đô lại lầ
 
 Hắn quay đầu lại. Ba con mắt đều là nước mắt đỏ như lửa, nhìn Hư Thiên Tôn rồi vươn tay ra.
 
-“Con gái của cha, về nhà đi, cha đưa con về nhà.”
+“Con gái của vi phụ, về nhà đi, vi phụ đưa con về nhà.”
 
-A Sửu áp chế quy tắc của U Đô Đại Đạo, nở nụ cười xấu xí với Hư Thiên Tôn: “Về nhà đi, đừng tạo thêm sát lục nữa. Cha sắp không áp chế được U Đô Đại Đạo rồi...”
+A Sửu áp chế quy tắc của U Đô Đại Đạo, nở nụ cười xấu xí với Hư Thiên Tôn: “Về nhà đi, đừng tạo thêm sát lục nữa. Vi phụ sắp không áp chế được U Đô Đại Đạo rồi...”
 
 U Đô Đại Đạo sẽ không cho phép Hư Thiên Tôn vận dụng thần thông U Đô để tùy ý tàn sát sinh linh.
 
@@ -158,7 +158,7 @@ Nếu Hư Thiên Tôn cố chấp muốn diệt Diên Khang, vậy Thổ Bá s�
 
 Điều A Sửu đối mặt giống hệt tình cảnh năm xưa, chỉ là lần này hắn không vì báo thù, mà vì bảo vệ chúng sinh Diên Khang.
 
-Trong mắt Hư Thiên Tôn thoáng hiện vẻ mờ mịt, rồi ngay sau đó tâm linh bị thù hận che phủ. Chẳng nói chẳng rằng, nàng thúc giục trường tiên Minh Hà quét về phía hắn, nghiêm giọng nói: “Giả dối! Ta sẽ không theo người về! Ta là Hư Thiên Tôn, Hư Thiên Tôn cao cao tại thượng! Chúng sinh đều sẽ thần phục trước ta, sợ hãi ta! Người cam chịu nghèo hèn, cam chịu nhục nhã, ta thì không!”
+Trong mắt Hư Thiên Tôn thoáng hiện vẻ mờ mịt, rồi ngay sau đó tâm linh bị thù hận che phủ. Chẳng nói chẳng rằng, ả thúc giục trường tiên Minh Hà quét về phía hắn, nghiêm giọng nói: “Giả dối! Ta sẽ không theo người về! Ta là Hư Thiên Tôn, Hư Thiên Tôn cao cao tại thượng! Chúng sinh đều sẽ thần phục trước ta, sợ hãi ta! Người cam chịu nghèo hèn, cam chịu nhục nhã, ta thì không!”
 
 Trường tiên Minh Hà quét về phía A Sửu, nhưng ngay sau đó trở nên mềm mại, lững lờ bay quanh bên hắn.
 
@@ -174,7 +174,7 @@ Hắn vươn tay chộp về phía Hư Thiên Tôn. Bất kỳ thần thông U �
 
 Khoảnh khắc hắn bắt lấy Hư Thiên Tôn, nghiệp hỏa đột nhiên trở nên dữ dội vô cùng, hung mãnh vô cùng. Ngọn lửa hừng hực nuốt chửng cả hắn và Hư Thiên Tôn!
 
-Sát nghiệp do Hư Thiên Tôn tạo ra lúc này cũng bị nghiệp hỏa trên người hắn châm cháy, điên cuồng thiêu đốt. Oán niệm của vô số oan hồn thảm tử dưới tay nàng thúc đẩy nghiệp hỏa này đến cực hạn!
+Sát nghiệp do Hư Thiên Tôn tạo ra lúc này cũng bị nghiệp hỏa trên người hắn châm cháy, điên cuồng thiêu đốt. Oán niệm của vô số oan hồn thảm tử dưới tay ả thúc đẩy nghiệp hỏa này đến cực hạn!
 
 “Thái Dịch nói đúng, ta sẽ đạt thành tâm nguyện. Nhưng ta không ngờ kết quả lại là thế này...”
 

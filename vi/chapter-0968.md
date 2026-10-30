@@ -6,11 +6,11 @@ Sát Sinh Đỉnh, A Sửu, thân chuyển thế của Thổ Bá.
 
 Vì đó là ký ức của Sát Sinh Đỉnh, Tần Mục gần như tương đương hóa thành A Sửu sống lại một lần, vì vậy ấn tượng với đoạn trải nghiệm này cực kỳ sâu sắc.
 
-Hư Thiên Tôn nhìn Sát Sinh Đỉnh, một vài ký ức mơ hồ cũng trào lên trong lòng, rồi lại dần dần mờ nhạt. Sắc mặt nàng khôi phục như thường, lạnh nhạt liếc Tần Mục một cái.
+Hư Thiên Tôn nhìn Sát Sinh Đỉnh, một vài ký ức mơ hồ cũng trào lên trong lòng, rồi lại dần dần mờ nhạt. Sắc mặt ả khôi phục như thường, lạnh nhạt liếc Tần Mục một cái.
 
 "Mục Thiên Tôn, Hỏa Thiên Tôn, ba người chúng ta hẳn đủ để vượt qua Cầu Hư Không, thẳng tới bỉ ngạn."
 
-Nàng làm như không thấy Sát Sinh Đỉnh, nhìn về phía Hỏa Thiên Tôn đang duy trì Bỉ Ngạn Phương Chu, đề nghị: "Chỉ cần chúng ta thành tâm hợp tác, bí ẩn Vô Ưu Hương có thể được giải ra!"
+Ả làm như không thấy Sát Sinh Đỉnh, nhìn về phía Hỏa Thiên Tôn đang duy trì Bỉ Ngạn Phương Chu, đề nghị: "Chỉ cần chúng ta thành tâm hợp tác, bí ẩn Vô Ưu Hương có thể được giải ra!"
 
 Giọng Hỏa Thiên Tôn truyền tới: "Ta đã sớm có ý định hợp tác với ngươi, chỉ là ngươi không chịu mà thôi."
 
@@ -18,19 +18,19 @@ Hư Thiên Tôn nhìn về phía Tần Mục: "Mục Thiên Tôn nghĩ sao?"
 
 Tần Mục thu Sát Sinh Đỉnh lại, mỉm cười: "Ta cũng đã sớm có ý định tìm được Vô Ưu Hương."
 
-Hư Thiên Tôn gật đầu. Nàng một mình xông Cầu Hư Không, thương thế khá nặng, lập tức ngồi xuống yên tĩnh chữa thương.
+Hư Thiên Tôn gật đầu. Ả một mình xông Cầu Hư Không, thương thế khá nặng, lập tức ngồi xuống yên tĩnh chữa thương.
 
-Tần Mục hơi nhíu mày. Thái độ của Hư Thiên Tôn khiến hắn hơi nghi ngờ. Theo lý mà nói, Hư Thiên Tôn nhận ra Sát Sinh Đỉnh, nhưng nhìn thái độ của nàng, dù nhớ Sát Sinh Đỉnh, dường như không kích động đến vậy.
+Tần Mục hơi nhíu mày. Thái độ của Hư Thiên Tôn khiến hắn hơi nghi ngờ. Theo lý mà nói, Hư Thiên Tôn nhận ra Sát Sinh Đỉnh, nhưng nhìn thái độ của ả, dù nhớ Sát Sinh Đỉnh, dường như không kích động đến vậy.
 
 "Lẽ nào Hư Thiên Tôn giống Tổ Thần Vương? Tổ Thần Vương tuy là con của Thiên Công, lại một lòng muốn xử lý Thiên Công để thay thế. Chẳng lẽ Hư Thiên Tôn cũng ôm ý nghĩ tương tự, định xử lý Thổ Bá để thay thế?"
 
-Hư Thiên Tôn là con gái của A Sửu, thân chuyển thế của Thổ Bá. Nàng rơi vào tay cổ thần Thiên Đế, trở thành con tin Thiên Đế nắm trong tay, Thiên Đế dùng nàng để khống chế Thổ Bá.
+Hư Thiên Tôn là con gái của A Sửu, thân chuyển thế của Thổ Bá. Ả rơi vào tay cổ thần Thiên Đế, trở thành con tin Thiên Đế nắm trong tay, Thiên Đế dùng ả để khống chế Thổ Bá.
 
 Những năm qua Hư Thiên Tôn đã gặp chuyện gì, chịu giáo dục thế nào, Tần Mục hoàn toàn không biết.
 
-Khi đó Hư Thiên Tôn chỉ là một bé gái mới chào đời chưa lâu, tương đương một tờ giấy trắng. Quan niệm thiện ác đúng sai của nàng đều hình thành ở Thiên Đình. Nàng sẽ trưởng thành thành người thế nào, hoàn toàn phụ thuộc vào việc Thiên Đình truyền cho nàng thứ gì.
+Khi đó Hư Thiên Tôn chỉ là một bé gái mới chào đời chưa lâu, tương đương một tờ giấy trắng. Quan niệm thiện ác đúng sai của ả đều hình thành ở Thiên Đình. Ả sẽ trưởng thành thành người thế nào, hoàn toàn phụ thuộc vào việc Thiên Đình truyền cho ả thứ gì.
 
-"Hỏa Thiên Tôn bảo ta cẩn thận nàng, xem ra ta quả thật phải cẩn thận nàng." Hắn thầm nói trong lòng.
+"Hỏa Thiên Tôn bảo ta cẩn thận ả, xem ra ta quả thật phải cẩn thận ả." Hắn thầm nói trong lòng.
 
 Có Hư Thiên Tôn và Hỏa Thiên Tôn, cộng thêm Bỉ Ngạn Phương Chu do Tần Mục quan tưởng, đoạn đường sau thuận lợi hơn nhiều.
 

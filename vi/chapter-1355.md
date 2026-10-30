@@ -50,11 +50,11 @@ Tần Mục nghiêm nghị: “Con hiểu.”
 
 Ngụy Tùy Phong, Tư bà bà và mọi người đã chuẩn bị thỏa đáng. Lâu thuyền Diên Khang chuẩn bị khởi hành. Tần Mục đang định lên thuyền, bỗng thấy một luồng sáng lóe lên trong Linh Năng Đối Thiên Kiều, có người từ Thiên Đình giáng lâm Diên Khang.
 
-Tần Mục đứng đầu thuyền, chăm chú nhìn tòa Linh Năng Đối Thiên Kiều kia. Hắn thấy trong ánh sáng trên tế đàn chui ra một cô nương xinh đẹp, tung tăng chạy xuống từ tế đàn. Hai bím tóc đuôi ngựa rất dài đung đưa qua lại, quét qua mông nàng.
+Tần Mục đứng đầu thuyền, chăm chú nhìn tòa Linh Năng Đối Thiên Kiều kia. Hắn thấy trong ánh sáng trên tế đàn chui ra một cô nương xinh đẹp, tung tăng chạy xuống từ tế đàn. Hai bím tóc đuôi ngựa rất dài đung đưa qua lại, quét qua mông ả.
 
 Tần Mục hơi sững ra: “Vân Sơ Tụ... Sao cô ta lại chạy tới Diên Khang nữa?”
 
-Cô gái kia chính là chuyển thế thân của Nguyên Mẫu phu nhân, Vân Sơ Tụ hóa thành dáng vẻ Lãng Uyển Thần Vương. Từ xa nhìn thấy Tần Mục và chiếc lâu thuyền kia, mắt nàng sáng lên, lập tức chạy vội tới.
+Cô gái kia chính là chuyển thế thân của Nguyên Mẫu phu nhân, Vân Sơ Tụ hóa thành dáng vẻ Lãng Uyển Thần Vương. Từ xa nhìn thấy Tần Mục và chiếc lâu thuyền kia, mắt ả sáng lên, lập tức chạy vội tới.
 
 “Tuyệt Vô Trần!”
 
@@ -64,17 +64,17 @@ Tần Mục thấp giọng nói: “Là Nguyên Mẫu phu nhân. Tuyệt Vô Tr�
 
 Ngụy Tùy Phong hơi ngẩn ra. Tần Mục đã bay khỏi lâu thuyền, nghênh đón Vân Sơ Tụ, ôn hòa cười nói: “Muội muội Sơ Tụ, ngọn gió nào thổi muội tới đây? Thời gian trước, Nguyên giới náo nhiệt đến vậy, muội không tham dự quả thật đáng tiếc.”
 
-Vân Sơ Tụ ló đầu nhìn về phía lâu thuyền sau lưng hắn. Tần Mục chắn trước mặt nàng, che khuất tầm mắt nàng.
+Vân Sơ Tụ ló đầu nhìn về phía lâu thuyền sau lưng hắn. Tần Mục chắn trước mặt ả, che khuất tầm mắt ả.
 
 “Lén lút thế này, chắc chắn không phải đi làm chuyện tốt!”
 
 Vân Sơ Tụ cười hì hì nói: “Ta vốn cũng định tới. Ta đã chuẩn bị sẵn một tôn Thần Khí Ngự Thiên Tôn, định xuất hiện thật bá khí, chấn nhiếp Thập Thiên Tôn, độc chiếm Nguyên giới!”
 
-Tần Mục giật mình. Thần Khí Ngự Thiên Tôn của Thập Thiên Tôn mỗi người đều có công dụng riêng. Nếu Nguyên Mẫu phu nhân trực tiếp giáng lâm bằng Thần Khí Ngự Thiên Tôn, chắc chắn áp đảo quần hùng, khiến Thập Thiên Tôn không dám tranh đoạt Nguyên giới với nàng!
+Tần Mục giật mình. Thần Khí Ngự Thiên Tôn của Thập Thiên Tôn mỗi người đều có công dụng riêng. Nếu Nguyên Mẫu phu nhân trực tiếp giáng lâm bằng Thần Khí Ngự Thiên Tôn, chắc chắn áp đảo quần hùng, khiến Thập Thiên Tôn không dám tranh đoạt Nguyên giới với ả!
 
 Vân Sơ Tụ thở dài: “Nhưng ta nghĩ lại, nếu ta điều khiển Thần Khí Ngự Thiên Tôn giáng lâm, vậy Thập Thiên Tôn sẽ phát hiện trong Thiên Đình có mười một vị Thiên Tôn, thế thì thảm rồi. Bọn họ sẽ lôi ta ra. Ta chỉ đành bỏ ý nghĩ này, nhìn các ngươi những kẻ này phô trương uy phong.”
 
-Nàng thở dài liên tục, phiền muộn không thôi vì mình không thể tham dự chuyện vui như vậy.
+Ả thở dài liên tục, phiền muộn không thôi vì mình không thể tham dự chuyện vui như vậy.
 
 Tần Mục mỉm cười nói: “Vậy vì sao muội muội Sơ Tụ lại tới Nguyên giới?”
 
@@ -92,9 +92,9 @@ Sắc mặt Tần Mục cổ quái. Nguyên Mẫu thi yêu kia lại còn có s�
 
 Vân Sơ Tụ than: “Nếu ngươi trả lời đẹp, ả rất vui, sau đó ăn thịt ngươi. Nếu ngươi trả lời xấu, ả rất giận, cũng muốn ăn thịt ngươi. Nếu ngươi không trả lời, ả vẫn muốn ăn thịt ngươi. Quá tổn hại thanh danh của ta!”
 
-Nàng lắc đầu liên tục, lại ló đầu nhìn xem trên lâu thuyền của Tần Mục có những ai.
+Ả lắc đầu liên tục, lại ló đầu nhìn xem trên lâu thuyền của Tần Mục có những ai.
 
-Tần Mục vẫn chắn trước mặt nàng, cười nói: “Vậy muội còn không mau đi? Trong thân thể ấy của muội không có ý thức của muội, cũng không có nguyên thần của muội. Nếu có người phát hiện điểm này, chẳng phải sẽ cướp nhục thân của muội để uy hiếp muội sao?”
+Tần Mục vẫn chắn trước mặt ả, cười nói: “Vậy muội còn không mau đi? Trong thân thể ấy của muội không có ý thức của muội, cũng không có nguyên thần của muội. Nếu có người phát hiện điểm này, chẳng phải sẽ cướp nhục thân của muội để uy hiếp muội sao?”
 
 Vân Sơ Tụ chớp mắt, cười hì hì nói: “Bây giờ ta lại không vội lắm. Ta càng muốn xem ngươi định đi đâu. Ngươi đề phòng ta cẩn thận như vậy, nhất định có tính toán nhỏ của ngươi.”
 

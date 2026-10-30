@@ -2,7 +2,7 @@
 
 Nguyên Mẫu phu nhân vừa ra tay đã là đại Thiên Đình do ba mươi sáu Thiên Cung hóa thành, thôi phát đạo Quy Khư tới cực hạn!
 
-Nàng càng nên được gọi là Quy Khư Thần Nữ, chỉ là lúc này ý thức của Nguyên Mẫu phu nhân chiếm chủ đạo. Nàng dung hợp đạo hủy diệt của Nguyên Mẫu phu nhân và đạo sáng sinh của Đế hậu nương nương, dung hợp trở về một, hóa thành đạo Quy Khư hoàn mỹ.
+Ả càng nên được gọi là Quy Khư Thần Nữ, chỉ là lúc này ý thức của Nguyên Mẫu phu nhân chiếm chủ đạo. Ả dung hợp đạo hủy diệt của Nguyên Mẫu phu nhân và đạo sáng sinh của Đế hậu nương nương, dung hợp trở về một, hóa thành đạo Quy Khư hoàn mỹ.
 
 Sức mạnh của đạo Quy Khư hoàn mỹ cực kỳ kỳ lạ, có thể nuốt vạn vật, nuốt mọi năng lượng, đồng thời hóa thành sức mạnh của chính mình.
 
@@ -10,7 +10,7 @@ Uy lực đạo hỏa của Hỏa Thiên Tôn gần như có thể sánh với g
 
 Năng lượng khủng bố vô cùng bị ép lại cùng một chỗ chính là gió Nhiệt Tịch!
 
-Đối quyết với Nguyên Mẫu phu nhân, người ta sẽ phát hiện pháp lực của mình càng lúc càng thấp, còn thực lực của nàng lại càng lúc càng cao!
+Đối quyết với Nguyên Mẫu phu nhân, người ta sẽ phát hiện pháp lực của mình càng lúc càng thấp, còn thực lực của ả lại càng lúc càng cao!
 
 Ầm!
 
@@ -62,15 +62,15 @@ Nhưng điều kỳ quái là hoa sen trong tay Nguyên Mẫu phu nhân vừa gi
 
 Hỏa Thiên Tôn ngẩn ra trong lòng, chỉ thấy Nguyên Mẫu phu nhân đứng đó, trên mặt lại lộ vẻ kinh hoảng, hơn nữa vẻ kinh hoảng ấy càng lúc càng đậm.
 
-Thần tình của nàng không giống giả vờ. Hiện tại nàng đã chiếm hết thượng phong, hoàn toàn không cần giả bộ.
+Thần tình của ả không giống giả vờ. Hiện tại ả đã chiếm hết thượng phong, hoàn toàn không cần giả bộ.
 
-Thế nhưng Nguyên Mẫu phu nhân không những lộ vẻ kinh hoảng, thậm chí thân thể còn bắt đầu run rẩy. Cùng lúc đó, nốt ruồi đen giữa mi tâm nàng dần dần biến đổi, từ màu đen biến thành màu đỏ.
+Thế nhưng Nguyên Mẫu phu nhân không những lộ vẻ kinh hoảng, thậm chí thân thể còn bắt đầu run rẩy. Cùng lúc đó, nốt ruồi đen giữa mi tâm ả dần dần biến đổi, từ màu đen biến thành màu đỏ.
 
 “Tiểu tiện nhân...”
 
 Nguyên Mẫu phu nhân nghiến răng, khàn giọng nói: “Lúc này ngươi nhảy ra, muốn chết sao?”
 
-Hỏa Thiên Tôn không hiểu ý nàng, lập tức ra tay hung hăng đánh lên người Nguyên Mẫu phu nhân. Đột nhiên song liên cùng cuống trong tay Nguyên Mẫu biến lớn, vù một tiếng khép lại, bao bọc Nguyên Mẫu phu nhân bên trong.
+Hỏa Thiên Tôn không hiểu ý ả, lập tức ra tay hung hăng đánh lên người Nguyên Mẫu phu nhân. Đột nhiên song liên cùng cuống trong tay Nguyên Mẫu biến lớn, vù một tiếng khép lại, bao bọc Nguyên Mẫu phu nhân bên trong.
 
 Một kích này của Hỏa Thiên Tôn đánh lên tầng tầng cánh hoa, đánh cánh hoa rụng lả tả, nhưng kình lực khủng bố vẫn truyền vào sâu trong song liên.
 
@@ -104,7 +104,7 @@ Tổ Thần Vương và Hư Thiên Tôn bị thương khá nặng, liếc nhau, 
 
 Trận chiến trong song liên cùng cuống kết thúc rất nhanh. Đột nhiên cánh hoa nứt ra, một luồng hỏa quang xông ra. Người kia toàn thân đầy máu, chính là Hỏa Thiên Tôn.
 
-Tổ Thần Vương và Hư Thiên Tôn lập tức ra tay ngăn cản. Ba người lấy nhanh đánh nhanh ngoài đài hoa. Hư Thiên Tôn chém đứt cánh tay trái của Hỏa Thiên Tôn. Hỏa Thiên Tôn vặn đầu Hư Thiên Tôn từ phía trước ra phía sau, để nàng nhìn thấy mông của mình.
+Tổ Thần Vương và Hư Thiên Tôn lập tức ra tay ngăn cản. Ba người lấy nhanh đánh nhanh ngoài đài hoa. Hư Thiên Tôn chém đứt cánh tay trái của Hỏa Thiên Tôn. Hỏa Thiên Tôn vặn đầu Hư Thiên Tôn từ phía trước ra phía sau, để ả nhìn thấy mông của mình.
 
 Tổ Thần Vương thôi thúc thân xác Thiên Công, một kích đập đầu Hỏa Thiên Tôn vào trong lồng ngực. Trên ngực Hỏa Thiên Tôn mọc ra hai mắt, tay phải bắt lấy Tổ Thần Vương đang đứng trên mặt Thiên Công. Đạo hỏa như bánh xe, vặn vẹo thân thể hắn thành hơn mười vòng, thân xác nguyên thần bị kéo thành sợi còn nhỏ hơn thừng bện!
 

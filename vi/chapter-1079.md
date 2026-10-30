@@ -30,7 +30,7 @@ Hiển nhiên, Cung Vân Thần Vương cũng nhắm đến thân xác của Thi
 
 Đầu óc Tần Mục xoay chuyển thật nhanh. Một hồn khác của Thiên Đế e rằng đã chuyển thế, mà người này chính là Hiểu Thiên Tôn về sau!
 
-"Hiểu có ở trong Thiên Đình không? Thỏ khôn có ba hang. Nguyên Mẫu phu nhân tuy hóa thành Tuyệt Vô Trần, nhưng nàng nhất định cũng thèm muốn thân xác Thiên Đế. Thậm chí nói không chừng Đế hậu nương nương bị nàng ám toán mà chết đã hóa thành một vị Thiên Tôn khác, lúc này cũng ẩn trong Thiên Đình chuẩn bị mưu đoạt thân thể Thiên Đế!"
+"Hiểu có ở trong Thiên Đình không? Thỏ khôn có ba hang. Nguyên Mẫu phu nhân tuy hóa thành Tuyệt Vô Trần, nhưng ả nhất định cũng thèm muốn thân xác Thiên Đế. Thậm chí nói không chừng Đế hậu nương nương bị ả ám toán mà chết đã hóa thành một vị Thiên Tôn khác, lúc này cũng ẩn trong Thiên Đình chuẩn bị mưu đoạt thân thể Thiên Đế!"
 
 Tần Mục thở hổn hển, đầu óc hơi choáng váng.
 

@@ -110,7 +110,7 @@ Một cô gái trên đầu mọc sừng xuất hiện, hờ hững nói: "Bá p
 
 Ánh mắt Sơ Hiểu rơi lên mặt cô gái này, nghiến răng nói: "Hư, ngươi là do ta nuôi lớn!"
 
-Cô gái này chính là Hư Thiên Tôn đời sau. Nàng lạnh nhạt nói: "Đúng vậy, bá phụ. Những thứ ngươi dạy ta, ta đều nhớ. Thổ Bá, ta sẽ thay thế. Còn ngươi, ta cũng muốn thay thế."
+Cô gái này chính là Hư Thiên Tôn đời sau. Ả lạnh nhạt nói: "Đúng vậy, bá phụ. Những thứ ngươi dạy ta, ta đều nhớ. Thổ Bá, ta sẽ thay thế. Còn ngươi, ta cũng muốn thay thế."
 
 "Thiên Công cũng sẽ không đến."
 

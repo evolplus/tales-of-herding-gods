@@ -164,7 +164,7 @@ Trận đồ lao thẳng về phía Lãng Uyển Thần Vương, rơi xuống sa
 
 Lãng Uyển suýt nữa bị Thái Âm nương nương chém chết. Trận đồ rơi xuống sau đầu, khí tức của ba mươi sáu tòa Thiên Cung dung hợp làm một với nàng. Nàng lạnh nhạt nói: “Thái Âm đạo hữu, cô có biết sau khi thành đạo sẽ có sức mạnh lớn đến mức nào không?”
 
-Đồng tử Thái Âm nương nương co rút, nàng thúc giục khoáng mạch Thái Cực bảo vệ quanh thân.
+Đồng tử Thái Âm nương nương co rút, ả thúc giục khoáng mạch Thái Cực bảo vệ quanh thân.
 
 “Trước kia ta không biết.”
 

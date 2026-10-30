@@ -96,7 +96,7 @@ Hạo Thiên Tôn hỏi vấn đề mấu chốt nhất: "Vậy Mục Thiên Tô
 
 Hư Thiên Tôn lắc đầu: "Chuyện này thì không biết."
 
-Hỏa Thiên Tôn liếc nàng một cái. Hư Thiên Tôn không nói chuyện bên cạnh Tần Mục có thêm hai người, khiến hắn hơi kinh ngạc, không biết nữ tử này rốt cuộc có tính toán gì.
+Hỏa Thiên Tôn liếc ả một cái. Hư Thiên Tôn không nói chuyện bên cạnh Tần Mục có thêm hai người, khiến hắn hơi kinh ngạc, không biết nữ tử này rốt cuộc có tính toán gì.
 
 Nhưng Hư Thiên Tôn không nói, hắn cũng giữ lại đôi điều.
 

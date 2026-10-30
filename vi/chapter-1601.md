@@ -126,7 +126,7 @@ Thái Âm nương nương cau mày, nói: "Đạo huynh đừng cản chúng ta.
 
 Thái Thủy giận quá hóa cười: "Ngũ Thái chúng ta do vũ trụ sinh ra, không phải vì thành đạo, mà là để bảo vệ vũ trụ này trưởng thành! Các vị nên tới thánh địa Hắc Sơn xem thử. Trong khoáng mạch nơi đó, có kẻ nào không phải cường giả sử tiền đang chuẩn bị lén vượt sang? Đám ấy giáng lâm, các vị cho rằng các vị có thể giữ mình ngoài cuộc? Dù các vị thành đạo, cũng sẽ bị bọn chúng đào ra khỏi Đại La Thiên!"
 
-Mặt Thái Âm nương nương không khỏi đỏ bừng. Nàng lạnh lùng nói: "Thái Thủy, chúng ta kính ngươi sinh ra sớm, nên gọi ngươi một tiếng đạo huynh! Nếu dựa theo xuất thế sớm, ngươi phải gọi chúng ta là đạo huynh! Đừng cậy già lên mặt! Hôm nay ngươi nhường hay không nhường?"
+Mặt Thái Âm nương nương không khỏi đỏ bừng. Ả lạnh lùng nói: "Thái Thủy, chúng ta kính ngươi sinh ra sớm, nên gọi ngươi một tiếng đạo huynh! Nếu dựa theo xuất thế sớm, ngươi phải gọi chúng ta là đạo huynh! Đừng cậy già lên mặt! Hôm nay ngươi nhường hay không nhường?"
 
 Thái Thủy trong trứng nổi giận: "Thái Dương đạo hữu, quản muội muội của ngươi đi! Tiên Thiên Ngũ Thái, Thái Dịch bị đoạt xá, Thái Sơ sa đọa thành chó săn của công tử sử tiền, Thái Tố bị Hạo Thiên Tôn giết, Ngũ Thái chỉ còn lại chúng ta! Nếu các vị lại cấu kết với Hạo Thiên Tôn và Thái Sơ, Ngũ Thái chỉ còn lại một mình ta quang minh lỗi lạc..."
 

@@ -66,7 +66,7 @@ Tinh Ngạn nói: "Khi còn sống bọn họ có thể rất ngu, nhưng thứ 
 
 Hắn kiên nhẫn giải thích: "Sau khi bọn họ chết, những ý nghĩ ấy liền không còn. Não của mỗi người chỉ cần giữ được hoạt tính thì đều có thể xem là linh binh tính toán nhanh nhất. Còn ta là tận dụng phế vật, lợi dụng những bộ não này để khiến mình thông minh hơn. Ta có thể dễ dàng tìm ra những chuỗi Thiên Cung khác nhau, đạt tới lời giải tối ưu của công pháp Thiên Đình. Còn kẻ không đủ thông minh như ngươi thì không thể tìm được lời giải tối ưu."
 
-Hạo Thiên Đế ngửa nhìn ma trận bộ não trên không, tán thưởng nói: "Ngươi khiến trẫm nhớ tới một người. Người này là cung chủ Tạo Phụ Thiên Cung của Thiên Đình, Thạch Kỳ La, cũng là mẫu hậu Nguyên Mẫu phu nhân của ta. Nàng cũng có một chiếc rương, trong rương đặt đủ thứ kỳ quái."
+Hạo Thiên Đế ngửa nhìn ma trận bộ não trên không, tán thưởng nói: "Ngươi khiến trẫm nhớ tới một người. Người này là cung chủ Tạo Phụ Thiên Cung của Thiên Đình, Thạch Kỳ La, cũng là mẫu hậu Nguyên Mẫu phu nhân của ta. Mẫu hậu cũng có một chiếc rương, trong rương đặt đủ thứ kỳ quái."
 
 "Thạch Kỳ La?"
 

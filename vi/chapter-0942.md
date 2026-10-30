@@ -168,7 +168,7 @@ Tần Mục bò bên mạn thuyền, thò đầu nhìn quanh, cao giọng nói: 
 
 Vân Sơ Tụ tới bên cạnh hắn, thấp giọng nói: "Giết những kẻ không áp chế nổi tâm ma ấy đi, nếu không chúng ta cũng sẽ rơi vào hung hiểm!"
 
-Tần Mục liếc nàng một cái. Đột nhiên, bên cạnh lâu thuyền, một vị thần nhân vĩ ngạn vô cùng chậm rãi hiện ra, khắp người phủ thần quang, muôn vàn đạo âm ầm ầm chấn động, vang vọng không dứt!
+Tần Mục liếc ả một cái. Đột nhiên, bên cạnh lâu thuyền, một vị thần nhân vĩ ngạn vô cùng chậm rãi hiện ra, khắp người phủ thần quang, muôn vàn đạo âm ầm ầm chấn động, vang vọng không dứt!
 
 Đó là Thiên Đế cổ thần!
 

@@ -120,7 +120,7 @@ Nhưng xu thế phân liệt này đang chậm rãi dừng lại, bởi Hư Thi�
 
 Nếu U Đô hoàn toàn tan rã, không còn nữa, đối với Thiên Đình cũng là một tổn thất to lớn.
 
-Với tu vi thực lực của Hư Thiên Tôn, nàng không thể khống chế toàn bộ U Đô.
+Với tu vi thực lực của Hư Thiên Tôn, ả không thể khống chế toàn bộ U Đô.
 
 Lúc này, Tần Mục thấy có đại quân Thiên Đình tiến vào đóng quân ở U Đô, treo cờ hiệu Âm Thiên Tử.
 

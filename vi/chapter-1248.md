@@ -64,7 +64,7 @@ Giọng nói trẻ con của hắn vang lên, vọng khắp vùng đất Thái H
 
 “Oán niệm của Tạo Vật Chủ đến từ thời Thái Cổ, là món ngon nhất của ta!”
 
-Cùng lúc đó, Hư Thiên Tôn nâng tay trái, mở áo choàng bóng tối trên người. Cặp sừng dài trên đầu nàng càng lúc càng lớn, càng lúc càng dài, hóa thành hai con sông chín khúc chảy dung nham, trấn áp ma tính khắp Thái Hư!
+Cùng lúc đó, Hư Thiên Tôn nâng tay trái, mở áo choàng bóng tối trên người. Cặp sừng dài trên đầu ả càng lúc càng lớn, càng lúc càng dài, hóa thành hai con sông chín khúc chảy dung nham, trấn áp ma tính khắp Thái Hư!
 
 Tần Phượng Thanh từ xa nhìn thấy cảnh này, nhét ngón cái vào miệng mút mút: “Sao mẹ không sinh cho ta hai cái sừng nhỉ, oai phong biết bao... Ả đàn bà này xinh thật! Đánh chết ả, bẻ sừng ả cắm lên trán ta, nhất định cũng đẹp!”
 

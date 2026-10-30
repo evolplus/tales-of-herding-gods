@@ -2,9 +2,9 @@
 
 Bàn tay kia vỗ lên Sinh Tử Bộ. Sức mạnh hùng hậu gần như xé rách món chí bảo U Đô này. U Thiên Tôn ngẩng đầu nhìn ra ngoài trời, ma quang do nguyên thần sau lưng hắn tỏa ra khiến hắn như đang bốc cháy.
 
-Ngoài trời U Đô, Hư Thiên Tôn giận dữ ngút trời. Sau lưng nàng hiện ra Thiên Cung hợp thành Thiên Đình, lại có hai mươi sáu tòa bảo điện vây quanh Thiên Đình. Nàng tung đòn thứ hai, định xóa sạch hoàn toàn dấu ấn trong Sinh Tử Bộ, chiếm làm của riêng.
+Ngoài trời U Đô, Hư Thiên Tôn giận dữ ngút trời. Sau lưng ả hiện ra Thiên Cung hợp thành Thiên Đình, lại có hai mươi sáu tòa bảo điện vây quanh Thiên Đình. Ả tung đòn thứ hai, định xóa sạch hoàn toàn dấu ấn trong Sinh Tử Bộ, chiếm làm của riêng.
 
-Nhưng hiển nhiên nàng không biết, trong Sinh Tử Bộ không có bất cứ dấu ấn nào. Đó là U Đô Đại Đạo tự động chọn chủ, không cần người khống chế bảo vật đặt bất cứ dấu ấn nào.
+Nhưng hiển nhiên ả không biết, trong Sinh Tử Bộ không có bất cứ dấu ấn nào. Đó là U Đô Đại Đạo tự động chọn chủ, không cần người khống chế bảo vật đặt bất cứ dấu ấn nào.
 
 Nếu là chủ nhân được Sinh Tử Bộ lựa chọn, không cần bất cứ dấu ấn nào cũng có thể kích phát toàn bộ uy năng của Sinh Tử Bộ. Mà Sinh Tử Bộ chọn chủ cũng giống như U Thiên Tôn dùng Sinh Tử Bộ khảo nghiệm Tần Mục, Tần Phượng Thanh.
 
@@ -12,11 +12,11 @@ Tần Mục có thể chống lại ma tính của Sinh Tử Bộ, vì vậy có
 
 Tần Phượng Thanh căn bản không bị ma tính của Sinh Tử Bộ lay động, nên Sinh Tử Bộ chọn hắn làm chủ, hắn cũng có thể phát huy toàn bộ năng lực của Sinh Tử Bộ.
 
-Hư Thiên Tôn không biết những điều này, vì vậy chủ động đoạt bảo, lại không biết dù nàng có thể dựa vào pháp lực mạnh mẽ cướp được Sinh Tử Bộ, là phúc hay họa vẫn khó nói.
+Hư Thiên Tôn không biết những điều này, vì vậy chủ động đoạt bảo, lại không biết dù ả có thể dựa vào pháp lực mạnh mẽ cướp được Sinh Tử Bộ, là phúc hay họa vẫn khó nói.
 
-Nàng càng có khả năng bị Sinh Tử Bộ kích phát ma tính, trở nên lục thân không nhận, thành ma đầu, chứ không phải khống chế Sinh Tử Bộ.
+Ả càng có khả năng bị Sinh Tử Bộ kích phát ma tính, trở nên lục thân không nhận, thành ma đầu, chứ không phải khống chế Sinh Tử Bộ.
 
-Còn sau lưng nàng, Tổ Thần Vương khống chế nhục thân Thiên Công. Gương mặt khổng lồ che lấp bầu trời, bất cứ lúc nào cũng chuẩn bị xâm nhập U Đô.
+Còn sau lưng ả, Tổ Thần Vương khống chế nhục thân Thiên Công. Gương mặt khổng lồ che lấp bầu trời, bất cứ lúc nào cũng chuẩn bị xâm nhập U Đô.
 
 Xâm nhập U Đô đối với hắn không phải việc dễ. Thiên đạo Huyền Đô và U Đô Đại Đạo xung đột lẫn nhau. Rời Huyền Đô sẽ làm suy yếu sức mạnh nhục thân Thiên Công, cũng sẽ làm suy yếu uy năng thiên đạo.
 
@@ -72,11 +72,11 @@ U Thiên Tôn tuy hấp thu rất nhiều tri thức của biến pháp Diên Kh
 
 Lúc này Thổ Bá đã chết, U Đô Đại Đạo đang suy yếu, đang chọn chủ lại. Ở sân nhà U Đô này, hắn cũng không chiếm ưu thế.
 
-Hư Thiên Tôn được Tổ Thần Vương trợ giúp, lập tức có thể toàn lực thi triển, ép uy lực Sinh Tử Bộ xuống. Sinh Tử Bộ càng lúc càng nhỏ, rất nhanh bị nàng ép trở lại kích thước bình thường.
+Hư Thiên Tôn được Tổ Thần Vương trợ giúp, lập tức có thể toàn lực thi triển, ép uy lực Sinh Tử Bộ xuống. Sinh Tử Bộ càng lúc càng nhỏ, rất nhanh bị ả ép trở lại kích thước bình thường.
 
-Nàng đang định thu Sinh Tử Bộ vào tay, đột nhiên chỉ nghe tiếng đàn truyền tới, đinh đông vang lên. Chỉ thấy khoảng cách giữa nàng và Sinh Tử Bộ càng lúc càng xa.
+Ả đang định thu Sinh Tử Bộ vào tay, đột nhiên chỉ nghe tiếng đàn truyền tới, đinh đông vang lên. Chỉ thấy khoảng cách giữa ả và Sinh Tử Bộ càng lúc càng xa.
 
-Giữa nàng và Sinh Tử Bộ dường như có không gian vô lượng đang sinh trưởng, khiến nàng từ đầu đến cuối không thể lấy được Sinh Tử Bộ.
+Giữa ả và Sinh Tử Bộ dường như có không gian vô lượng đang sinh trưởng, khiến ả từ đầu đến cuối không thể lấy được Sinh Tử Bộ.
 
 "Nguyệt Thiên Tôn!"
 
@@ -84,7 +84,7 @@ Hư Thiên Tôn nhìn theo tiếng đàn, chỉ thấy một nữ tử ngồi tr
 
 Hư Thiên Tôn hừ lạnh một tiếng. Nguyên thần hiện ra, gào thét lao về phía trước, chụp lấy Sinh Tử Bộ. Thế nhưng tiếng đàn đột nhiên trở nên tinh nghịch nhẹ nhàng. Không gian trong tiếng đàn biến lớn biến nhỏ, dài dài ngắn ngắn, tầng tầng lớp lớp, trên dưới trái phải nhảy động!
 
-Hư Thiên Tôn cảm thấy nguy hiểm. Tiếng đàn của Nguyệt Thiên Tôn như vô số lưỡi dao không gian chém về phía nguyên thần của nàng, khiến nguyên thần nàng bị tổn thương, gần như nứt thành vô số mảnh!
+Hư Thiên Tôn cảm thấy nguy hiểm. Tiếng đàn của Nguyệt Thiên Tôn như vô số lưỡi dao không gian chém về phía nguyên thần của ả, khiến nguyên thần ả bị tổn thương, gần như nứt thành vô số mảnh!
 
 "Hỏa!"
 

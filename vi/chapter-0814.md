@@ -20,9 +20,9 @@ Mọi người lần lượt lắc đầu.
 
 Lão Phật chậm rãi nói:
 
-"Vậy vấn đề đã đến. Đế hậu hẳn đã định ra kế hoạch mưu sát Thiên Đế trước khi đến Quy Khư. Long Bá quốc vì sao lại làm phản? Vì sao trùng hợp đúng lúc nàng trở về Quy Khư thì làm phản? Dù Long Bá quốc bắt Đế hậu để uy hiếp Thiên Đế cũng là hành động ngu xuẩn đến cực điểm, Thiên Đế muốn diệt Long Bá quốc dễ như trở bàn tay. Vậy Long Bá có phải là người của Đế hậu không? Đây là thứ nhất."
+"Vậy vấn đề đã đến. Đế hậu hẳn đã định ra kế hoạch mưu sát Thiên Đế trước khi đến Quy Khư. Long Bá quốc vì sao lại làm phản? Vì sao trùng hợp đúng lúc ả trở về Quy Khư thì làm phản? Dù Long Bá quốc bắt Đế hậu để uy hiếp Thiên Đế cũng là hành động ngu xuẩn đến cực điểm, Thiên Đế muốn diệt Long Bá quốc dễ như trở bàn tay. Vậy Long Bá có phải là người của Đế hậu không? Đây là thứ nhất."
 
-"Thứ hai, Đế hậu nương nương cũng từng tới Quỷ thuyền Vũ Lâm quân này. Nàng đến an táng Tuyệt Vô Trần, chôn nhục thân của mình cùng Tuyệt Vô Trần. Nàng rời khỏi con Quỷ thuyền này như thế nào? Nếu nàng không đích thân tới, vậy là phái người khác tới. Người này liệu còn ở trên thuyền không?"
+"Thứ hai, Đế hậu nương nương cũng từng tới Quỷ thuyền Vũ Lâm quân này. Ả đến an táng Tuyệt Vô Trần, chôn nhục thân của mình cùng Tuyệt Vô Trần. Ả rời khỏi con Quỷ thuyền này như thế nào? Nếu ả không đích thân tới, vậy là phái người khác tới. Người này liệu còn ở trên thuyền không?"
 
 "Thứ ba, nhục thân Đế hậu và Tuyệt Vô Trần đều ở đây. Không còn hai nhục thân ấy, Đế hậu đã đi đâu? Đế hậu trong Thiên Đình là ai?"
 
@@ -60,7 +60,7 @@ Thiên Công cao giọng:
 
 Bên ngoài, ánh mắt Tần Mục chớp động. Điều Thôn trưởng nghĩ cũng là điều hắn nghĩ, Tuyệt Vô Trần chính là Đế hậu.
 
-Là hoàng hậu của Thiên Đế, nàng hiểu rất sâu tính tình Thiên Đế. Thậm chí Thiên Đế còn không hiểu bản thân bằng nàng, vì thế nàng mới có thể bày ra ván cờ nhắm vào Thiên Đế này.
+Là hoàng hậu của Thiên Đế, ả hiểu rất sâu tính tình Thiên Đế. Thậm chí Thiên Đế còn không hiểu bản thân bằng ả, vì thế ả mới có thể bày ra ván cờ nhắm vào Thiên Đế này.
 
 "Vân Thiên Tôn của Thiên Minh tham dự vào đó, vậy Lăng Thiên Tôn thì sao?"
 
@@ -82,7 +82,7 @@ Hắn tự an ủi:
 
 Thương thế của Thôn trưởng khá hơn một chút, miễn cưỡng đứng dậy, nói:
 
-"Khi con chiêu hồn thì bị Đế hậu nương nương cảm ứng được. Nàng hẳn đã cảm ứng được con, phần lớn có thể tìm tới con. Nơi này không nên ở lâu..."
+"Khi con chiêu hồn thì bị Đế hậu nương nương cảm ứng được. Ả hẳn đã cảm ứng được con, phần lớn có thể tìm tới con. Nơi này không nên ở lâu..."
 
 Ông lại nhíu chặt lông mày. Hiện giờ bọn họ bị vây trên Quỷ thuyền, căn bản không thể rời đi.
 

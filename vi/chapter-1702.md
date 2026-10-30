@@ -2,11 +2,11 @@
 
 Sắc mặt Nhị công tử khẽ biến, lập tức định lui ra sau màn, để Hạo Thiên Đế khống chế thân thể này.
 
-Thứ nàng đoạt xá là một trong hai đạo thân của Hạo Thiên Đế. Tam công tử và Tứ công tử Di La Cung lo nàng tách khỏi Hạo Thiên Đế sẽ giải phóng bản thể của nàng, vì vậy mới phong ấn nàng trong cơ thể Hạo Thiên Đế.
+Thứ ả đoạt xá là một trong hai đạo thân của Hạo Thiên Đế. Tam công tử và Tứ công tử Di La Cung lo ả tách khỏi Hạo Thiên Đế sẽ giải phóng bản thể của ả, vì vậy mới phong ấn ả trong cơ thể Hạo Thiên Đế.
 
-Dù vậy, Nhị công tử vẫn mạnh hơn Hạo Thiên Đế. Nàng thường xuyên chui ra, gạt nguyên thần và ý thức của Hạo Thiên Đế sang một bên. Nàng cũng có thể bất cứ lúc nào để Hạo Thiên Đế khống chế thân xác.
+Dù vậy, Nhị công tử vẫn mạnh hơn Hạo Thiên Đế. Ả thường xuyên chui ra, gạt nguyên thần và ý thức của Hạo Thiên Đế sang một bên. Ả cũng có thể bất cứ lúc nào để Hạo Thiên Đế khống chế thân xác.
 
-Đúng như Vân Thiên Tôn nói, Chung Cực Hư Không khắc chế Quy Khư Đại Đạo của nàng, vì vậy lúc này để Hạo Thiên Đế đối phó Vân Thiên Tôn mới là quyết sách tốt nhất.
+Đúng như Vân Thiên Tôn nói, Chung Cực Hư Không khắc chế Quy Khư Đại Đạo của ả, vì vậy lúc này để Hạo Thiên Đế đối phó Vân Thiên Tôn mới là quyết sách tốt nhất.
 
 Chỉ cần Hạo Thiên Đế đi ra, hắn có thể đoạt lại Nhất Khí Đại La Thiên của mình. Khi ấy Nhất Khí Đại La Thiên và Thần Thức Đại La Thiên dung hợp, Vân Thiên Tôn chắc chắn tranh không lại Hạo Thiên Đế.
 
@@ -14,9 +14,9 @@ Thế nhưng...
 
 Lần này lại xảy ra vấn đề.
 
-Khi Nhị công tử thử chuyển đổi với Hạo Thiên Đế, Bất Dịch thần thông ẩn trong cơ thể nàng đột nhiên bộc phát uy lực, khiến nàng không cách nào chuyển đổi với Hạo Thiên Đế!
+Khi Nhị công tử thử chuyển đổi với Hạo Thiên Đế, Bất Dịch thần thông ẩn trong cơ thể ả đột nhiên bộc phát uy lực, khiến ả không cách nào chuyển đổi với Hạo Thiên Đế!
 
-Bất kể nàng thử thế nào, đều như vậy!
+Bất kể ả thử thế nào, đều như vậy!
 
 Nhị công tử kinh ngạc, ngẩng đầu nhìn Vân Thiên Tôn đối diện, nghi hoặc nói: “Một đòn liều chết vừa rồi của ngươi dùng kết ấn dây đỏ giả là để dụ ta đi ra, rồi dùng Bất Dịch thần thông khóa chết Hạo Thiên Đế, chính là vì lúc này?”
 
@@ -34,17 +34,17 @@ Thắng bại được quyết định trong từng chi tiết!
 
 Hạo Thiên Đế quả thật là một đối thủ đáng sợ vô cùng, nhưng vì trước kia từng thắng Vân Thiên Tôn một lần, hắn có tâm thái của kẻ chiến thắng. Lại thêm tu vi vượt xa Vân Thiên Tôn, điều đó khiến hắn sơ suất và khinh địch.
 
-Chiêu thức của Hạo Thiên Đế không sai. Sai ở chỗ hắn đánh giá thấp kẻ địch. Hắn khinh thường Vân Thiên Tôn, khiến Vân Thiên Tôn có cơ hội lợi dụng nhược điểm của Nhị công tử, dùng kết ấn dây đỏ dẫn nàng ra, rồi dùng Bất Dịch thần thông phong ấn Hạo Thiên Đế.
+Chiêu thức của Hạo Thiên Đế không sai. Sai ở chỗ hắn đánh giá thấp kẻ địch. Hắn khinh thường Vân Thiên Tôn, khiến Vân Thiên Tôn có cơ hội lợi dụng nhược điểm của Nhị công tử, dùng kết ấn dây đỏ dẫn ả ra, rồi dùng Bất Dịch thần thông phong ấn Hạo Thiên Đế.
 
 Hạo Thiên Đế không ra được, vậy Vân Thiên Tôn đoạt lấy Nhất Khí Đại La Thiên để tu thành Thái Sơ Đại La Thiên sẽ có khả năng, giao chiến với Nhị công tử cũng có phần thắng, dù phần thắng không cao!
 
 Nhị công tử không thử đổi Hạo Thiên Đế ra nữa, nói: “Đây là thần thông của kẻ báng đạo, quả thật bất phàm. Mưu kế của ngươi cũng đủ xuất sắc. Chung Cực Hư Không và đạo Quy Khư đúng là không dung hòa với nhau. Ngươi kéo ta vào Chung Cực Hư Không, cũng đích thực có thể mượn Chung Cực Hư Không để mài mòn ta. Chỉ tiếc, ngươi quên mất thân phận của ta.”
 
-Sắc mặt nàng bình thản, thản nhiên nói: “Ta là Nhị công tử của Di La Cung. Phàm là công tử, đều là sau khi học đạo pháp thần thông của lão sư, đạt tới cực hạn ở một phương diện nào đó. So với đạo pháp thần thông của Di La Cung, các ngươi, những kẻ gọi là Thiên Tôn, gọi là bậc thành đạo, vẫn chỉ là dã nhân trong rừng nguyên thủy.”
+Sắc mặt ả bình thản, thản nhiên nói: “Ta là Nhị công tử của Di La Cung. Phàm là công tử, đều là sau khi học đạo pháp thần thông của lão sư, đạt tới cực hạn ở một phương diện nào đó. So với đạo pháp thần thông của Di La Cung, các ngươi, những kẻ gọi là Thiên Tôn, gọi là bậc thành đạo, vẫn chỉ là dã nhân trong rừng nguyên thủy.”
 
-Nàng cất bước đi về phía Vân Thiên Tôn, trên mặt hiện ra sự cuồng nhiệt muốn hủy diệt tất cả: “Đáng thương thật đấy. Hẳn ngươi ôm quyết tâm phải chết để tới giết ta. Ngươi tính toán rất lâu mới nghĩ ra chủ ý này. Ngươi cảm thấy mình có được một chút xíu phần thắng, cảm thấy mình có thể kéo dài thời gian, dung hợp hai tòa Đại La Thiên để Thái Sơ thành đạo, rồi có khả năng giết chết ta.”
+Ả cất bước đi về phía Vân Thiên Tôn, trên mặt hiện ra sự cuồng nhiệt muốn hủy diệt tất cả: “Đáng thương thật đấy. Hẳn ngươi ôm quyết tâm phải chết để tới giết ta. Ngươi tính toán rất lâu mới nghĩ ra chủ ý này. Ngươi cảm thấy mình có được một chút xíu phần thắng, cảm thấy mình có thể kéo dài thời gian, dung hợp hai tòa Đại La Thiên để Thái Sơ thành đạo, rồi có khả năng giết chết ta.”
 
-Khí tức trên người nàng đột nhiên biến hóa. Hồng Mông nguyên khí hiện ra từ trong cơ thể nàng. Vốn dĩ gió lãnh tịch và gió nhiệt tịch trong cơ thể nàng không ngừng triệt tiêu nhau, hóa đi tu vi của nàng, nhưng hiện tại, sự xuất hiện của Hồng Mông nguyên khí khiến xu thế ấy chậm lại, thậm chí có dấu hiệu dừng hẳn!
+Khí tức trên người ả đột nhiên biến hóa. Hồng Mông nguyên khí hiện ra từ trong cơ thể ả. Vốn dĩ gió lãnh tịch và gió nhiệt tịch trong cơ thể ả không ngừng triệt tiêu nhau, hóa đi tu vi của ả, nhưng hiện tại, sự xuất hiện của Hồng Mông nguyên khí khiến xu thế ấy chậm lại, thậm chí có dấu hiệu dừng hẳn!
 
 Con ngươi Vân Thiên Tôn co rút dữ dội.
 
@@ -52,7 +52,7 @@ Con ngươi Vân Thiên Tôn co rút dữ dội.
 
 Nhị công tử Vô Cực nhìn biểu cảm của hắn, khẽ cười một tiếng, đả kích lòng tin và tín niệm của hắn, thong thả nói: “Trước đó ngươi tự thấy có mấy phần thắng. Bây giờ có phải một chút phần thắng cũng không còn không? Người đáng thương làm sao. Cho dù ngươi dùng mạng mình đổi lấy cái chết của ta, cũng chẳng qua chỉ giết được một phân thân của ta, không ảnh hưởng nửa điểm tới bản thể ta. Huống chi, ngươi căn bản không giết chết được ta. Ngươi dốc cạn trí tuệ cả đời, muốn thành đạo, muốn siêu thoát, lại vứt bỏ tất cả để giết ta, vậy mà lại buồn cười đến thế. Người đáng thương như vậy, cứ để ta kết thúc cuộc đời hèn mọn của ngươi đi!”
 
-Nàng ngang nhiên ra tay!
+Ả ngang nhiên ra tay!
 
 “Thái Cực đạo hữu, dù sao chúng ta cũng là Tiên Thiên Ngũ Thái, cùng khí liền cành, cần gì phải ra tay tàn nhẫn với người nhà?”
 

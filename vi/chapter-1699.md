@@ -188,7 +188,7 @@ Một vị cổ thần trong đó cười nói: “Những người khác, ta kh
 
 Thái Thanh cảnh Vô Ưu Hương.
 
-Ánh mắt Tần Mục chớp động: “Vân Thiên Tôn, nếu ta là Tam công tử, Tứ công tử, ta tuyệt đối sẽ không để Nhị công tử tách khỏi Hạo Thiên Đế. Ta sẽ thừa cơ phong ấn Nhị công tử trong cơ thể Hạo Thiên Đế, không cho nàng ra ngoài quấy cục! Như vậy, chúng ta liền có thể dư ra một người.”
+Ánh mắt Tần Mục chớp động: “Vân Thiên Tôn, nếu ta là Tam công tử, Tứ công tử, ta tuyệt đối sẽ không để Nhị công tử tách khỏi Hạo Thiên Đế. Ta sẽ thừa cơ phong ấn Nhị công tử trong cơ thể Hạo Thiên Đế, không cho ả ra ngoài quấy cục! Như vậy, chúng ta liền có thể dư ra một người.”
 
 “Dư ra một người là có thể thắng?” Vân Thiên Tôn bước tới một bước, hỏi.
 

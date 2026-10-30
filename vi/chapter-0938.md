@@ -4,9 +4,9 @@ Hòa thượng và đạo sĩ chấn động trước vẻ đẹp của nữ t�
 
 "Diên Khang?"
 
-Thiếu nữ kia chính là Vân Sơ Tụ. Nghe vậy, nàng vui vẻ rạng rỡ, nói: "Vậy chính là Nguyên giới rồi. Diên Khang là địa bàn của tiểu tử Mục Thiên Tôn kia, nghe nói hắn còn là Bá Thể Diên Khang, gọi là một trong tam kiệt biến pháp Diên Khang. Cầu Linh Năng Đối Chuyển này là hai tế đàn nối nhau. Bản cung xây một tòa ở Thiên Đình, hắn để lại một tòa ở Diên Khang, thế là hai cây cầu này liền nối với nhau..."
+Thiếu nữ kia chính là Vân Sơ Tụ. Nghe vậy, ả vui vẻ rạng rỡ, nói: "Vậy chính là Nguyên giới rồi. Diên Khang là địa bàn của tiểu tử Mục Thiên Tôn kia, nghe nói hắn còn là Bá Thể Diên Khang, gọi là một trong tam kiệt biến pháp Diên Khang. Cầu Linh Năng Đối Chuyển này là hai tế đàn nối nhau. Bản cung xây một tòa ở Thiên Đình, hắn để lại một tòa ở Diên Khang, thế là hai cây cầu này liền nối với nhau..."
 
-Nàng nghĩ tới đây, nói: "Hòa thượng đạo sĩ, các ngươi đi gọi hoàng đế của các ngươi tới."
+Ả nghĩ tới đây, nói: "Hòa thượng đạo sĩ, các ngươi đi gọi hoàng đế của các ngươi tới."
 
 Hòa thượng và đạo sĩ vội trở về kinh thành Diên Khang. Không lâu sau, Linh Dục Tú dẫn văn võ bá quan tới. Mắt Vân Sơ Tụ sáng lên, cười nói: "Hoàng đế Diên Khang vậy mà là nữ tử. Ta đã nói nữ tử làm hoàng đế cũng chẳng có gì ghê gớm, đám ngoan cố già kia cứ viện đủ loại lý do thoái thác."
 
@@ -14,7 +14,7 @@ Linh Dục Tú dẫn mọi người tiến lên tham bái: "Thiên tử tiểu q
 
 Vân Sơ Tụ cười nói: "Không cần đa lễ. Nữ tử làm hoàng đế rất tốt, thực ra cũng không kinh thế hãi tục như vậy. Bản cung rất thưởng thức ngươi. Nếu Thiên Đình và Nguyên giới đã nối thông, vậy ngươi cũng có thể thường xuyên tới Thiên Đình dạo một vòng, bầu bạn giúp bản cung giải khuây, không cần ở mãi hạ giới."
 
-Nàng đưa tới một khối yêu bài, nói: "Ngươi mang yêu bài của ta, qua lại Thiên Đình thông suốt không trở ngại."
+Ả đưa tới một khối yêu bài, nói: "Ngươi mang yêu bài của ta, qua lại Thiên Đình thông suốt không trở ngại."
 
 Linh Dục Tú cảm tạ, nhận yêu bài, nói: "Diên Khang nghèo khó, bách tính không có con đường mưu sinh. Nhưng Diên Khang có rất nhiều xưởng đốc tạo, không biết có thể tới Thiên Đình mua bán hàng hóa hay không?"
 
@@ -36,13 +36,13 @@ Linh Dục Tú không dám nói gì.
 
 Vân Sơ Tụ nói: "Hoàng đế Diên Khang, ngươi theo bản cung tới Tạo Phụ Cung một chuyến. Diên Khang các ngươi phụ trách chế tạo linh kiện Cầu Linh Năng Đối Chuyển, để Tạo Phụ Cung lắp ráp lại, giá sẽ không thấp."
 
-Linh Dục Tú mừng rỡ, dẫn Thượng thư Công bộ và mấy trọng thần tinh thông thuật số theo nàng bước vào Cầu Linh Năng Đối Chuyển.
+Linh Dục Tú mừng rỡ, dẫn Thượng thư Công bộ và mấy trọng thần tinh thông thuật số theo ả bước vào Cầu Linh Năng Đối Chuyển.
 
 Vân Sơ Tụ nhìn sang, chỉ thấy trong mấy trọng thần này vậy mà còn có hai người là nữ tử, trong đó có một cô bé là hồ ly tinh biến hóa, không hề che giấu cái đuôi hồ trắng sau lưng mình.
 
 "Diên Khang có nữ hoàng đế, nữ quan cũng rất nhiều, Thiên Đình lại không có nhiều nữ quan như vậy." Vân Sơ Tụ thầm nghĩ.
 
-Nàng lại không biết nữ quan đi theo bên cạnh Linh Dục Tú là Hồ Linh Nhi và Tư Vân Hương. Lần đàm phán với Tạo Phụ Cung này liên quan đến phát triển sau này của Diên Khang, nhất định phải mang hai nàng theo.
+Ả lại không biết nữ quan đi theo bên cạnh Linh Dục Tú là Hồ Linh Nhi và Tư Vân Hương. Lần đàm phán với Tạo Phụ Cung này liên quan đến phát triển sau này của Diên Khang, nhất định phải mang hai nàng theo.
 
 Bên Cầu Linh Năng Đối Chuyển, hòa thượng nhìn họ bước vào Cầu Linh Năng Đối Chuyển, mặt mang vẻ lo âu, thấp giọng nói: "Bạch Khuê, kế sách giấu tài chế tạo hưng quốc mà Tần giáo chủ định ra thật sự khả thi sao?"
 
@@ -110,7 +110,7 @@ Tần Mục nhìn theo tiếng, chỉ thấy nữ tử này cưỡi thuyền nh�
 
 Ánh mắt hắn không tự chủ rơi xuống trước ngực nữ tử này. Vân Sơ Tụ rất đắc ý, vô thức ưỡn ngực.
 
-Thuyền nhỏ cập bờ, nàng nhảy xuống khỏi thuyền. Ánh mắt Tần Mục không tự chủ đi theo ngực nàng lên xuống chao chao. Long Kỳ Lân chú ý tới tầm mắt hắn, trong lòng thót lại: "Hỏng rồi! Giáo chủ bị Đế hậu nương nương nắm trúng điểm yếu!"
+Thuyền nhỏ cập bờ, ả nhảy xuống khỏi thuyền. Ánh mắt Tần Mục không tự chủ đi theo ngực ả lên xuống chao chao. Long Kỳ Lân chú ý tới tầm mắt hắn, trong lòng thót lại: "Hỏng rồi! Giáo chủ bị Đế hậu nương nương nắm trúng điểm yếu!"
 
 Vân Sơ Tụ nhanh chân đi tới, cười khanh khách: "Ngươi thật sự sắp chết rồi! Hạo Thiên Tôn triệu tập các cự đầu Thiên Đình nghị sự, nói Hỏa Thiên Tôn, Hư Thiên Tôn truyền tin từ Thái Hư về, bảo những ngày này Thái Hư dị biến, mời Thiên Đình phái cường giả tới, tránh dị động Thái Hư gây họa tới Thiên Đình. Các cự đầu Thiên Đình bàn bạc một phen, quyết định phái một vị Thiên Tôn dẫn mọi người đi trước, làm đạo quân tiên phong tới hội hợp với Hỏa Thiên Tôn, Hư Thiên Tôn. Ngươi đoán vị Thiên Tôn này là ai?"
 
@@ -128,7 +128,7 @@ Long Kỳ Lân thấy vậy thì kinh hồn bạt vía, thầm kêu không ổn:
 
 Vân Sơ Tụ liếc hắn một cái, cười tủm tỉm nói: "Mục Thiên Tôn dường như chẳng lo cho an nguy của mình chút nào, ngược lại nói chuyện vòng vo. Nói thật với ngươi, lần này đa số những người đi cùng ngươi tới Thái Hư đều là người muốn lấy mạng ngươi. Ngoài đệ tử của các Thiên Tôn lớn, còn có một cường giả rất không vừa mắt ngươi. Ngươi đoán hắn là ai?"
 
-Tần Mục lắc đầu. Bị nàng ôm cánh tay, hắn không tự chủ đi theo nàng về phía Mạn Hồi Lang Các, chỉ cảm thấy cánh tay trái rất mềm rất ấm.
+Tần Mục lắc đầu. Bị ả ôm cánh tay, hắn không tự chủ đi theo ả về phía Mạn Hồi Lang Các, chỉ cảm thấy cánh tay trái rất mềm rất ấm.
 
 "Giáo chủ chết chắc rồi!"
 

@@ -286,7 +286,7 @@ Trong mắt Tần Linh Quân khí Hỗn Độn vấn vít. Nhìn bé gái do Tr�
 
 "Thật thú vị!"
 
-Bỗng nhiên, trong Di La Cung trên kiếp Phá Diệt Đệ Nhất Kỷ, một bàn tay lớn bay ra, vượt qua mười sáu dòng Hỗn Độn Trường Hà, rơi vào trong kiếp, đè công tử Vô Cực, ép nàng thẳng xuống Quy Khư Đại Uyên!
+Bỗng nhiên, trong Di La Cung trên kiếp Phá Diệt Đệ Nhất Kỷ, một bàn tay lớn bay ra, vượt qua mười sáu dòng Hỗn Độn Trường Hà, rơi vào trong kiếp, đè công tử Vô Cực, ép ả thẳng xuống Quy Khư Đại Uyên!
 
 Bàn tay lớn ấy hóa thành nút dây đỏ, phong tỏa Đại Uyên.
 

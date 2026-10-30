@@ -8,7 +8,7 @@ Long Kỳ Lân nói: "Cây gậy gỗ vừa rồi giáo chủ lấy ra gọi là
 
 "Đế Hậu nương nương, Nguyên Mẫu phu nhân?"
 
-Vân Tiệm Ly nghe vậy không khỏi hãi hùng, có chút sợ về sau. Hắn vậy mà kết nghĩa huynh muội với nhân vật như vậy, hơn nữa còn dẫn theo nhân vật đáng sợ như vậy, giám sát nàng xem nàng có ý đồ gì.
+Vân Tiệm Ly nghe vậy không khỏi hãi hùng, có chút sợ về sau. Hắn vậy mà kết nghĩa huynh muội với nhân vật như vậy, hơn nữa còn dẫn theo nhân vật đáng sợ như vậy, giám sát ả xem ả có ý đồ gì.
 
 Bây giờ nghĩ lại, hắn có chút rợn tóc gáy!
 
@@ -56,7 +56,7 @@ Những trọng lượng ấy cộng lại, cho dù là chân thần cũng gánh
 
 Đám Tề Cửu Nghi ngẩng đầu nhìn cảnh này, chỉ thấy tường đổ vách nát như sao băng oanh kích về phía Vân Sơ Tụ. Không gian bị địa từ nguyên lực ép vặn vẹo, khiến tốc độ của những tường đổ vách nát này càng nhanh, uy lực không kém thần binh!
 
-Long Kỳ Lân nói: "Yên Nhi tỷ còn nhớ song liên tịnh đế ở Quy Khư không? Nơi đó có một cỗ quan tài thủy tinh, trong quan chôn một nữ tử, giáo chủ nói nàng là muội muội của Đế Hậu, Nguyên Mẫu phu nhân."
+Long Kỳ Lân nói: "Yên Nhi tỷ còn nhớ song liên tịnh đế ở Quy Khư không? Nơi đó có một cỗ quan tài thủy tinh, trong quan chôn một nữ tử, giáo chủ nói ả là muội muội của Đế Hậu, Nguyên Mẫu phu nhân."
 
 Yên Nhi liên tục gật đầu, nàng đương nhiên nhớ.
 
@@ -72,7 +72,7 @@ Long Kỳ Lân nói: "Tự nhiên là Vân Sơ Tụ tương trợ. Vậy Vân S�
 
 Hắn vừa dứt lời, thiếu nữ Vân Sơ Tụ dang hai tay, hư hư vạch một cái. Chỉ thấy một vực sâu không đáy xuất hiện, một chiêu tưởng như mạnh mẽ vô cùng của Tần Mục lập tức tan rã!
 
-Vân Sơ Tụ đứng trên vực sâu. Đó là Quy Khư đại uyên do thần thông của nàng hình thành, như thể có thể nuốt chửng trời đất vạn vật. Dù là tinh hà cuồn cuộn do thần thông của Tần Mục bùng phát, nguyên từ thần lực vặn vẹo, vô số tường đổ vách nát cùng cung khuyết đại điện đổ nát, tất cả đều rơi vào Quy Khư đại uyên!
+Vân Sơ Tụ đứng trên vực sâu. Đó là Quy Khư đại uyên do thần thông của ả hình thành, như thể có thể nuốt chửng trời đất vạn vật. Dù là tinh hà cuồn cuộn do thần thông của Tần Mục bùng phát, nguyên từ thần lực vặn vẹo, vô số tường đổ vách nát cùng cung khuyết đại điện đổ nát, tất cả đều rơi vào Quy Khư đại uyên!
 
 Đám Tề Cửu Nghi, Vân Tiệm Ly nhìn thấy cảnh này, trong lòng chấn động. Loại thần thông này chính là thần thông mà trong truyền thuyết tỷ muội Đế Hậu tinh thông!
 
@@ -106,17 +106,17 @@ Tòa đại điện dưới chân Vân Sơ Tụ chia năm xẻ bảy. Chỉ nghe
 
 Khoảnh khắc tiếp theo, một dòng sông dài xuất hiện. Vân Sơ Tụ đứng trên sông dài, Ngũ Đại Vân Lôi hóa thành hỏa linh thần binh, từng chiếc chuông khổng lồ vây quanh Tần Mục chấn động. Thiên Hà quấn quanh, khóa chặt Tần Mục vào giữa.
 
-Sau lưng nàng, long quy và đằng xà quấn quanh, giận dữ gầm rống. Đại xà ngàn cánh hòa vào Thiên Hà, dòng sông lớn xoay tròn, cánh như đao, xoẹt xoẹt xoẹt chém ra trong nước sông, bổ về phía Tần Mục bị vây ở trung tâm, nhanh như chớp, thế như sấm!
+Sau lưng ả, long quy và đằng xà quấn quanh, giận dữ gầm rống. Đại xà ngàn cánh hòa vào Thiên Hà, dòng sông lớn xoay tròn, cánh như đao, xoẹt xoẹt xoẹt chém ra trong nước sông, bổ về phía Tần Mục bị vây ở trung tâm, nhanh như chớp, thế như sấm!
 
 Còn hỏa linh thần binh do Ngũ Đại Vân Lôi hình thành thì chấn động không dứt, oanh kích đến mức không gian quanh Tần Mục không ngừng xốp vỡ.
 
 Long quy lay động thân thể, từng mảnh mai rùa bay lên, bành bành bành tổ hợp trên không, hóa thành một phong ấn hình lập phương dày nặng vô cùng, nhốt Tần Mục vào trong, khiến hắn không thể trốn thoát, chỉ có thể bị Ngũ Đại Vân Lôi và Thiên Hà Đằng Xà luyện chết!
 
-"Nếu Vân Sơ Tụ thật sự là Đế Hậu hoặc Nguyên Mẫu phu nhân, vậy nàng thật sự đã nhảy khỏi trói buộc của cổ thần!"
+"Nếu Vân Sơ Tụ thật sự là Đế Hậu hoặc Nguyên Mẫu phu nhân, vậy ả thật sự đã nhảy khỏi trói buộc của cổ thần!"
 
-Sắc mặt Tề Cửu Nghi hơi đổi, quay đầu nhìn Vân Tiệm Ly: "Bệnh công tử, ngươi quen nàng, kết nghĩa huynh muội với nàng như thế nào?"
+Sắc mặt Tề Cửu Nghi hơi đổi, quay đầu nhìn Vân Tiệm Ly: "Bệnh công tử, ngươi quen ả, kết nghĩa huynh muội với ả như thế nào?"
 
-Sắc mặt Vân Tiệm Ly hơi tái, cười khổ: "Ta nào biết thực lực của nàng lại mạnh như vậy. Cùng cảnh giới đánh một trận, Mục Thiên Tôn cũng không thắng được nàng..."
+Sắc mặt Vân Tiệm Ly hơi tái, cười khổ: "Ta nào biết thực lực của ả lại mạnh như vậy. Cùng cảnh giới đánh một trận, Mục Thiên Tôn cũng không thắng được ả..."
 
 Đúng lúc này, đại đệ tử của Lang Thiên Tôn, Thường Khê Đình bay vút đến trên không. Từ xa hắn đã lao về phía Tần Mục và Vân Sơ Tụ. Hắn bị lõi Nguyên Mộc đánh trọng thương, Lang Hiên Thần Cung cũng bị đánh đến chia năm xẻ bảy, chịu thiệt cực lớn, trong cơn thịnh nộ, trong đầu không còn ý nghĩ nào khác, chỉ muốn xử lý Tần Mục!
 

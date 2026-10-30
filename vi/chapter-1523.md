@@ -72,7 +72,7 @@ Chát!
 
 Một cây giáo tiên đột nhiên bay lên, quất lên đầu Hư Thiên Tôn. Thân thể Hư Thiên Tôn chấn động mạnh, nguyên thần bị một roi quất ra khỏi cơ thể, thần hồn và thân xác tách rời!
 
-Tần Mục phóng một kiếm tới, chỉ thẳng mi tâm nàng. Hỏa Thiên Tôn chắn ngang trước Hư Thiên Tôn, hai tay khép lại, hai mươi tám tầng chư thiên đạo hỏa gào thét bành trướng!
+Tần Mục phóng một kiếm tới, chỉ thẳng mi tâm ả. Hỏa Thiên Tôn chắn ngang trước Hư Thiên Tôn, hai tay khép lại, hai mươi tám tầng chư thiên đạo hỏa gào thét bành trướng!
 
 Kiếm quang xẹt một tiếng xuyên qua hai mươi tám chư thiên. Hỏa Thiên Tôn kinh hãi trong lòng, vội tránh né. Kiếm quang lóe lên, hai chiếc sừng dài trên đầu Hư Thiên Tôn lập tức đứt mất một chiếc!
 

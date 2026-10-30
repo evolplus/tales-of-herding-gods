@@ -164,7 +164,7 @@ Giang Vân Gian vội khởi động thần thức. Thần thức của Tần M�
 
 Sắc mặt Tần Mục nghiêm nghị. Qua hồi lâu, hắn mới thấp giọng nói: “Đều là nhân kiệt, đều là những nhân vật vô cùng ghê gớm…”
 
-Những thứ Hiểu Thiên Tôn, Hạo Thiên Tôn và mọi người tham ngộ ra trong đêm này nhiều hơn hắn dự đoán. Dù là Hư Thiên Tôn có tu vi yếu hơn, những thứ nàng tham ngộ ra từ trận liệt đạo văn cũng vô cùng sâu xa!
+Những thứ Hiểu Thiên Tôn, Hạo Thiên Tôn và mọi người tham ngộ ra trong đêm này nhiều hơn hắn dự đoán. Dù là Hư Thiên Tôn có tu vi yếu hơn, những thứ ả tham ngộ ra từ trận liệt đạo văn cũng vô cùng sâu xa!
 
 “Ta nhớ ra rồi!”
 

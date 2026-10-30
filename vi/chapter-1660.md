@@ -132,7 +132,7 @@ Thân hình hắn biến mất sau cửa, đi vào rừng bia.
 
 U Đô, một vùng tối tăm.
 
-Hư Thiên Tôn đứng ở trung tâm chư thiên Thiên Hồ. Tòa chư thiên này bị nàng kéo toàn bộ vào U Đô. Khắp chư thiên đều là hài cốt. Hư Thiên Tôn đi trong đó, chân giẫm lên những hài cốt này, phát ra tiếng rắc rắc giòn vang, không biết bao nhiêu xương trắng bị nàng giẫm nát.
+Hư Thiên Tôn đứng ở trung tâm chư thiên Thiên Hồ. Tòa chư thiên này bị ả kéo toàn bộ vào U Đô. Khắp chư thiên đều là hài cốt. Hư Thiên Tôn đi trong đó, chân giẫm lên những hài cốt này, phát ra tiếng rắc rắc giòn vang, không biết bao nhiêu xương trắng bị ả giẫm nát.
 
 Những xương trắng này là sinh linh của chư thiên Thiên Hồ, không thiếu hài cốt Thần Ma, thậm chí có vài vị ở cảnh giới Lăng Tiêu. Nhưng khi đại nạn Thiên Hồ bộc phát, mặc cho những Thần Ma này mạnh đến đâu, họ cũng chỉ trong khoảnh khắc đã chết dưới thần thông của Hư Thiên Tôn.
 
@@ -144,7 +144,7 @@ Phía trên những cột sáu cạnh này, mỗi nơi đều có một viên Đ
 
 Trên bầu trời chư thiên Thiên Hồ, các cột sáu cạnh hình thành đạo liên dày đặc. Tinh thần và tinh không của cả chư thiên Thiên Hồ đều đã bị những đạo liên này chấn thành bột mịn, hóa thành năng lượng thuần túy, thông qua tế đàn hiến tế do cột sáu cạnh tạo thành truyền tới kỷ thứ mười sáu.
 
-Hư Thiên Tôn vẫn nhớ khi đại nạn Thiên Hồ bộc phát, nàng xử tử toàn bộ sinh linh Thiên Hồ. Khoảnh khắc tiếp theo, huyết tế liền bắt đầu. Thi thể của tất cả mọi người đều già đi với tốc độ cực nhanh, máu thịt và nguyên thần đều hóa thành năng lượng tinh thuần bị tế đàn hấp thu, nhanh chóng biến thành xương trắng.
+Hư Thiên Tôn vẫn nhớ khi đại nạn Thiên Hồ bộc phát, ả xử tử toàn bộ sinh linh Thiên Hồ. Khoảnh khắc tiếp theo, huyết tế liền bắt đầu. Thi thể của tất cả mọi người đều già đi với tốc độ cực nhanh, máu thịt và nguyên thần đều hóa thành năng lượng tinh thuần bị tế đàn hấp thu, nhanh chóng biến thành xương trắng.
 
 Nhưng tế đàn này nuốt chư thiên Thiên Hồ thì hơi chậm hơn một chút. Đến nay, nó mới nuốt sạch tinh thần, tinh đấu, tinh hệ của chư thiên Thiên Hồ.
 
@@ -154,10 +154,10 @@ Ngay lúc này, giữa lưới đạo liên, một cái đầu chậm rãi hiệ
 
 Trong lòng Hư Thiên Tôn khẽ chấn động, biết bậc thành đạo sắp giáng lâm!
 
-Nàng vội rời khỏi đại lục Thiên Hồ, thân thể căng chặt, tùy lúc ứng đối bất trắc!
+Ả vội rời khỏi đại lục Thiên Hồ, thân thể căng chặt, tùy lúc ứng đối bất trắc!
 
 “Không cần căng thẳng.”
 
-Giọng Hạo Thiên Tôn truyền đến từ sau lưng nàng: “Vị này là điện chủ Linh Quan Điện trong Bảy mươi hai Bảo Điện của Tổ Đình, không phải người ngoài!”
+Giọng Hạo Thiên Tôn truyền đến từ sau lưng ả: “Vị này là điện chủ Linh Quan Điện trong Bảy mươi hai Bảo Điện của Tổ Đình, không phải người ngoài!”
 
 [Xem chương tiếp theo](chapter-1661.md)

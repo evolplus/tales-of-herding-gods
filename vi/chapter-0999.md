@@ -34,7 +34,7 @@ Vân Sơ Tụ chớp mắt, phì cười nói: "Thiên Tôn quên rồi? Sau khi
 
 Liên Hoa Hồn hừ một tiếng, thản nhiên nói: "Vân gia dạy ngươi như thế nào? Đối mặt Thiên Tôn mà vô lễ như vậy?"
 
-Vân Sơ Tụ liếc nàng, lại liếc Lãng Uyển Thần Vương, trong lòng hồ nghi: "Giọng điệu tiểu tiện nhân Liên Hoa Hồn này rất giống tỷ tỷ, vậy Lãng Uyển này là lai lịch gì? Khí tràng không kém tiểu tiện nhân tỷ tỷ kia chút nào... Đây là vị Thiên Tôn nào tạo ra một Tuyệt Vô Trần để giả mạo tỷ tỷ?"
+Vân Sơ Tụ liếc ả, lại liếc Lãng Uyển Thần Vương, trong lòng hồ nghi: "Giọng điệu tiểu tiện nhân Liên Hoa Hồn này rất giống tỷ tỷ, vậy Lãng Uyển này là lai lịch gì? Khí tràng không kém tiểu tiện nhân tỷ tỷ kia chút nào... Đây là vị Thiên Tôn nào tạo ra một Tuyệt Vô Trần để giả mạo tỷ tỷ?"
 
 Đột nhiên, có thần quan tới tuyên đọc ý chỉ Thiên Đế: "Tuyên Mục Thiên Tôn vào cung yết kiến."
 

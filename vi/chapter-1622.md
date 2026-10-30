@@ -6,13 +6,13 @@ Trên Độ Thế Kim Thuyền, Tần Mục, Tần Phượng Thanh và Thái Th�
 
 Chiến lực Hỏa Thiên Tôn thể hiện lúc này thật sự quá mạnh. Quanh bàn tay hắn, không gian xoay vần, Hư Thiên Tôn gần như khó đứng vững.
 
-Cùng là Thập Thiên Tôn, Hư Thiên Tôn tự hỏi mình không hề kém Hỏa Thiên Tôn nửa phần. Nhất là sau khi Thổ Bá chết, những ngày này nàng luyện hóa U Đô Đại Đạo, tu vi thực lực tiến vọt, càng tự đánh giá mình rất cao.
+Cùng là Thập Thiên Tôn, Hư Thiên Tôn tự hỏi mình không hề kém Hỏa Thiên Tôn nửa phần. Nhất là sau khi Thổ Bá chết, những ngày này ả luyện hóa U Đô Đại Đạo, tu vi thực lực tiến vọt, càng tự đánh giá mình rất cao.
 
-Tuy nàng chưa giành được toàn bộ đạo U Đô, cũng chưa lấy được thân xác Thổ Bá hoàn chỉnh, nhưng lợi ích nàng đạt được ở U Đô lớn hơn quá nhiều so với lợi ích Hỏa Thiên Tôn đạt được ở Nam Thiên.
+Tuy ả chưa giành được toàn bộ đạo U Đô, cũng chưa lấy được thân xác Thổ Bá hoàn chỉnh, nhưng lợi ích ả đạt được ở U Đô lớn hơn quá nhiều so với lợi ích Hỏa Thiên Tôn đạt được ở Nam Thiên.
 
 Nam Thiên Đạo Hỏa Tổ Địa không thể nào sánh với U Đô.
 
-Nhận được lợi ích lớn như vậy, nàng vẫn cảm nhận được khoảng cách, khoảng cách giữa mình và Hỏa Thiên Tôn.
+Nhận được lợi ích lớn như vậy, ả vẫn cảm nhận được khoảng cách, khoảng cách giữa mình và Hỏa Thiên Tôn.
 
 Khoảng cách này gần như tương đương khoảng cách giữa ba mươi lăm Thiên Cung và ba mươi sáu Thiên Cung.
 
@@ -72,7 +72,7 @@ Người đời luôn coi chó là bạn tốt nhất của loài người, như
 
 Khi chó nắm giữ sức mạnh còn lớn hơn chủ nhân, tình thế sẽ đảo ngược.
 
-Hư Thiên Tôn không ngừng phản kích dưới bàn tay hắn. Thần thông đạo pháp của nàng xuất thần nhập hóa, có được đạo U Đô của Thổ Bá, khiến lĩnh ngộ của nàng đối với ma đạo đạt tới độ cao chưa từng có, số lượng Thiên Cung lên đến ba mươi lăm tòa.
+Hư Thiên Tôn không ngừng phản kích dưới bàn tay hắn. Thần thông đạo pháp của ả xuất thần nhập hóa, có được đạo U Đô của Thổ Bá, khiến lĩnh ngộ của ả đối với ma đạo đạt tới độ cao chưa từng có, số lượng Thiên Cung lên đến ba mươi lăm tòa.
 
 Nếu đổi lại mấy chục năm trước, tu vi bậc này đã có thể nói là nhân vật đứng đầu trong Thập Thiên Tôn!
 
@@ -84,11 +84,11 @@ Mười hai loại thành tựu đều tu luyện tới cực hạn. Khắp thi�
 
 Một chưởng của hắn úp xuống, che trời lấp đất. Hư Thiên Tôn trong lòng bàn tay hắn ngửa nhìn, như đang ngước nhìn màn trời bốc cháy.
 
-Bất kỳ đòn tấn công nào của nàng cũng chỉ có thể lay động năm ngón tay Hỏa Thiên Tôn, mà năm ngón tay Hỏa Thiên Tôn khẽ chuyển động đã có thể phá thần thông của nàng!
+Bất kỳ đòn tấn công nào của ả cũng chỉ có thể lay động năm ngón tay Hỏa Thiên Tôn, mà năm ngón tay Hỏa Thiên Tôn khẽ chuyển động đã có thể phá thần thông của ả!
 
-Hư Thiên Tôn điên cuồng tấn công, thân xác không ngừng phình lên, biến lớn, nhưng không gian bị uy năng đạo hỏa bóp méo. Bất kể nàng biến hóa lớn đến đâu, trước sau vẫn khó thoát khỏi khống chế của Hỏa Thiên Tôn.
+Hư Thiên Tôn điên cuồng tấn công, thân xác không ngừng phình lên, biến lớn, nhưng không gian bị uy năng đạo hỏa bóp méo. Bất kể ả biến hóa lớn đến đâu, trước sau vẫn khó thoát khỏi khống chế của Hỏa Thiên Tôn.
 
-Một chưởng này của Hỏa Thiên Tôn rơi xuống, lòng bàn tay như màn trời bốc cháy, khiến nàng không còn đường trốn. Thiên Cung của nàng cũng đang cháy!
+Một chưởng này của Hỏa Thiên Tôn rơi xuống, lòng bàn tay như màn trời bốc cháy, khiến ả không còn đường trốn. Thiên Cung của ả cũng đang cháy!
 
 Đó là ngọn lửa mãnh liệt nhất, giống như dục vọng, nuốt chửng tất cả.
 
@@ -138,7 +138,7 @@ Chiếc sừng dài xuyên thủng bàn tay Hỏa Thiên Tôn, bắn ra từ mu 
 
 Hai mắt Hỏa Thiên Tôn phun ra hai luồng đạo hỏa, ánh mắt như đuốc, chiếu lên chiếc sừng dài đang bay tới. Chiếc sừng dài này là bảo vật Thiên Tôn do Hư Thiên Tôn luyện chế, bị ánh mắt hai mắt hắn chiếu tới, lập tức tan chảy!
 
-Hỏa Thiên Tôn đấm một quyền lên người Hư Thiên Tôn. Hư Thiên Tôn hừ khẽ, miệng phun máu, bay ngược ra sau. Ma huyết của nàng trực tiếp hóa thành ngọn lửa giữa tinh không, cháy hừng hực.
+Hỏa Thiên Tôn đấm một quyền lên người Hư Thiên Tôn. Hư Thiên Tôn hừ khẽ, miệng phun máu, bay ngược ra sau. Ma huyết của ả trực tiếp hóa thành ngọn lửa giữa tinh không, cháy hừng hực.
 
 “Nhưng chỉ cần ta chiến thắng, dù trên đời chỉ còn lại một mình ta, nhân tộc vẫn là chủng tộc tôn quý nhất thế gian!”
 

@@ -60,7 +60,7 @@ Hắn bất đắc dĩ phải trốn đông trốn tây, lúc nào cũng phải 
 
 Vào Đệ Ngũ Kỷ, Di La Cung và Thiên Đô thành hình thành hai thánh địa lớn, mỗi bên đều có quy mô hùng vĩ. Di La Cung đã có thể nhìn thấy hình thức sơ khai của đời sau. Thái Thượng đã tu thành Thái Thượng Điện, được rất nhiều bậc thành đạo tôn làm công tử, là Đại công tử của Di La Cung.
 
-Còn Vô Cực, tuy cùng thời kỳ với Thái Thượng gia nhập Di La Cung, nhưng nàng chưa trở thành công tử. Trái lại, trong Di La Cung nàng không hề lộ núi bày sông, vẫn luôn không thể thành đạo, thực lực còn không bằng các bậc thành đạo khác.
+Còn Vô Cực, tuy cùng thời kỳ với Thái Thượng gia nhập Di La Cung, nhưng ả chưa trở thành công tử. Trái lại, trong Di La Cung ả không hề lộ núi bày sông, vẫn luôn không thể thành đạo, thực lực còn không bằng các bậc thành đạo khác.
 
 Ngoài hai thánh địa lớn này, còn có thánh địa thứ ba, đó là Vô Nhai lão nhân.
 

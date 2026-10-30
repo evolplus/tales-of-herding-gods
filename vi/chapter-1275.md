@@ -54,7 +54,7 @@ Thần thức của hắn bùng phát. Hai nữ cổ thần gần như giống n
 
 Hắn đồng thời dùng thần thức khống chế hai đại thần nữ Quy Khư, cảnh giác nhìn chằm chằm bốn phía.
 
-Chiến lực của hai đại thần nữ Quy Khư tuy không đạt tới tầng thứ như Thiên Đế Thái Sơ, cũng không bằng Thiên Công, Thổ Bá và Địa Mẫu, nhưng thực lực của các nàng lại ở trên tứ đế cổ thần!
+Chiến lực của hai đại thần nữ Quy Khư tuy không đạt tới tầng thứ như Thiên Đế Thái Sơ, cũng không bằng Thiên Công, Thổ Bá và Địa Mẫu, nhưng thực lực của các ả lại ở trên tứ đế cổ thần!
 
 Sau khi Tần Mục dùng thần thức kích phát, khống chế nhục thân hai tỷ muội Đế hậu, mắt dọc giữa mi tâm mở ra, trứng Thái Thủy bay ra từ trong mắt dọc.
 

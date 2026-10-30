@@ -38,13 +38,13 @@ Lúc này, Nghiên Thiên Phi cũng bị dị tượng do Long Hao giáng lâm g
 
 “Địa Mẫu Nguyên Quân khốn kiếp này, vậy mà không giết Long Hao, lại giấu hung thần này đi!”
 
-Nàng nổi giận, đồng thời lại lộ vẻ sợ hãi. Năm xưa, trong trận chiến giữa cổ thần và Tạo Vật Chủ, chị em Đế hậu phụ trách đối phó Bá Dương, còn Địa Mẫu Nguyên Quân phụ trách đối phó Long Hao.
+Ả nổi giận, đồng thời lại lộ vẻ sợ hãi. Năm xưa, trong trận chiến giữa cổ thần và Tạo Vật Chủ, chị em Đế hậu phụ trách đối phó Bá Dương, còn Địa Mẫu Nguyên Quân phụ trách đối phó Long Hao.
 
-Hai chị em nàng nhét Bá Dương vào đại uyên Quy Khư để luyện hóa, khiến hắn hình thần đều diệt, ngay cả cát đen linh hồn cũng không còn, thậm chí thần thức của Bá Dương cũng bị luyện hóa hoàn toàn thành tro!
+Hai chị em ả nhét Bá Dương vào đại uyên Quy Khư để luyện hóa, khiến hắn hình thần đều diệt, ngay cả cát đen linh hồn cũng không còn, thậm chí thần thức của Bá Dương cũng bị luyện hóa hoàn toàn thành tro!
 
-Trận chiến ấy, các nàng cũng cực kỳ vất vả.
+Trận chiến ấy, các ả cũng cực kỳ vất vả.
 
-Còn Địa Mẫu Nguyên Quân đối phó Long Hao lại rất đơn giản, sau đó nói với các nàng rằng Long Hao đã chết.
+Còn Địa Mẫu Nguyên Quân đối phó Long Hao lại rất đơn giản, sau đó nói với các ả rằng Long Hao đã chết.
 
 Long Hao là cự thú mạnh mẽ nhất thời Thái cổ, thậm chí có thể nói là cổ thần trong cự thú, tương tự cổ thần tế tự như Địa Mẫu Nguyên Quân!
 

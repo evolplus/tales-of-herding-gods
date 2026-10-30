@@ -116,7 +116,7 @@ Hắn lại không biết quan hệ giữa Tề Cửu Nghi và Tần Mục vốn
 
 Vân Sơ Tụ dịu dàng nói: "Cửu ca ca, ra ngoài đi dạo là chuyện tốt. Cảnh Dao Trì tuy đẹp, nhưng nhìn nhiều cũng chán. Cửu ca ca đi cùng người ta dạo quanh nhé."
 
-Tề Cửu Nghi bị một tiếng Cửu ca ca của nàng gọi đến xương cốt mềm nhũn, hồn cũng bay bổng, trong lòng ngọt lịm: "Yêu nữ này quả nhiên lợi hại, đạo tâm của ta... mặc kệ đạo tâm gì!"
+Tề Cửu Nghi bị một tiếng Cửu ca ca của ả gọi đến xương cốt mềm nhũn, hồn cũng bay bổng, trong lòng ngọt lịm: "Yêu nữ này quả nhiên lợi hại, đạo tâm của ta... mặc kệ đạo tâm gì!"
 
 Vân Tiệm Ly đi theo bọn họ, hỏi: "Thiên Tôn định đi đâu?"
 

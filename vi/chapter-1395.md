@@ -208,9 +208,9 @@ Lúc này Hư Thiên Tôn đã từ phía khác đánh tới. Khai Hoàng hừ m
 
 Hư Thiên Tôn một mình đánh tới trước mặt Khai Hoàng, lập tức biết không ổn, vội vung trường tiên, định đánh Khai Hoàng vào U Đô. Nhưng trường tiên quất lên người Khai Hoàng, chỉ thấy trường tiên đứt từng tấc, căn bản khó tiếp cận thân hắn.
 
-"Không trừ Nguyệt Thiên Tôn thì khó trừ Khai Hoàng!" Nàng thầm nghĩ.
+"Không trừ Nguyệt Thiên Tôn thì khó trừ Khai Hoàng!" Ả thầm nghĩ.
 
-Nàng vừa nghĩ tới đây, đột nhiên Cung Thiên Tôn tung người đứng dậy, cất bước đi về phía Nguyệt Thiên Tôn. Thần thức mạnh mẽ vô song bộc phát, đủ loại huyễn cảnh cuồn cuộn kéo đến, bao phủ Nguyệt Thiên Tôn.
+Ả vừa nghĩ tới đây, đột nhiên Cung Thiên Tôn tung người đứng dậy, cất bước đi về phía Nguyệt Thiên Tôn. Thần thức mạnh mẽ vô song bộc phát, đủ loại huyễn cảnh cuồn cuộn kéo đến, bao phủ Nguyệt Thiên Tôn.
 
 Tần Mục nhíu mày, thở dài một tiếng. Rốt cuộc đạo bất đồng.
 

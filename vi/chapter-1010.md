@@ -90,9 +90,9 @@ Thiên Đình. Một cô gái thanh xuân rạng rỡ với hai bím tóc đuôi
 
 "Tên tiểu tử xấu xa kia thế mà để Địa Mẫu bắt ta đi. Thân hóa thân đó của ta không sống nổi rồi, nhất định bị Địa Mẫu chơi hỏng! Năm xưa Địa Mẫu bị ta đắc tội thảm. Khi bà ta trộm tinh khí của Thiên Công, chính ta đã nói cho Thiên Công, để Thiên Công đánh bà ta một trận..."
 
-Nàng chạy như bay về linh năng đối thiên kiều, hai bím tóc đập vào mông, thấp giọng nói: "Nhưng tên xấu xa kia muốn hất ta ra, cũng không dễ thế đâu! Hắn không muốn ta tới Nguyên giới, vậy ta tới kinh thành Diên Khang chờ hắn trước! Chỉ là ta không biết hắn thế mà đã tu thành cảnh giới Tôn Thần. Thân thể lần trước chịu thiệt, bị hắn chộp một cái liền không nhúc nhích được. Lần này lão nương làm một thân xác thiên thần, gặp tên tiểu tử này liền đánh hắn một trận xả giận trước!"
+Ả chạy như bay về linh năng đối thiên kiều, hai bím tóc đập vào mông, thấp giọng nói: "Nhưng tên xấu xa kia muốn hất ta ra, cũng không dễ thế đâu! Hắn không muốn ta tới Nguyên giới, vậy ta tới kinh thành Diên Khang chờ hắn trước! Chỉ là ta không biết hắn thế mà đã tu thành cảnh giới Tôn Thần. Thân thể lần trước chịu thiệt, bị hắn chộp một cái liền không nhúc nhích được. Lần này lão nương làm một thân xác thiên thần, gặp tên tiểu tử này liền đánh hắn một trận xả giận trước!"
 
-Nàng đang định chui vào linh năng đối thiên kiều, lại thấy Liên Hoa Hồn cũng đang đi về phía này. Hai cô gái gặp nhau, từng người dừng bước, cảnh giác nhìn đối phương.
+Ả đang định chui vào linh năng đối thiên kiều, lại thấy Liên Hoa Hồn cũng đang đi về phía này. Hai cô gái gặp nhau, từng người dừng bước, cảnh giác nhìn đối phương.
 
 "Chẳng phải Sơ Tụ muội tử đã cùng Mục Thiên Tôn rời Thiên Đình, tới Nguyên giới rồi sao?"
 
@@ -100,7 +100,7 @@ Trong mắt Liên Hoa Hồn có căm ghét cũng có hiếu kỳ, nói: "Sao ng�
 
 Vân Sơ Tụ giơ hai tay, vuốt bím tóc đuôi ngựa ra trước ngực, cười nói: "Ta lại về rồi, không được sao? Liên tỷ tỷ định đi đâu?"
 
-Liên Hoa Hồn nhìn nàng chằm chằm, dịu giọng nói: "Ngươi lại muốn đi đâu?"
+Liên Hoa Hồn nhìn ả chằm chằm, dịu giọng nói: "Ngươi lại muốn đi đâu?"
 
 "Ngươi không định làm tỷ ta nữa, định làm mẹ ta à?"
 
@@ -110,7 +110,7 @@ Liên Hoa Hồn khẽ cười nói: "Dù sao ngươi cũng là muội muội c�
 
 Vân Sơ Tụ đảo mắt, ngọt ngào cười nói: "Ngươi đã muốn tới, vậy tới đi!"
 
-Nàng bước vào linh năng đối thiên kiều. Liên Hoa Hồn khẽ mỉm cười, cũng đi theo vào. Một lát sau, một con mèo trắng nhảy nhanh như bay, cũng chui vào linh năng đối thiên kiều của Tạo Phụ Cung.
+Ả bước vào linh năng đối thiên kiều. Liên Hoa Hồn khẽ mỉm cười, cũng đi theo vào. Một lát sau, một con mèo trắng nhảy nhanh như bay, cũng chui vào linh năng đối thiên kiều của Tạo Phụ Cung.
 
 Khoảnh khắc kế tiếp, họ xuất hiện bên cạnh linh năng đối thiên kiều ngoài kinh thành Diên Khang. Vân Sơ Tụ nhảy nhót chạy về kinh thành Diên Khang, kinh hô: "Cây Nguyên Mộc này càng lớn hơn rồi!"
 

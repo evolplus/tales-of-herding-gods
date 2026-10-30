@@ -134,19 +134,19 @@ Nguyệt Thiên Tôn kinh hồn vừa định, thấp giọng nói: "Cô thoát 
 
 Ánh mắt Lãng Uyển nhìn về phía kim thuyền. Chỉ thấy chiếc kim thuyền kia xuyên qua U Đô, đâm về phía Hư Thiên Tôn đang công kích Tần Phượng Thanh.
 
-Hư Thiên Tôn giơ tay đỡ. Lập tức nàng cảm thấy kim thuyền thế không thể cản, vội né tránh. Kim thuyền gào thét lao qua. Một đạo kim quang rắc xuống từ trên thuyền, cuốn lấy Tần Phượng Thanh.
+Hư Thiên Tôn giơ tay đỡ. Lập tức ả cảm thấy kim thuyền thế không thể cản, vội né tránh. Kim thuyền gào thét lao qua. Một đạo kim quang rắc xuống từ trên thuyền, cuốn lấy Tần Phượng Thanh.
 
 Khoảnh khắc sau, Tần Phượng Thanh đã rơi xuống đầu thuyền.
 
-Hư Thiên Tôn đánh về phía thuyền, lại thấy kim quang từng tầng từng tầng ngăn công kích của nàng lại. Nhưng kim quang này không chặn được nàng bao lâu, chỉ e chẳng mấy chốc sẽ bị nàng công phá.
+Hư Thiên Tôn đánh về phía thuyền, lại thấy kim quang từng tầng từng tầng ngăn công kích của ả lại. Nhưng kim quang này không chặn được ả bao lâu, chỉ e chẳng mấy chốc sẽ bị ả công phá.
 
 Lúc này, Lăng Thiên Tôn đi tới. Kim quang rắc xuống, Lăng Thiên Tôn rơi xuống đầu thuyền.
 
-Tim Hư Thiên Tôn nảy lên, trán toát mồ hôi lạnh. Dù bây giờ nàng đánh lên kim thuyền, chỉ e phải đối mặt với công kích của Lăng Thiên Tôn và Tần Phượng Thanh!
+Tim Hư Thiên Tôn nảy lên, trán toát mồ hôi lạnh. Dù bây giờ ả đánh lên kim thuyền, chỉ e phải đối mặt với công kích của Lăng Thiên Tôn và Tần Phượng Thanh!
 
 "Đã vậy, vậy thì thu nhục thân Thổ Bá trước! Thần khí Ngự Thiên Tôn!"
 
-Nàng bỏ kim thuyền, nguyên thần bay vọt lên, chộp về phía nhục thân Thổ Bá.
+Ả bỏ kim thuyền, nguyên thần bay vọt lên, chộp về phía nhục thân Thổ Bá.
 
 Cùng lúc ấy, trong nơi sâu của U Đô, giữa bóng tối vô biên, đột nhiên có ánh lửa bừng lên. Ma hỏa hừng hực lan cực nhanh, soi sáng một Thần khí Ngự Thiên Tôn toàn thân đen nhánh.
 
@@ -164,21 +164,21 @@ Thần khí kia vốn đã không dùng được, nhưng Tần Mục giao dịch
 
 Tuy Hư Thiên Tôn đoán ra dụng ý U Thiên Tôn lấy Thần khí này đi, nhưng cũng không định đi chi viện Tổ Thần Vương, thầm nghĩ: "Vẫn là nhục thân Thổ Bá quan trọng hơn!"
 
-Nguyên thần nàng chộp về phía đầu Thổ Bá. Vừa chạm tới, đầu Thổ Bá đột nhiên sụp đổ, từng mảnh vỡ lớn như các thế giới chư thiên bong ra.
+Nguyên thần ả chộp về phía đầu Thổ Bá. Vừa chạm tới, đầu Thổ Bá đột nhiên sụp đổ, từng mảnh vỡ lớn như các thế giới chư thiên bong ra.
 
 Hư Thiên Tôn ngẩn người, lộ vẻ khó tin.
 
 Thân thể Thổ Bá vậy mà chỉ là một lớp vỏ rỗng!
 
-Ánh mắt nàng nhìn xuống, chỉ thấy bên trong nhục thân Thổ Bá khổng lồ vô cùng kia trống rỗng, chỉ có một tầng vỏ ngoài!
+Ánh mắt ả nhìn xuống, chỉ thấy bên trong nhục thân Thổ Bá khổng lồ vô cùng kia trống rỗng, chỉ có một tầng vỏ ngoài!
 
 "Máu thịt của Thổ Bá đi đâu rồi?"
 
-Nàng không khỏi phát điên, ngay sau đó lại thấy trong cơ thể Thổ Bá, vô số nghiệp hỏa cháy hừng hực, hội tụ thành một quả cầu vàng nghiệp hỏa khổng lồ. Trong nghiệp hỏa, một bóng người đang cháy giữa lửa.
+Ả không khỏi phát điên, ngay sau đó lại thấy trong cơ thể Thổ Bá, vô số nghiệp hỏa cháy hừng hực, hội tụ thành một quả cầu vàng nghiệp hỏa khổng lồ. Trong nghiệp hỏa, một bóng người đang cháy giữa lửa.
 
-Nàng hơi ngẩn ra, nhìn nam tử trong nghiệp hỏa. Đó là A Sửu Thổ Bá.
+Ả hơi ngẩn ra, nhìn nam tử trong nghiệp hỏa. Đó là A Sửu Thổ Bá.
 
-Ánh mắt nàng dời đi, rơi xuống dưới chân Thổ Bá. Nơi đó là Ngọc Tỏa Quan.
+Ánh mắt ả dời đi, rơi xuống dưới chân Thổ Bá. Nơi đó là Ngọc Tỏa Quan.
 
 A Sửu trong Ngọc Tỏa Quan và A Sửu trong cơ thể Thổ Bá là cùng một người, chỉ vì đại pháp lực bóp méo không gian U Đô, dẫn tới trông như có hai A Sửu mà thôi.
 

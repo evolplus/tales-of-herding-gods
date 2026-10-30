@@ -102,7 +102,7 @@ Tần Mục thản nhiên nói: “Ta cho ngươi nhục thân Đế hậu, cho 
 
 Hiểu Thiên Tôn cười lạnh: “Vì sao không thể nói là vì hai thứ này, ngươi muốn đắc tội trẫm?”
 
-Tần Mục cười khẽ: “Đế hậu có thể vứt bỏ nhục thân của nàng, nhưng ngươi thì không. Ta có thể phá giải Quỷ thuyền, cũng có thể phá giải thần thông của Lăng Thiên Tôn. Đắc tội với ta, nhục thân của ngươi đừng hòng lấy lại!”
+Tần Mục cười khẽ: “Đế hậu có thể vứt bỏ nhục thân của ả, nhưng ngươi thì không. Ta có thể phá giải Quỷ thuyền, cũng có thể phá giải thần thông của Lăng Thiên Tôn. Đắc tội với ta, nhục thân của ngươi đừng hòng lấy lại!”
 
 Khóe mắt Hiểu Thiên Tôn giật một cái.
 

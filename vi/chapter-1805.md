@@ -92,7 +92,7 @@ Sau luồng kiếp phong này, Tần Mục hoàn toàn biến mất!
 
 Công tử Vô Cực liên tiếp chém giết công tử Lăng Tiêu và Tần Mục, sát khí ngập trời, nghiêm giọng nói: "Nếu là ta làm, ta cần gì che giấu?"
 
-Thần thông của công tử Tử Tiêu và Vô Nhai lão nhân rơi lên người nàng. Công tử Tử Tiêu thì còn đỡ, nhưng công kích của Vô Nhai lão nhân lại khiến nàng thổ huyết.
+Thần thông của công tử Tử Tiêu và Vô Nhai lão nhân rơi lên người ả. Công tử Tử Tiêu thì còn đỡ, nhưng công kích của Vô Nhai lão nhân lại khiến ả thổ huyết.
 
 Công tử Vô Cực nổi giận, ra tay tàn nhẫn với hai người: "Giải thích không rõ thì làm thịt các ngươi! Dù sao ta cũng định giết các ngươi!"
 
@@ -110,15 +110,15 @@ Xoẹt xoẹt xoẹt!
 
 Công tử Vô Cực gắng sức chống đỡ mà vẫn bị thương mấy chục chỗ, đột ngột vươn tay ra, gần như nắm giữ sức mạnh của mười sáu kiếp Phá Diệt bộc phát!
 
-Vô Nhai lão nhân bị nàng một chưởng bắt tới, còn ở giữa không trung đã gần như chia năm xẻ bảy!
+Vô Nhai lão nhân bị ả một chưởng bắt tới, còn ở giữa không trung đã gần như chia năm xẻ bảy!
 
-Công tử Lăng Tiêu từ sau lưng nàng một thương đâm vào hậu tâm. Vô Cực nghiến răng, tóc bạc bay múa, xoẹt xoẹt xoẹt, vô số sợi tóc bạc đâm vào cơ thể công tử Lăng Tiêu, soạt một tiếng cắt hắn thành bụi vụn!
+Công tử Lăng Tiêu từ sau lưng ả một thương đâm vào hậu tâm. Vô Cực nghiến răng, tóc bạc bay múa, xoẹt xoẹt xoẹt, vô số sợi tóc bạc đâm vào cơ thể công tử Lăng Tiêu, soạt một tiếng cắt hắn thành bụi vụn!
 
 "Vô Cực mạnh đến thế sao?"
 
 Tần Mục trợn to mắt, mắt dọc giữa mi tâm mở ra. Hắn bước lên một bước, thúc giục kết ấn dây đỏ sau lưng Vô Cực vẫn chưa hoàn toàn bị luyện hóa, quát: "Nguyệt, chặt đứt sợi dây đỏ thứ sáu!"
 
-Vốn hắn cho rằng chỉ cần Thế Giới Thụ và Vô Nhai lão nhân rơi vào Quy Khư Đại Uyên, là có thể khiến tu vi thực lực công tử Vô Cực tổn hại lớn. Sau đó bọn họ có thể mặc sức nắm nàng trong tay. Đến lúc ấy, Tần Mục chỉ cần để Nguyệt Thiên Tôn ra tay sau khi Vô Cực và Vô Nhai bị bọn họ đánh trọng thương, quấy nhiễu Tứ công tử, ép lui Tam công tử, là có thể tranh thủ thêm mấy vạn năm phát triển cho Diên Khang.
+Vốn hắn cho rằng chỉ cần Thế Giới Thụ và Vô Nhai lão nhân rơi vào Quy Khư Đại Uyên, là có thể khiến tu vi thực lực công tử Vô Cực tổn hại lớn. Sau đó bọn họ có thể mặc sức nắm ả trong tay. Đến lúc ấy, Tần Mục chỉ cần để Nguyệt Thiên Tôn ra tay sau khi Vô Cực và Vô Nhai bị bọn họ đánh trọng thương, quấy nhiễu Tứ công tử, ép lui Tam công tử, là có thể tranh thủ thêm mấy vạn năm phát triển cho Diên Khang.
 
 Nhưng điều hắn không ngờ là, dù Vô Nhai lão nhân và Thế Giới Thụ đã vào Quy Khư Đại Uyên, dù tu vi thực lực Vô Cực không ngừng hao tổn, dù kết ấn dây đỏ còn chưa hoàn toàn bị luyện hóa, công tử Vô Cực vẫn có thể ép bọn họ bị đánh tơi bời!
 
@@ -136,7 +136,7 @@ Vô số thần thông không gian gào thét lao lên. Khoảnh khắc sau, s�
 
 Nếu sợi dây đỏ thứ sáu bị kéo ra, kết ấn dây đỏ sẽ tản đi, Nhị công tử Vô Cực sẽ thoát khốn. Nhưng nếu sợi dây đỏ thứ sáu bị chặt đứt, uy lực phong ấn kết ấn dây đỏ sẽ triệt để bộc phát!
 
-Chủ nhân Di La Cung không nỡ giết hại đệ tử của mình, vì vậy cho Vô Cực một tia sinh cơ, hi vọng nàng có thể tỉnh ngộ. Sợi dây đỏ thứ sáu vẫn luôn khống chế sức mạnh của ấn kết ấn dây đỏ, duy trì cân bằng.
+Chủ nhân Di La Cung không nỡ giết hại đệ tử của mình, vì vậy cho Vô Cực một tia sinh cơ, hi vọng ả có thể tỉnh ngộ. Sợi dây đỏ thứ sáu vẫn luôn khống chế sức mạnh của ấn kết ấn dây đỏ, duy trì cân bằng.
 
 Nguyệt Thiên Tôn chặt đứt sợi dây đỏ này. Ở cửa vào Quy Khư Đại Uyên, lá sen của Tần Mục đột nhiên đứt rời, tan vỡ, hóa thành tro bụi.
 
@@ -148,11 +148,11 @@ Chưởng ấn màu đỏ rơi xuống. Công tử Vô Cực cứng rắn đỡ 
 
 Ầm!
 
-Chưởng ấn tiếp xúc với nàng. Trên mặt công tử Vô Cực lộ vẻ khó tin, máu không ngừng trào ra từ mắt, tai, miệng, mũi, liên đài dưới chân ầm vang vỡ nát.
+Chưởng ấn tiếp xúc với ả. Trên mặt công tử Vô Cực lộ vẻ khó tin, máu không ngừng trào ra từ mắt, tai, miệng, mũi, liên đài dưới chân ầm vang vỡ nát.
 
-Hỗn Độn Hải nứt ra, nuốt thân hình nàng vào.
+Hỗn Độn Hải nứt ra, nuốt thân hình ả vào.
 
-Một chưởng này của Chủ nhân Di La Cung đè nàng xuống, đánh nàng thẳng vào đáy biển sâu không lường được của Hỗn Độn Hải!
+Một chưởng này của Chủ nhân Di La Cung đè ả xuống, đánh ả thẳng vào đáy biển sâu không lường được của Hỗn Độn Hải!
 
 Trong Quy Khư Đại Uyên truyền tới rung động dữ dội, hẳn là động tĩnh do một chưởng của Chủ nhân Di La Cung rơi xuống đáy biển tạo nên.
 

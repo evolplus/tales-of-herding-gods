@@ -54,7 +54,7 @@ Mạnh Vân Quy nhướng mày, trầm ngâm nói: “Thiên Tôn nói không sa
 
 “Chuyện này đơn giản.”
 
-Tần Mục hòa nhã nói: “Cháu gái ta Hư Thiên Tôn, con gái Thổ Bá, nàng ra tay thì đừng nói Phong Đô cỏn con, phá Thái Hư U Đô cũng dễ như trở bàn tay.”
+Tần Mục hòa nhã nói: “Cháu gái ta Hư Thiên Tôn, con gái Thổ Bá, ả ra tay thì đừng nói Phong Đô cỏn con, phá Thái Hư U Đô cũng dễ như trở bàn tay.”
 
 Mạnh Vân Quy thấp giọng cười nói: “Nếu Hư Thiên Tôn đi đánh Thái Hư U Đô, vậy Khai Hoàng và Thần Vương của Tạo Vật Chủ sẽ có cơ hội liên thủ tấn công Hỏa Thiên Tôn. Một mình Hỏa Thiên Tôn khó chống đỡ.”
 

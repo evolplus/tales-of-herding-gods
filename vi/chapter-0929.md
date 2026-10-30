@@ -10,7 +10,7 @@ Thiên Khung rộng lớn, xanh thẳm như gột rửa, bao phủ không gian t
 
 Bàn tay của hắn là thiên đạo thứ tư, Thiên Ấn.
 
-Mỗi một kích của hắn đều như Thiên Công đang trừng ác dương thiện, đánh vào đạo tâm Vân Sơ Tụ, muốn đánh ra tội nghiệt trong lòng nàng, đánh ra sự mềm yếu, đánh ra thần tính của nàng, đánh nàng thành phàm nhân, đánh nàng đến đau khóc thành tiếng!
+Mỗi một kích của hắn đều như Thiên Công đang trừng ác dương thiện, đánh vào đạo tâm Vân Sơ Tụ, muốn đánh ra tội nghiệt trong lòng ả, đánh ra sự mềm yếu, đánh ra thần tính của ả, đánh ả thành phàm nhân, đánh ả đến đau khóc thành tiếng!
 
 Sau lưng hắn, Thiên Cương như đấu, Thiên Cơ như ô, Thiên Dương là đại nhật, Thiên Âm là minh nguyệt.
 
@@ -24,7 +24,7 @@ Hắn thấp giọng: "Mục Thiên Tôn tinh thông thuật tạo hóa, cũng n
 
 Vân Sơ Tụ liên tục lùi lại, trong lòng không khỏi nổi giận.
 
-Theo nàng thấy, Tần Mục quả thật không biết tiến lui. Tính mạng Tần Mục đều là nàng ban cho. Nếu không có nàng hiện thân ở Dao Trì, giúp U Thiên Tôn chặn hai vị Thiên Tôn kia, hiện tại Tần Mục đã là một cỗ thi thể rồi.
+Theo ả thấy, Tần Mục quả thật không biết tiến lui. Tính mạng Tần Mục đều là ả ban cho. Nếu không có ả hiện thân ở Dao Trì, giúp U Thiên Tôn chặn hai vị Thiên Tôn kia, hiện tại Tần Mục đã là một cỗ thi thể rồi.
 
 Mình úp cho hắn một cái chậu phân thì đáng là gì?
 
@@ -32,11 +32,11 @@ Thế nhưng đòn tấn công của Tần Mục lại càng lúc càng dữ d�
 
 Vân Sơ Tụ hờn giận, nhưng lại không tiện thi triển sức mạnh mạnh hơn.
 
-Nàng có thể cảm giác được lúc này có không ít ánh mắt đang nhìn nơi đây. Tần Mục là tên lỗ mãng, làm việc không biết nặng nhẹ, nhưng nàng lại biết chủ nhân của những ánh mắt này e rằng là các Thiên Tôn khác.
+Ả có thể cảm giác được lúc này có không ít ánh mắt đang nhìn nơi đây. Tần Mục là tên lỗ mãng, làm việc không biết nặng nhẹ, nhưng ả lại biết chủ nhân của những ánh mắt này e rằng là các Thiên Tôn khác.
 
 Nếu mình đánh chết Tần Mục, hoặc thi triển tuyệt học thật sự của mình, e rằng sẽ bị các Thiên Tôn khác nắm được nhược điểm.
 
-Nhất là tuyệt học thật sự của nàng.
+Nhất là tuyệt học thật sự của ả.
 
 Hiện giờ Thập Thiên Tôn đều đang thử hoàn thành công pháp cảnh giới Thiên Đình. Nhưng Thập Thiên Tôn không còn như trước, hiềm khích rất nhiều, lẫn nhau đều khó tin tưởng, vì vậy đều tự mình tìm tòi.
 
@@ -50,11 +50,11 @@ Giữa các Thiên Tôn lục đục với nhau, thậm chí phái người lẻ
 
 Vân Sơ Tụ mấy lần suýt bị thương, trong lòng nổi giận.
 
-Cảnh giới của thân thể này hiện tại chỉ đến cảnh giới Thần Kiều, chưa phi thăng Thiên Cung. Vừa rồi uy năng lõi Nguyên Mộc bạo tăng chỉ là pháp lực từ bản thể nàng truyền đến, mượn cơ hội chèn ép một mạch Lang Thiên Tôn.
+Cảnh giới của thân thể này hiện tại chỉ đến cảnh giới Thần Kiều, chưa phi thăng Thiên Cung. Vừa rồi uy năng lõi Nguyên Mộc bạo tăng chỉ là pháp lực từ bản thể ả truyền đến, mượn cơ hội chèn ép một mạch Lang Thiên Tôn.
 
-Chỉ dựa vào bản lĩnh của thân thể này, nếu nàng không dùng tuyệt học thật sự thì rất khó chặn được Tần Mục.
+Chỉ dựa vào bản lĩnh của thân thể này, nếu ả không dùng tuyệt học thật sự thì rất khó chặn được Tần Mục.
 
-Tốc độ hai người càng lúc càng nhanh. Tần Mục muốn ép ra thần thông thật sự của nàng, nhưng Vân Sơ Tụ lại trơn tuột khó bắt. Mặc cho thế công của hắn dữ dội thế nào, nàng đều đỡ được.
+Tốc độ hai người càng lúc càng nhanh. Tần Mục muốn ép ra thần thông thật sự của ả, nhưng Vân Sơ Tụ lại trơn tuột khó bắt. Mặc cho thế công của hắn dữ dội thế nào, ả đều đỡ được.
 
 Đúng lúc này, đột nhiên trong không gian có một bàn tay lớn chụp tới, chấn vô số cung điện đang bay tán loạn của Lang Hiên Thần Cung thành bột mịn, oanh kích về phía Tần Mục!
 
@@ -72,21 +72,21 @@ Vân Sơ Tụ thì thừa cơ đánh tới, đến sau lưng Tần Mục, một 
 
 Bành!
 
-Chưởng lực của nàng rơi lên hậu tâm Tần Mục, kình lực bùng phát, lòng bàn tay như một Quy Khư đại uyên. Trong chớp mắt, nhục thân nguyên thần của Tần Mục bị vặn vẹo, kéo vào lòng bàn tay nàng!
+Chưởng lực của ả rơi lên hậu tâm Tần Mục, kình lực bùng phát, lòng bàn tay như một Quy Khư đại uyên. Trong chớp mắt, nhục thân nguyên thần của Tần Mục bị vặn vẹo, kéo vào lòng bàn tay ả!
 
-Đột nhiên mu bàn tay nàng nứt ra, một luồng kiếm quang từ mu bàn tay nàng đánh thẳng đến, đâm vào mi tâm nàng!
+Đột nhiên mu bàn tay ả nứt ra, một luồng kiếm quang từ mu bàn tay ả đánh thẳng đến, đâm vào mi tâm ả!
 
-Trong lòng Vân Sơ Tụ kinh hãi, nhanh chóng lùi lại. Thế nhưng Tần Mục lại như mọc trên mu bàn tay nàng, chỉ cao hơn một thước, tựa như dính liền với máu thịt của nàng. Mặc cho nàng lùi thế nào, cũng không thể thoát khỏi Tần Mục, cũng không thể thoát khỏi một kiếm kia!
+Trong lòng Vân Sơ Tụ kinh hãi, nhanh chóng lùi lại. Thế nhưng Tần Mục lại như mọc trên mu bàn tay ả, chỉ cao hơn một thước, tựa như dính liền với máu thịt của ả. Mặc cho ả lùi thế nào, cũng không thể thoát khỏi Tần Mục, cũng không thể thoát khỏi một kiếm kia!
 
 Vân Sơ Tụ nắm chặt nắm tay, một quyền đánh ra, đánh nát một tòa thần điện rách nát. Đột nhiên trong điện có ánh đao sáng lên, chém về phía Tần Mục. Đó là một vị thần chỉ khác ẩn thân trong đó, chờ thời cơ, đợi tập sát Tần Mục.
 
 Vân Sơ Tụ nhìn ra hắn ẩn thân ở đó, vì vậy dùng một quyền ép hắn ra để hóa giải nguy cục của mình.
 
-Thân hình Tần Mục đột nhiên biến mất khỏi tay nàng. Một đao của vị thần chỉ kia biến thành chém về phía Vân Sơ Tụ.
+Thân hình Tần Mục đột nhiên biến mất khỏi tay ả. Một đao của vị thần chỉ kia biến thành chém về phía Vân Sơ Tụ.
 
 Vân Sơ Tụ hơi nhíu mày, giơ tay chỉ một cái. Trong mắt vị thần chỉ kia lộ vẻ kinh hãi, nhục thân không ngừng sụp vào bên trong, chớp mắt đã bị ép thành một viên thịt nhỏ, bành một tiếng nổ tung!
 
-Mà lúc này Tần Mục đã đến sau lưng Vân Sơ Tụ. Vân Sơ Tụ rợn tóc gáy. Một luồng khí tức đại đạo mênh mang từ Tần Mục sau lưng nàng phóng thẳng lên trời. Khí tức ấy tựa như tông chủ của vạn đạo, tổ tiên của vạn pháp!
+Mà lúc này Tần Mục đã đến sau lưng Vân Sơ Tụ. Vân Sơ Tụ rợn tóc gáy. Một luồng khí tức đại đạo mênh mang từ Tần Mục sau lưng ả phóng thẳng lên trời. Khí tức ấy tựa như tông chủ của vạn đạo, tổ tiên của vạn pháp!
 
 Nếu nhắm mắt lại, chỉ dựa vào khí tức cũng có thể cảm nhận được một tòa Thiên Đình mênh mông hùng vĩ ập tới trước mặt, mà Tần Mục như chí tôn của Thiên Đình!
 
@@ -94,21 +94,21 @@ Nếu nhắm mắt lại, chỉ dựa vào khí tức cũng có thể cảm nh�
 
 Vân Sơ Tụ nghiến răng: "Ngươi dám dùng thần thông của gian phu để đối phó ta? Đối phó bổn cung?"
 
-Khí thế của nàng đột ngột thay đổi, tóc đẹp bay lên, vạt áo tung bay, một loại khí thế hoàn toàn khác bùng phát, vậy mà trấn áp cả khí tức vạn đạo chí tôn trên người Tần Mục!
+Khí thế của ả đột ngột thay đổi, tóc đẹp bay lên, vạt áo tung bay, một loại khí thế hoàn toàn khác bùng phát, vậy mà trấn áp cả khí tức vạn đạo chí tôn trên người Tần Mục!
 
-Vân Sơ Tụ cuối cùng thật sự nổi giận, giận đến triệt để. Nếu Tần Mục không thi triển thần thông của Thiên Đế cổ thần thì còn đỡ, chưa đến mức khiến nàng không nhịn nổi.
+Vân Sơ Tụ cuối cùng thật sự nổi giận, giận đến triệt để. Nếu Tần Mục không thi triển thần thông của Thiên Đế cổ thần thì còn đỡ, chưa đến mức khiến ả không nhịn nổi.
 
-Thế nhưng Tần Mục lại cứ thi triển đại đạo thần thông của Thiên Đế cổ thần, khiến nàng không thể nhẫn nại thêm.
+Thế nhưng Tần Mục lại cứ thi triển đại đạo thần thông của Thiên Đế cổ thần, khiến ả không thể nhẫn nại thêm.
 
-Hận ý của nàng đối với người đàn ông kia ngập trời. Khoảnh khắc này, nàng xem Tần Mục như tên phụ bạc kia, công pháp bản thân triệt để bùng phát, quay đầu tung một kích.
+Hận ý của ả đối với người đàn ông kia ngập trời. Khoảnh khắc này, ả xem Tần Mục như tên phụ bạc kia, công pháp bản thân triệt để bùng phát, quay đầu tung một kích.
 
 Đại đạo cùng reo vang, như có ức vạn thần chỉ đồng thời niệm tụng đạo ngữ, chấn đến điếc tai!
 
-Tần Mục vậy mà cảm thấy trong thân thể mềm mại của nàng đồng thời có hơn hai mươi luồng khí tức khác nhau cùng bùng phát. Những khí tức này giống như hơn hai mươi vị đại đế tu luyện công pháp khác nhau.
+Tần Mục vậy mà cảm thấy trong thân thể mềm mại của ả đồng thời có hơn hai mươi luồng khí tức khác nhau cùng bùng phát. Những khí tức này giống như hơn hai mươi vị đại đế tu luyện công pháp khác nhau.
 
 Cảm giác này vô cùng kỳ lạ. Vân Sơ Tụ rõ ràng là một người, vậy mà đồng thời có hơn hai mươi loại khí tức khác nhau, như một tổ hợp của hơn hai mươi vị đại đế!
 
-Điều này nói rõ nàng đã tu luyện hơn hai mươi loại công pháp Đế Tọa, dung hợp những công pháp này!
+Điều này nói rõ ả đã tu luyện hơn hai mươi loại công pháp Đế Tọa, dung hợp những công pháp này!
 
 Đây gần như là chuyện không thể. Tần Mục dung hợp công pháp Đế Tọa, khai sáng Bá Thể Tam Đan Công thuộc về mình, đã là thành tựu hiếm có.
 
@@ -134,7 +134,7 @@ Những cung khuyết và đá vụn đè lên người Tần Mục bị chấn 
 
 Người phụ nữ này mất khống chế, vậy mà khủng bố đến thế!
 
-Đúng lúc này, một luồng kiếm quang bay ra từ trong khói bụi, xoẹt một tiếng xuyên qua thần thông của nàng. Khoảnh khắc tiếp theo, kiếm quang đâm thủng bàn tay Vân Sơ Tụ, còn bàn tay của Vân Sơ Tụ thì hung hăng va vào người Tần Mục.
+Đúng lúc này, một luồng kiếm quang bay ra từ trong khói bụi, xoẹt một tiếng xuyên qua thần thông của ả. Khoảnh khắc tiếp theo, kiếm quang đâm thủng bàn tay Vân Sơ Tụ, còn bàn tay của Vân Sơ Tụ thì hung hăng va vào người Tần Mục.
 
 Bành bành.
 

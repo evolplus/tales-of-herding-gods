@@ -70,7 +70,7 @@ Thiên Công còn muốn tranh luận với hắn, nhưng Tần Mục đã khôn
 
 A Sửu gật đầu: "Theo ý ngươi."
 
-Tần Mục giơ ngón tay thứ hai, nói: "Không được đi gặp Hư Thiên Tôn. Đợi tới khi Thiên Đình và Diên Khang quyết chiến, huynh có thể gặp nàng."
+Tần Mục giơ ngón tay thứ hai, nói: "Không được đi gặp Hư Thiên Tôn. Đợi tới khi Thiên Đình và Diên Khang quyết chiến, huynh có thể gặp ả."
 
 A Sửu chần chừ một chút, nói: "Cũng theo ý ngươi."
 
@@ -150,7 +150,7 @@ Tiền thế ở tầng sâu hơn của hơn mười người này bị hắn so
 
 "Người này là ta."
 
-Tần Mục giơ tay chỉ tới, nói: "Ta tinh thông đạo Luân Hồi. Ca ca, huynh không tìm ra căn nguyên của ta. Người này là U Thiên Tôn, huynh cũng không tìm ra căn nguyên của ông ấy. Người này là Lăng Thiên Tôn, người này là Thái Thủy, che mắt Sinh Tử Bộ, không cần tìm họ... Người này hẳn là chuyển thế thân của Hư Thiên Tôn ở Diên Khang. Đạo U Đô của nàng không kém huynh, đừng kinh động nàng."
+Tần Mục giơ tay chỉ tới, nói: "Ta tinh thông đạo Luân Hồi. Ca ca, huynh không tìm ra căn nguyên của ta. Người này là U Thiên Tôn, huynh cũng không tìm ra căn nguyên của ông ấy. Người này là Lăng Thiên Tôn, người này là Thái Thủy, che mắt Sinh Tử Bộ, không cần tìm họ... Người này hẳn là chuyển thế thân của Hư Thiên Tôn ở Diên Khang. Đạo U Đô của ả không kém huynh, đừng kinh động ả."
 
 Tần Phượng Thanh loại trừ mấy người này. Trên Sinh Tử Bộ chỉ còn lại hai người.
 

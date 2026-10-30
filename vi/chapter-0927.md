@@ -106,7 +106,7 @@ Tần Mục run rẩy đứng dậy, nói: "Nếu chư vị muốn kiến thức
 
 Hắn đột nhiên ho dữ dội, thân thể lảo đảo, đưa tay ra định đỡ lấy thứ gì.
 
-Vân Sơ Tụ vội tiến lên đỡ hắn, dìu hắn đi ra ngoài, khẽ nói: "Ngươi ấy à, đừng lúc nào cũng cậy mạnh, biết yêu quý thân thể một chút. Ta đã sớm nói chúng ta đừng ra ngoài, ngươi cứ khăng khăng muốn ra..." Nói xong, nàng lén nhéo một mẩu thịt dưới nách hắn, vặn một vòng.
+Vân Sơ Tụ vội tiến lên đỡ hắn, dìu hắn đi ra ngoài, khẽ nói: "Ngươi ấy à, đừng lúc nào cũng cậy mạnh, biết yêu quý thân thể một chút. Ta đã sớm nói chúng ta đừng ra ngoài, ngươi cứ khăng khăng muốn ra..." Nói xong, ả lén nhéo một mẩu thịt dưới nách hắn, vặn một vòng.
 
 "Ta bị Đế Hậu nương nương trêu ghẹo rồi?"
 
@@ -118,7 +118,7 @@ Tề Cửu Nghi thở dài, thầm nghĩ: "Lần này ra ngoài, e rằng lại 
 
 Vân Sơ Tụ nhìn cây gậy gỗ kia, tim nảy lên: "Lõi Nguyên Mộc của Nguyên giới! Có niên luân hơn năm nghìn vạn năm, lợi hại vô cùng, là trọng bảo do Địa Mẫu Nguyên Quân luyện thành. Con tiểu nương bì Địa Mẫu Nguyên Quân kia vì lấy lòng tiểu tử này mà thật sự chịu bỏ vốn! Hì, vừa rồi tên tiểu quỷ Lang Hiên Thần Hoàng kia lén chuồn đi rồi, không ở đây. Mục Thiên Tôn không thể phát huy toàn bộ uy năng của lõi Nguyên Mộc. Nếu ta giúp hắn một việc nhỏ, tháo dỡ nơi này hình như rất đơn giản..."
 
-Trong mắt nàng lộ ánh sáng hưng phấn.
+Trong mắt ả lộ ánh sáng hưng phấn.
 
 Tần Mục nhấc lõi Nguyên Mộc lên, lạnh lùng nói: "Ai muốn ta chỉ điểm?"
 

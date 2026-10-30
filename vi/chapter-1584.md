@@ -124,7 +124,7 @@ Hắn thở ra một hơi đục, kiên nhẫn nói: “Thiên Đình nắm gi�
 
 A Sửu Thổ Bá, nghiệp hỏa bừng bừng trong ba con mắt, nói: “Mục Thiên Tôn, ngươi yên tâm, ta sẽ không để U Đô rơi vào tay Thiên Đình. Ta sẽ dẫn Hư Thiên Tôn đi ẩn cư, sống cuộc đời phàm nhân. Còn Âm Thiên Tử, hắn không phải đối thủ của tiểu Thổ Bá, càng không thể nắm giữ U Đô.”
 
-Tần Mục cười ha hả: “Hư Thiên Tôn có bằng lòng theo ông quy ẩn không? Thổ Bá, Hư Thiên Tôn tuy là con gái ông, nhưng nàng không có tình thân với ông! Nàng là Thập Thiên Tôn! Là vũ khí do Thiên Đế Thái Sơ bồi dưỡng ra để đối phó ông!”
+Tần Mục cười ha hả: “Hư Thiên Tôn có bằng lòng theo ông quy ẩn không? Thổ Bá, Hư Thiên Tôn tuy là con gái ông, nhưng ả không có tình thân với ông! Ả là Thập Thiên Tôn! Là vũ khí do Thiên Đế Thái Sơ bồi dưỡng ra để đối phó ông!”
 
 A Sửu Thổ Bá bình tĩnh nói: “Nàng trước sau vẫn là con gái ta.”
 
@@ -132,7 +132,7 @@ Tần Mục phất tay áo, xuyên qua tầng tầng nghiệp hỏa, tới trư�
 
 Mắt dọc giữa mi tâm Tần Mục mở ra, mặt đối mặt với A Sửu Thổ Bá. Hai người sáu mắt nhìn nhau, đều nhìn ra chấp niệm trong mắt đối phương.
 
-“Nàng là Thập Thiên Tôn.” Tần Mục nói.
+“Ả là Thập Thiên Tôn.” Tần Mục nói.
 
 A Sửu Thổ Bá nhìn thẳng vào hắn: “Nàng là con gái ta, ta là A Sửu.”
 

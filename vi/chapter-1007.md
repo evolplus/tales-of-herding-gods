@@ -30,7 +30,7 @@ Mặt Tần Mục đen lại. Hắn bước vào trong liễn, ngẩng đầu nh
 
 Vân Sơ Tụ chổng mông nhìn xuống dưới liễn, vẫy tay với hắn: "Mau tới đây! Vân văn vẽ dưới gầm là huyền vũ văn, cưỡi gió vượt sóng, đè Huyền Vũ dưới liễn. Tới lúc Bắc Đế Huyền Vũ thấy bảo liễn này, cũng muốn lấy mạng ngươi!"
 
-Tần Mục tới bên cạnh nàng. Hai người cùng chổng mông nhìn xuống dưới liễn.
+Tần Mục tới bên cạnh ả. Hai người cùng chổng mông nhìn xuống dưới liễn.
 
 Dưới gầm liễn quả nhiên là huyền vũ văn. Sắc mặt Tần Mục càng đen hơn.
 
@@ -62,7 +62,7 @@ Vân Sơ Tụ cười xấu xa, đưa roi cho hắn. Đô Thiên Ma Vương nh�
 
 Vân Sơ Tụ giơ bàn tay mềm mại lên, quẹt ngang cổ mình.
 
-Tần Mục tặng nàng hai cái lườm trắng, hỏi Yên Nhi: "Yên Nhi tỷ, thấy Đại Đầu không?"
+Tần Mục tặng ả hai cái lườm trắng, hỏi Yên Nhi: "Yên Nhi tỷ, thấy Đại Đầu không?"
 
 Yên Nhi nói: "Mấy ngày nay Đại Đầu theo Tề Cửu Nghi cầu học, ta đã sai người đi tìm hắn rồi. Tính thời gian cũng sắp tới."
 
@@ -72,7 +72,7 @@ Một lát sau, Thúc Quân nhanh chân chạy tới. Từ xa nhìn thấy Thiê
 
 Tần Mục bất đắc dĩ, đành lên bảo liễn, ngồi trên chủ vị.
 
-Vân Sơ Tụ cũng bò lên liễn, liếc thấy không có chỗ cho mình, liền muốn ngồi trên đùi Tần Mục. Tần Mục đang định đá nàng xuống, Lãng Uyển Thần Vương cười nói: "Muội muội qua đây ngồi. Chỗ này khá rộng rãi."
+Vân Sơ Tụ cũng bò lên liễn, liếc thấy không có chỗ cho mình, liền muốn ngồi trên đùi Tần Mục. Tần Mục đang định đá ả xuống, Lãng Uyển Thần Vương cười nói: "Muội muội qua đây ngồi. Chỗ này khá rộng rãi."
 
 Vân Sơ Tụ chen chung một chỗ với nàng, cười hì hì: "Lãng Uyển tỷ tỷ, hai chúng ta giống như cùng một mẹ sinh ra vậy, hiếm khi lại giống nhau thế này."
 
@@ -98,7 +98,7 @@ Một bụng giận của Tần Mục không có chỗ phát tiết, hắn hừ 
 
 Vân Sơ Tụ cười khúc khích: "Hạo nhi chẳng tốt chút nào. Nó ám toán cha nó, còn muốn ám toán ta, nhưng bản thân lại không tiện ra tay, thế là mời Lăng Thiên Tôn tới đối phó ta. May mà ta lanh lợi, sớm đã đề phòng Lăng Thiên Tôn, vừa khéo mượn tay Lăng Thiên Tôn giả chết thoát thân, trái lại nàng thành toàn cho ta. Ngươi đánh nó, ban đầu ta rất tức, sau này lại rất vui."
 
-Nàng đấm chân cho Tần Mục, phấn khích nói: "Lần này ngươi ra ngoài, chắc chắn sẽ có rất nhiều Thiên Tôn ra tay với ngươi, trong đó có Hạo nhi! Ngươi đắc tội nó quá thảm, người ta muốn tận mắt nhìn nó đánh chết ngươi!"
+Ả đấm chân cho Tần Mục, phấn khích nói: "Lần này ngươi ra ngoài, chắc chắn sẽ có rất nhiều Thiên Tôn ra tay với ngươi, trong đó có Hạo nhi! Ngươi đắc tội nó quá thảm, người ta muốn tận mắt nhìn nó đánh chết ngươi!"
 
 Tần Mục chán nản nói: "Để Hạo Thiên Tôn đánh chết ta cho rồi. Ngươi không cần đấm nữa, về chỗ nghỉ trước đi. Đô Thiên, chúng ta chưa tới Đông Cực vội, trước tiên tới Nguyên giới, đến Nguyên giới rồi lại tới Đông Cực. Ta đã lâu chưa về Nguyên giới, trước tiên về quê thăm thân hữu."
 
@@ -106,11 +106,11 @@ Tần Mục chán nản nói: "Để Hạo Thiên Tôn đánh chết ta cho rồ
 
 Vân Sơ Tụ tính tình nhảy nhót, lại chạy ra ngoài liễn, kéo trụ liễn ngắm cảnh.
 
-Lãng Uyển Thần Vương lộ vẻ nghi hoặc, nhìn Tần Mục. Thần thức Tần Mục dao động, truyền âm nói: "Nàng là Nguyên Mẫu phu nhân trong Thập Thiên Tôn, chỉ không biết thân phận của nàng trong Thập Thiên Tôn là ai. Nguyên Mẫu phu nhân cũng là cổ thần, sinh ra trong Quy Khư, tình nhân của Thiên Đế, muội muội của Đế hậu."
+Lãng Uyển Thần Vương lộ vẻ nghi hoặc, nhìn Tần Mục. Thần thức Tần Mục dao động, truyền âm nói: "Ả là Nguyên Mẫu phu nhân trong Thập Thiên Tôn, chỉ không biết thân phận của ả trong Thập Thiên Tôn là ai. Nguyên Mẫu phu nhân cũng là cổ thần, sinh ra trong Quy Khư, tình nhân của Thiên Đế, muội muội của Đế hậu."
 
-"Tính tình của nàng thật cổ quái."
+"Tính tình của ả thật cổ quái."
 
-Lãng Uyển Thần Vương kinh ngạc nói: "Là Nguyên Mẫu phu nhân của Quy Khư, chẳng phải nên đoan trang rộng lượng, cử chỉ hợp lễ sao? Sao nàng lại có tính cách này?"
+Lãng Uyển Thần Vương kinh ngạc nói: "Là Nguyên Mẫu phu nhân của Quy Khư, chẳng phải nên đoan trang rộng lượng, cử chỉ hợp lễ sao? Sao ả lại có tính cách này?"
 
 Tần Mục thở dài. Vị Nguyên Mẫu phu nhân này sau khi hóa thành dáng vẻ Tuyệt Vô Trần, tính tình thật sự khiến người ta không nắm bắt được.
 
@@ -148,9 +148,9 @@ Vân Sơ Tụ nghĩ một lát, nói: "Hình như Thiên Tôn nào cũng có lý
 
 Tần Mục khó hiểu nói: "Ngươi đoán ra Thái Đế ra tay, vậy các Thiên Tôn khác hẳn cũng có thể đoán ra. Thái Đế còn xuống tay với ta sao?"
 
-Vân Sơ Tụ chớp mắt. Một lúc sau, nàng thong thả nói: "Thiên Đình có vị Thiên Tôn thứ mười một, nhưng hắn đã chết hơn bốn vạn năm rồi. Năm xưa chính hắn điều khiển thân xác Cổ Thần Thiên Đế đánh lén Lăng Thiên Tôn, bị Lăng Thiên Tôn nhốt chết trong thần thông. Bốn vạn năm, thân xác của hắn hẳn vẫn chưa mục nát. Nếu hắn chính là Thái Đế, nếu Thái Đế quả nhiên còn sống, vậy thân xác này của hắn sẽ xuất động."
+Vân Sơ Tụ chớp mắt. Một lúc sau, ả thong thả nói: "Thiên Đình có vị Thiên Tôn thứ mười một, nhưng hắn đã chết hơn bốn vạn năm rồi. Năm xưa chính hắn điều khiển thân xác Cổ Thần Thiên Đế đánh lén Lăng Thiên Tôn, bị Lăng Thiên Tôn nhốt chết trong thần thông. Bốn vạn năm, thân xác của hắn hẳn vẫn chưa mục nát. Nếu hắn chính là Thái Đế, nếu Thái Đế quả nhiên còn sống, vậy thân xác này của hắn sẽ xuất động."
 
-Nàng mỉm cười nói: "Dùng thân xác này để giết ngươi, không ai có thể vạch trần chân diện mục của hắn."
+Ả mỉm cười nói: "Dùng thân xác này để giết ngươi, không ai có thể vạch trần chân diện mục của hắn."
 
 Tâm thần Tần Mục chấn động mạnh, thở ra một hơi đục: "Thông minh thật. Thân xác của vị Thiên Tôn thứ mười một này rời Thiên Đình, vậy chắc chắn không thể giấu được tai mắt các ngươi. Như vậy, các ngươi..."
 

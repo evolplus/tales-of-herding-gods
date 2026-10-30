@@ -166,7 +166,7 @@ Lạc Vô Song hừ một tiếng, thản nhiên nói: "Ta chỉ không muốn n
 
 Tần Mục rùng mình, bất giác nghĩ tới Liên Hoa Hồn.
 
-Khi còn trên thuyền, Liên Hoa Hồn nói với hắn rằng nàng tu luyện dung hợp mười tám loại Đế Tọa công pháp, Vân Sơ Tụ thì nói Liên Hoa Hồn đã tham ngộ ra Đại Thiên Đình công pháp.
+Khi còn trên thuyền, Liên Hoa Hồn nói với hắn rằng ả tu luyện dung hợp mười tám loại Đế Tọa công pháp, Vân Sơ Tụ thì nói Liên Hoa Hồn đã tham ngộ ra Đại Thiên Đình công pháp.
 
 Hơn nữa, thực lực Liên Hoa Hồn quả thật cực mạnh. Tuy khi ấy hắn đang chữa thương cho Lạc Vô Song, nhưng một kích của Liên Hoa Hồn đã có thể chấn nát bốn cánh tay của hắn. Bản lĩnh này thật sự lợi hại!
 

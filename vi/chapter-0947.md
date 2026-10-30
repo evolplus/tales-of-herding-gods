@@ -210,12 +210,12 @@ Giọt thần huyết này quá nguy hiểm. Mà đáng sợ hơn là nếu th�
 
 "Ngươi mới là tiểu tiện nhân! Ngươi vẫn luôn muốn hại ta, tưởng ta không biết sao? Ngươi trốn lâu như vậy, ta đã sớm đoán ra ngươi ẩn trong Thập Thiên Tôn. Hôm nay ta sẽ lột da ngươi, để ngươi lộ chân thân!"
 
-Tần Mục và Lạc Vô Song ngạc nhiên, ngẩng đầu nhìn hai đạo quang ảnh kia. Đột nhiên ánh sáng tách ra, Vân Sơ Tụ và Liên Hoa Hồn một trái một phải đứng trên hai tòa tháp cao, vạt áo tung bay. Hai nàng đều đẹp đến không thể tả.
+Tần Mục và Lạc Vô Song ngạc nhiên, ngẩng đầu nhìn hai đạo quang ảnh kia. Đột nhiên ánh sáng tách ra, Vân Sơ Tụ và Liên Hoa Hồn một trái một phải đứng trên hai tòa tháp cao, vạt áo tung bay. Hai ả đều đẹp đến không thể tả.
 
 "Ngươi dung túng con trai ngươi là Hạo giết con trai ta là Kỳ, tưởng ta không biết sao?"
 
 "Ngươi nuôi tiểu bạch kiểm Ngự Thiên Tôn, dây dưa với Ngự Thiên Tôn, mưu đoạt ngôi Thiên Đế, tưởng ta không biết sao?"
 
-"Tiện nhân!" Hai nàng đồng thanh quát, lập tức lại đánh vào nhau.
+"Tiện nhân!" Hai ả đồng thanh quát, lập tức lại đánh vào nhau.
 
 [Xem chương tiếp theo](chapter-0948.md)

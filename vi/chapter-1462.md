@@ -104,7 +104,7 @@ Sau lưng Hạo Thiên Tôn, bóng người lay động. Thổ Bá nhìn kỹ, t
 
 Hư Thiên Tôn ấy đi về phía ông, thân hình dần thu nhỏ, tuổi tác cũng nhỏ lại, biến thành một bé gái trên đầu có hai sừng nhưng bị hai búi tóc hướng lên che khuất.
 
-"Cha A Sửu." Bé gái kia gọi ông.
+"Phụ thân A Sửu." Bé gái kia gọi ông.
 
 "Con gái..."
 

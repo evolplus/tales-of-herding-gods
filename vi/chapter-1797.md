@@ -50,9 +50,9 @@ Chu Tam Thông ngửa nhìn, chỉ thấy quanh đài sen có sáu tầng cánh 
 
 Trong mọi người, tầm mắt kiến thức của hắn cao nhất, có thể phát hiện ra vài manh mối.
 
-Đạo Quy Khư lấy một lần sinh diệt của vũ trụ làm một đạo phẩm. Người có thành tựu tối cao của đạo Quy Khư là công tử Vô Cực của Di La Cung. Đài sen của nàng có mười sáu đạo phẩm.
+Đạo Quy Khư lấy một lần sinh diệt của vũ trụ làm một đạo phẩm. Người có thành tựu tối cao của đạo Quy Khư là công tử Vô Cực của Di La Cung. Đài sen của ả có mười sáu đạo phẩm.
 
-Tuy nàng không sinh ra ở kỷ thứ nhất của vũ trụ, nhưng đã từng thăm dò kiếp Phá Diệt và kiếp Sáng Sinh của kỷ thứ nhất vũ trụ, vì vậy có thể tu thành.
+Tuy ả không sinh ra ở kỷ thứ nhất của vũ trụ, nhưng đã từng thăm dò kiếp Phá Diệt và kiếp Sáng Sinh của kỷ thứ nhất vũ trụ, vì vậy có thể tu thành.
 
 Tần Mục có thể tu thành đạo phẩm sáu tầng, phần lớn là hấp thu sức mạnh của đại kiếp Phá Diệt.
 

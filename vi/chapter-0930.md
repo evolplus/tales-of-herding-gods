@@ -8,7 +8,7 @@ Tần Mục dẫn Vân Sơ Tụ đi về phía đám Vân Tiệm Ly và Tề C�
 
 Vân Sơ Tụ tò mò nhìn sau gáy hắn, phát hiện điều gì đó, kinh ngạc nói: "Sau gáy ngài còn đổ mồ hôi nữa! Lạ thật!"
 
-Nàng đưa bàn tay nhỏ mềm mại ấm áp sờ trán Tần Mục, càng kinh ngạc: "Trán vẫn khô ráo. Thiên Tôn, ngài có bệnh!"
+Ả đưa bàn tay nhỏ mềm mại ấm áp sờ trán Tần Mục, càng kinh ngạc: "Trán vẫn khô ráo. Thiên Tôn, ngài có bệnh!"
 
 "Cô mới có bệnh!"
 
@@ -26,7 +26,7 @@ Yên Nhi cũng tò mò nhìn sau gáy hắn, thầm nghĩ: "Công tử lúc trư
 
 "Nhưng vẫn còn một điểm đáng ngờ. Ta chiêu hồn cho Đế Hậu nương nương, phát hiện Đế Hậu chưa chết. Hơn nữa càng kỳ lạ là Nguyên Mẫu phu nhân trong quan tài thủy tinh từng xác biến một lần, bị đại sư huynh Ngụy Tùy Phong trấn áp."
 
-Ánh mắt Tần Mục lóe lên, trong lòng sinh nghi: "Vậy Vân Sơ Tụ này rốt cuộc là ai? Nếu nàng là Đế Hậu, tính cách này cũng quá phân liệt rồi. Hay nói, hiện tại mới là bản tính của nàng?"
+Ánh mắt Tần Mục lóe lên, trong lòng sinh nghi: "Vậy Vân Sơ Tụ này rốt cuộc là ai? Nếu ả là Đế Hậu, tính cách này cũng quá phân liệt rồi. Hay nói, hiện tại mới là bản tính của ả?"
 
 Đám Vân Tiệm Ly, Tề Cửu Nghi đều đề phòng Vân Sơ Tụ vạn phần. Dù vẫn nho nhã lễ độ như trước, nhưng không dám quá thân mật. Chỉ có Tần Mục vẫn thản nhiên tự nhiên, quan hệ với Vân Sơ Tụ thậm chí còn thân mật hơn trước một chút.
 

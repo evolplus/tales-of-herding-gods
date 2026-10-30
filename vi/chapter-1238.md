@@ -1,8 +1,8 @@
 # Chương 1238: Thái Đế vô song
 
-Hư Thiên Tôn mặc một thân áo đen. Trường bào đen như thác nước đen, tới ngang eo thì thu lại, rồi xòe ra như váy, trải xuống mặt đất. Hai sừng trên đầu nàng vươn cao, như sông dung nham chín khúc mười tám ngoặt, rất bắt mắt.
+Hư Thiên Tôn mặc một thân áo đen. Trường bào đen như thác nước đen, tới ngang eo thì thu lại, rồi xòe ra như váy, trải xuống mặt đất. Hai sừng trên đầu ả vươn cao, như sông dung nham chín khúc mười tám ngoặt, rất bắt mắt.
 
-Ánh mắt nàng lưu chuyển, rơi trên người Mạnh Vân Quy, khẽ nói: “Vì sao nói vậy?”
+Ánh mắt ả lưu chuyển, rơi trên người Mạnh Vân Quy, khẽ nói: “Vì sao nói vậy?”
 
 Mạnh Vân Quy đưa tay nhẹ nhàng quét trong không trung. Từng bức chân dung Tần Mục bay lên, lơ lửng trước mặt Hư Thiên Tôn.
 
@@ -50,7 +50,7 @@ Thân thể Mạnh Vân Quy cúi thấp hơn, hạ giọng nói: “Liên hôn v
 
 Hư Thiên Tôn khẽ gật đầu.
 
-Mạnh Vân Quy lặng lẽ nghiêng đầu, nâng mí mắt, quan sát từng cử động của nàng. Thấy nàng gật đầu, hắn mới nói tiếp: “Vậy xin hỏi Thiên Tôn, nếu ngài liên hôn với Hỏa Thiên Tôn, Hạo Thiên Tôn sẽ coi trọng ngài hơn, hay coi trọng Hỏa Thiên Tôn hơn?”
+Mạnh Vân Quy lặng lẽ nghiêng đầu, nâng mí mắt, quan sát từng cử động của ả. Thấy ả gật đầu, hắn mới nói tiếp: “Vậy xin hỏi Thiên Tôn, nếu ngài liên hôn với Hỏa Thiên Tôn, Hạo Thiên Tôn sẽ coi trọng ngài hơn, hay coi trọng Hỏa Thiên Tôn hơn?”
 
 Hư Thiên Tôn lộ ra nụ cười: “Nói tiếp đi.”
 
@@ -72,7 +72,7 @@ Thân thể đang cúi của Mạnh Vân Quy không chống nổi, phịch một
 
 Hư Thiên Tôn nhạt giọng nói: “Trước mặt ta không cần cẩn thận như vậy. Ngươi tính đi tính lại, lại không tính tới Thái Đế sống lại sẽ mang đến biến hóa gì. Thái Đế mới là mối họa trong tim gan. Lần này ông ta sống lại, chắc chắn sẽ không chịu yên phận.”
 
-Thân hình nàng dần dần ẩn đi, giọng nói truyền tới: “Giết hay không giết Mục Thiên Tôn, trước cứ gác sang một bên. Thái Đế mới là trọng yếu nhất hiện nay. Ông ta vẫn chưa rời khỏi Thái Hư, còn đang ẩn nấp ở đây.”
+Thân hình ả dần dần ẩn đi, giọng nói truyền tới: “Giết hay không giết Mục Thiên Tôn, trước cứ gác sang một bên. Thái Đế mới là trọng yếu nhất hiện nay. Ông ta vẫn chưa rời khỏi Thái Hư, còn đang ẩn nấp ở đây.”
 
 Mạnh Vân Quy cẩn thận bò dậy, thấp giọng nói: “Mục Thiên Tôn tới đây là để xem bản lĩnh của ta. Không biết hắn đã nhìn ra điều gì...”
 

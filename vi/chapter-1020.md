@@ -24,9 +24,9 @@ Tần Mục nói đến đây, cười ha hả, nghênh về phía Vân Sơ Tụ
 
 Vân Sơ Tụ lại hoàn toàn không nhắc đến chuyện này, kéo hắn nhanh chóng kể chuyện năm cô gái kết bái, cười nói: "Nếu thiếp chết, bốn vị tỷ tỷ phải chôn cùng người ta đấy, chàng nói có đúng không Tần lang?"
 
-Khóe mắt Tần Mục giật giật. Vân Sơ Tụ đây là đang uy hiếp hắn. Nếu mình lại ra tay với nàng, nàng sẽ giết Linh Dục Tú, Công Tôn Yến và những người khác.
+Khóe mắt Tần Mục giật giật. Vân Sơ Tụ đây là đang uy hiếp hắn. Nếu mình lại ra tay với ả, ả sẽ giết Linh Dục Tú, Công Tôn Yến và những người khác.
 
-Đối với nàng, nàng chẳng qua chỉ tổn thất một thân thể tạo hóa mà sinh, không đau không ngứa. Nhưng đối với Tần Mục, tổn thất ấy không hề tầm thường.
+Đối với ả, ả chẳng qua chỉ tổn thất một thân thể tạo hóa mà sinh, không đau không ngứa. Nhưng đối với Tần Mục, tổn thất ấy không hề tầm thường.
 
 Linh Dục Tú là người kế thừa biến pháp của Diên Phong Đế, cũng là trụ cột hiện nay của Diên Khang. Nàng không giống Diên Phong Đế, nàng càng có thể cầm lên được, buông xuống được.
 
@@ -78,7 +78,7 @@ Tần Mục lộ nụ cười. Mắt dọc của hắn vẫn còn ở mi tâm, c
 
 Mèo trắng lẻn ra khỏi phòng Tần Mục, liếc nhìn bốn phía. Xung quanh không có ai, nó liền nhảy lên, đáp xuống đầu tường, dọc theo đầu tường liên tục nhảy vọt, chạy nhanh về phía ngoài Kinh thành.
 
-Cùng lúc đó, Vân Sơ Tụ buộc hai bím tóc đuôi ngựa lén lút ra khỏi cửa, đi theo sau mèo trắng. Mèo trắng như có cảm giác, đột ngột quay đầu, nhưng Vân Sơ Tụ đã bị một vực sâu nuốt mất, mèo trắng không phát hiện ra nàng.
+Cùng lúc đó, Vân Sơ Tụ buộc hai bím tóc đuôi ngựa lén lút ra khỏi cửa, đi theo sau mèo trắng. Mèo trắng như có cảm giác, đột ngột quay đầu, nhưng Vân Sơ Tụ đã bị một vực sâu nuốt mất, mèo trắng không phát hiện ra ả.
 
 Vân Sơ Tụ lặng lẽ đi theo con mèo trắng này ra khỏi Kinh thành Diên Khang, nhưng dường như lại nhận ra phía sau có người, bỗng quay đầu, lại không thấy ai đi theo mình.
 

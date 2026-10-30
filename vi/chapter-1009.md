@@ -6,7 +6,7 @@ Dũng Giang hùng tráng, mặt sông rộng hoàn toàn có thể sánh với b
 
 Lúc này, quần sơn hai bờ rung chuyển như sóng. Những thần sơn cao lớn nguy nga ấy thế mà giống như đầu sóng, có thể tưởng tượng vật khổng lồ dưới lòng đất đáng sợ đến mức nào!
 
-Sắc mặt Vân Sơ Tụ khẽ biến. Nàng lặng lẽ trốn sau lưng Tần Mục, lẩm bẩm: "Địa Mẫu Nguyên Quân... Không đúng, chẳng phải bà ta đã chết rồi sao?"
+Sắc mặt Vân Sơ Tụ khẽ biến. Ả lặng lẽ trốn sau lưng Tần Mục, lẩm bẩm: "Địa Mẫu Nguyên Quân... Không đúng, chẳng phải bà ta đã chết rồi sao?"
 
 Sắc mặt Thúc Quân cũng hơi đổi, nhìn núi sông hai bờ Dũng Giang không ngừng nhấp nhô.
 
@@ -162,13 +162,13 @@ Tần Mục vội nói: "Thật sự không liên quan tới ta. Nếu ta biết
 
 Tần Mục cười nói: "Địa Mẫu, ta bảo ngươi giúp ta chặn Thái Đế, ngươi lại không làm được, ngược lại còn muốn giận chó đánh mèo với ta, đây là đạo lý gì? Ngươi khoan đi đã, ta còn một chuyện muốn ngươi làm."
 
-Hắn vươn tay chộp một cái, bắt Vân Sơ Tụ từ trong bảo liễn ra, giơ thiếu nữ này lên cao, hỏi: "Địa Mẫu, ngươi nhận ra nàng không?"
+Hắn vươn tay chộp một cái, bắt Vân Sơ Tụ từ trong bảo liễn ra, giơ thiếu nữ này lên cao, hỏi: "Địa Mẫu, ngươi nhận ra ả không?"
 
 "Tuyệt Vô Trần!"
 
 Nước sông cuộn trào. Một đóa hoa lớn từ từ dâng lên, cao hơn bảo liễn. Đóa hoa chậm rãi nở ra, trong hoa lộ một con mắt, lăn một cái rồi nhìn chằm chằm Vân Sơ Tụ, cười lạnh nói: "Đế hậu, chúng ta đã lâu không gặp!"
 
-Sắc mặt Vân Sơ Tụ trắng bệch, hai chân đạp loạn, nhưng không thể thoát khỏi tay Tần Mục. Nàng quay đầu giận dữ trừng Tần Mục một cái, rồi lại quay đầu, ngọt ngào cười nói: "Địa Mẫu Nguyên Quân, bản cung thấy ngươi rơi vào kết cục hiện nay, thật khiến người ta bùi ngùi không thôi. Địa Mẫu Nguyên Quân năm xưa hùng bá Nguyên giới, một mình đối kháng Thiên Đình ba mươi vạn năm, nay lại biến thành chó mất chủ, ngay cả Tần Thiên Tôn cũng có thể dễ dàng nắm thóp ngươi."
+Sắc mặt Vân Sơ Tụ trắng bệch, hai chân đạp loạn, nhưng không thể thoát khỏi tay Tần Mục. Ả quay đầu giận dữ trừng Tần Mục một cái, rồi lại quay đầu, ngọt ngào cười nói: "Địa Mẫu Nguyên Quân, bản cung thấy ngươi rơi vào kết cục hiện nay, thật khiến người ta bùi ngùi không thôi. Địa Mẫu Nguyên Quân năm xưa hùng bá Nguyên giới, một mình đối kháng Thiên Đình ba mươi vạn năm, nay lại biến thành chó mất chủ, ngay cả Tần Thiên Tôn cũng có thể dễ dàng nắm thóp ngươi."
 
 Tần Mục cười nói: "Địa Mẫu quả nhiên kiến thức rộng rãi. Chỉ là ngươi đoán sai rồi, Tuyệt Vô Trần không phải Đế hậu nương nương, mà là Nguyên Mẫu phu nhân."
 
@@ -176,9 +176,9 @@ Nước sông chấn động. Hiển nhiên Địa Mẫu Nguyên Quân nghe đư
 
 Từ trước tới nay, bà vẫn luôn tưởng Tuyệt Vô Trần là Đế hậu, không ngờ lại là Nguyên Mẫu phu nhân.
 
-"Ngươi không xử lý được Thái Đế, vậy giúp ta xử lý nàng."
+"Ngươi không xử lý được Thái Đế, vậy giúp ta xử lý ả."
 
-Tần Mục cười nói: "Thái Đế rất mạnh, còn Tuyệt Vô Trần này chỉ là một thần thông giả cảnh giới Thần Kiều nho nhỏ. Xử lý nàng đối với ngươi hẳn không khó chứ?"
+Tần Mục cười nói: "Thái Đế rất mạnh, còn Tuyệt Vô Trần này chỉ là một thần thông giả cảnh giới Thần Kiều nho nhỏ. Xử lý ả đối với ngươi hẳn không khó chứ?"
 
 Một sợi rễ bay tới, quấn lấy Vân Sơ Tụ. Trong hoa truyền ra tiếng cười của Địa Mẫu: "Xử lý Nguyên Mẫu, ta đương nhiên vui lòng. Nguyên Mẫu, món nợ cũ giữa chúng ta..."
 

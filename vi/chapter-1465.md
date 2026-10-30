@@ -6,7 +6,7 @@ Thế nhưng Hư Thiên Tôn lại không ở trong Thiên Đình, mà vẫn đ�
 
 Đợi đến khi trận Huyền Đô bụi bặm lắng xuống, ánh mắt Hư Thiên Tôn mới dời đi, trở về Thiên Đình.
 
-Nàng còn chưa tới Thiên Đình đã nghe trong Thiên Đình ồn ào náo động. Chỉ thấy vô số thiên binh thiên tướng trấn giữ Thiên Đình đang tìm kiếm tra xét khắp nơi. Hư Thiên Tôn tiến lên hỏi, thần quan vội bẩm báo: "Đại sự không ổn, Thiên Đình bị mất trộm, có kẻ trộm vào!"
+Ả còn chưa tới Thiên Đình đã nghe trong Thiên Đình ồn ào náo động. Chỉ thấy vô số thiên binh thiên tướng trấn giữ Thiên Đình đang tìm kiếm tra xét khắp nơi. Hư Thiên Tôn tiến lên hỏi, thần quan vội bẩm báo: "Đại sự không ổn, Thiên Đình bị mất trộm, có kẻ trộm vào!"
 
 Hư Thiên Tôn vội hỏi: "Mất thứ gì?"
 
@@ -18,25 +18,25 @@ Thần quan kia nói tiếp: "...Trộm mất một tòa thần điện! Vừa r
 
 Hư Thiên Tôn nghe không phải Tần Mục tới trộm vỏ trứng Thiên Đế mới thở phào một hơi, nhưng đột nhiên nghe Phi Hương Điện bị trộm, trong lòng lại căng thẳng, thầm nghĩ: "Phi Hương Điện bị trộm! Nghe nói tòa Phi Hương Điện này là nơi trấn áp hồn phách của rất nhiều thần ma ghê gớm. Hạo Thiên Tôn và bọn họ giữ kín như bưng về tòa đại điện này, thứ bị trấn áp bên trong cũng chưa từng nói với ta, chỉ để ta giúp thêm phong ấn. Hỏa Thiên Tôn còn dùng tòa đại điện này thu hồn phách Nam Đế, khiến Mục Thiên Tôn không thể phục sinh Nam Đế, phá vỡ danh tiếng Vạn Kiếp Bất Diệt đại pháp sư của hắn. Chẳng lẽ là Mục Thiên Tôn trộm đi?"
 
-Nàng lại hơi nghi ngờ. Tần Mục tham dự trận Huyền Đô, dù tốc độ nhanh đến đâu cũng không thể nhanh như vậy đã chạy tới Thiên Đình trộm bảo vật.
+Ả lại hơi nghi ngờ. Tần Mục tham dự trận Huyền Đô, dù tốc độ nhanh đến đâu cũng không thể nhanh như vậy đã chạy tới Thiên Đình trộm bảo vật.
 
 Huống chi nếu Tần Mục tới trộm bảo vật, vậy nhất định sẽ đến tế đàn nơi Thiên Đế Thái Sơ sinh ra để trộm bảo vật, trộm vỏ trứng Thái Sơ.
 
 Còn kẻ trộm này bỏ vỏ trứng Thiên Đế không lấy, lại trộm mất Phi Hương Điện, thật sự có phần cổ quái.
 
-Nàng không biết giữa Huyền Đô và Nguyên giới còn có con đường tắt Thiên Âm giới này. Nếu thông qua Thiên Âm giới, có thể từ Huyền Đô nhanh chóng trở về Nguyên giới, lại từ Cầu Linh Năng Đối Chuyển của Nguyên giới xuất phát, liền có thể tới Thiên Đình Tổ Đình trong thời gian ngắn nhất.
+Ả không biết giữa Huyền Đô và Nguyên giới còn có con đường tắt Thiên Âm giới này. Nếu thông qua Thiên Âm giới, có thể từ Huyền Đô nhanh chóng trở về Nguyên giới, lại từ Cầu Linh Năng Đối Chuyển của Nguyên giới xuất phát, liền có thể tới Thiên Đình Tổ Đình trong thời gian ngắn nhất.
 
-Phi Hương Điện không liên quan nhiều đến nàng, Hư Thiên Tôn cũng không quá căng thẳng. Nàng ra lệnh cho Thần Bộ Doanh tra xét nghiêm ngặt, nói: "Phi Hương Điện cực kỳ khổng lồ, đột nhiên biến mất liền bị các ngươi phát hiện. Vậy hắn chắc chắn không kịp rời đi, nhất định mượn biến hóa chi đạo ẩn trong Thiên Đình. Chỉ cần chưa rời Thiên Đình thì không lo hắn trốn thoát. Ta có Chiêu Hồn Kính, mặc hắn biến hóa thế nào, dùng gương của ta chiếu một cái là có thể khiến hắn hiện nguyên hình!"
+Phi Hương Điện không liên quan nhiều đến ả, Hư Thiên Tôn cũng không quá căng thẳng. Ả ra lệnh cho Thần Bộ Doanh tra xét nghiêm ngặt, nói: "Phi Hương Điện cực kỳ khổng lồ, đột nhiên biến mất liền bị các ngươi phát hiện. Vậy hắn chắc chắn không kịp rời đi, nhất định mượn biến hóa chi đạo ẩn trong Thiên Đình. Chỉ cần chưa rời Thiên Đình thì không lo hắn trốn thoát. Ta có Chiêu Hồn Kính, mặc hắn biến hóa thế nào, dùng gương của ta chiếu một cái là có thể khiến hắn hiện nguyên hình!"
 
 Thần Bộ Doanh nhận Chiêu Hồn Kính, tìm kiếm tra xét bốn phía.
 
 Hư Thiên Tôn tọa trấn, thầm nghĩ: "Bọn họ ở lại Huyền Đô chia lợi ích, lại không có phần của ta... Đúng rồi, Thiên Đình có trộm, lấy mất Phi Hương Điện, vậy sao ta không làm trộm một lần?"
 
-Nàng như bị quỷ xui thần khiến, lặng lẽ đi về hậu cung, chạy thẳng tới tòa tế đàn nơi Thiên Đế sinh ra.
+Ả như bị quỷ xui thần khiến, lặng lẽ đi về hậu cung, chạy thẳng tới tòa tế đàn nơi Thiên Đế sinh ra.
 
 "Sau khi nửa vỏ trứng Thái Sơ này rơi vào tay ta, ta có thể đổ rằng bị kẻ trộm Phi Hương Điện trộm đi. Bảo vật bậc này tới tay, cũng chẳng kém lợi ích Huyền Đô!"
 
-Nàng đi trộm nửa vỏ trứng Thái Sơ còn lại. Đợi đến khi tới tế đàn nơi Thiên Đế sinh ra, Hư Thiên Tôn nhìn về nơi đó, đột nhiên tay chân lạnh buốt. Chỉ thấy trên tòa tế đàn kia cũng trống không!
+Ả đi trộm nửa vỏ trứng Thái Sơ còn lại. Đợi đến khi tới tế đàn nơi Thiên Đế sinh ra, Hư Thiên Tôn nhìn về nơi đó, đột nhiên tay chân lạnh buốt. Chỉ thấy trên tòa tế đàn kia cũng trống không!
 
 Nửa vỏ trứng Thái Sơ còn lại cũng không cánh mà bay!
 
@@ -54,9 +54,9 @@ Trong Thiên Đình có không ít thần ma là dị loại thành thần, yêu
 
 Mà trong hậu cung Thiên Đế có rất nhiều phi tử, cung nữ xinh đẹp. Có người đang tắm rửa, có người xuân cung cô quạnh lén lút gặp thiên thần làm chuyện cẩu thả. Bị ánh gương chiếu một cái, lập tức gà bay chó sủa, loạn thành một đoàn.
 
-Trán Hư Thiên Tôn toát mồ hôi lạnh. Thiên Đình ngày thường thần thánh muôn phương, trang nghiêm vô cùng, nhưng bị nàng chiếu như vậy, đủ loại mặt tối đều lộ ra, khó mà thu dọn.
+Trán Hư Thiên Tôn toát mồ hôi lạnh. Thiên Đình ngày thường thần thánh muôn phương, trang nghiêm vô cùng, nhưng bị ả chiếu như vậy, đủ loại mặt tối đều lộ ra, khó mà thu dọn.
 
-Nơi này loạn tượng quá nhiều, dù là nàng cũng nhất thời không thể phân biệt ai mới là kẻ trộm vỏ trứng Thiên Đế và Phi Hương Điện.
+Nơi này loạn tượng quá nhiều, dù là ả cũng nhất thời không thể phân biệt ai mới là kẻ trộm vỏ trứng Thiên Đế và Phi Hương Điện.
 
 Mà lúc này, một thiếu niên đã nhảy vào Thiên Hà, hóa thành một con đại côn ung dung lặn xuống nước, bơi về phía ngoài Thiên Đình.
 

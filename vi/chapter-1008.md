@@ -16,9 +16,9 @@ Thiên đồ mới hẳn đã được chế tạo xong. Thiên đồ cũ đã g
 
 Vân Sơ Tụ cũng ngẩng đầu nhìn, kinh ngạc nói: "Ngươi thế mà không biết? Nguyên giới hiện nay vốn phải rơi vào tay Hạo Thiên Tôn, không ngờ Hạo Thiên Tôn vẫn hơi quá nóng vội, đến mức bị Hiểu Thiên Tôn chiếm tiện nghi."
 
-Nàng ai oán thở dài: "Hiểu Thiên Tôn vẫn là lão mưu thâm toán. Hắn lại nhân lúc Địa Mẫu Nguyên Quân phục sinh, cùng Hạo Thiên Tôn lưỡng bại câu thương mà ép Hạo Thiên Tôn đi, độc chiếm Nguyên giới. Nguyên giới này ghê gớm lắm, vốn gọi là Nguyên Đô, có rất nhiều thiên tài địa bảo. Năm xưa khi xây dựng Thiên Đình, Thiên Đế đã hạ lệnh khai thác bảo vật của Nguyên Đô để xây Thiên Đình..."
+Ả ai oán thở dài: "Hiểu Thiên Tôn vẫn là lão mưu thâm toán. Hắn lại nhân lúc Địa Mẫu Nguyên Quân phục sinh, cùng Hạo Thiên Tôn lưỡng bại câu thương mà ép Hạo Thiên Tôn đi, độc chiếm Nguyên giới. Nguyên giới này ghê gớm lắm, vốn gọi là Nguyên Đô, có rất nhiều thiên tài địa bảo. Năm xưa khi xây dựng Thiên Đình, Thiên Đế đã hạ lệnh khai thác bảo vật của Nguyên Đô để xây Thiên Đình..."
 
-Trong lòng Tần Mục chấn động mạnh, gần như không nghe rõ những lời phía sau của nàng.
+Trong lòng Tần Mục chấn động mạnh, gần như không nghe rõ những lời phía sau của ả.
 
 Hiểu Thiên Tôn lấy được Nguyên giới, vậy hắn chính là một hồn của Cổ Thần Thiên Đế trong Thiên Đình!
 

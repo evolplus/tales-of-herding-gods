@@ -66,7 +66,7 @@ Còn ma quái và Ma tộc ở U Đô là do đủ loại cảm xúc tiêu cực
 
 “Mục Thiên Tôn!” Đột nhiên có người gọi hắn lại.
 
-Tần Mục nhìn theo tiếng gọi, chỉ thấy Hư Thiên Tôn đứng trên mặt nước Thiên Hà. Dưới chân nàng là dòng sông đen ngòm, vô số ma quái ùa tới, trào động sau lưng nàng, số lượng càng lúc càng nhiều, hợp thành đại quân Ma tộc che trời rợp đất.
+Tần Mục nhìn theo tiếng gọi, chỉ thấy Hư Thiên Tôn đứng trên mặt nước Thiên Hà. Dưới chân ả là dòng sông đen ngòm, vô số ma quái ùa tới, trào động sau lưng ả, số lượng càng lúc càng nhiều, hợp thành đại quân Ma tộc che trời rợp đất.
 
 Tần Mục dừng bước, ánh mắt rơi lên mặt Hư Thiên Tôn, thản nhiên nói: “Hư Thiên Tôn có gì chỉ giáo?”
 
@@ -106,7 +106,7 @@ Tần Mục cười ha hả. Đột nhiên thân hình hắn dịch ngang, kho�
 
 Khí thế của hắn bộc phát, va chạm với khí thế của Hư Thiên Tôn. Chỉ nghe một tiếng nổ ầm vang, trường bào màu đen của Hư Thiên Tôn phồng lên, tung bay bốn phương tám hướng!
 
-Vầng sáng đen tối sau đầu nàng điên cuồng xoay tròn. Khí tức của vô số ma quái, Ma Thần U Đô sau lưng nàng liên kết với nàng, nhưng ức vạn ma quái, Ma Thần kia cũng bị chấn bay lên giữa không trung!
+Vầng sáng đen tối sau đầu ả điên cuồng xoay tròn. Khí tức của vô số ma quái, Ma Thần U Đô sau lưng ả liên kết với ả, nhưng ức vạn ma quái, Ma Thần kia cũng bị chấn bay lên giữa không trung!
 
 Ầm!
 
@@ -116,13 +116,13 @@ Tần Mục ngẩng đầu, nhìn gương mặt Thiên Công một cái, cười
 
 Thiên Công gầm rống. Vô tận ánh sao từ trên cao đè xuống, nhưng còn chưa tới đỉnh đầu Tần Mục đã bị Thế Giới Thụ hiện ra sau lưng hắn chặn lại, không thể rơi xuống.
 
-Tần Mục thu liễm khí tức, đi ngang qua bên cạnh Hư Thiên Tôn, khẽ nói: “Hiền chất nữ, dù thế nào, Thổ Bá cũng là cha nàng. Nàng muốn giống Tổ Thần Vương, làm một kẻ giết cha sao?”
+Tần Mục thu liễm khí tức, đi ngang qua bên cạnh Hư Thiên Tôn, khẽ nói: “Hiền chất nữ, dù thế nào, Thổ Bá cũng là phụ thân nàng. Nàng muốn giống Tổ Thần Vương, làm một kẻ giết phụ thân sao?”
 
 Hư Thiên Tôn lộ nụ cười: “Mục Thiên Tôn, ngươi không có bất kỳ phần thắng nào!”
 
 Tần Mục cười ha hả, thân hình đi xa. Giọng hắn truyền tới từ xa: “Hạo Thiên Tôn, Thiên Đế Thái Sơ chẳng qua là chó của Tam công tử, Tứ công tử. Còn ta là Thất công tử. Đấu với ta, các ngươi còn kém xa!”
 
-Hư Thiên Tôn nhíu mày. Trên bầu trời, Tổ Thần Vương điều khiển nhục thân Thiên Công nhìn về phía nàng, lộ vẻ hỏi ý.
+Hư Thiên Tôn nhíu mày. Trên bầu trời, Tổ Thần Vương điều khiển nhục thân Thiên Công nhìn về phía ả, lộ vẻ hỏi ý.
 
 Hư Thiên Tôn lắc đầu nói: “Không nắm chắc giữ hắn lại. Hạo Thiên Tôn và Thái Sơ bệ hạ không ở đây, chẳng đáng liều mạng với hắn. U Đô quan trọng hơn.”
 

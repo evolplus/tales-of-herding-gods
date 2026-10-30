@@ -70,25 +70,25 @@ Trên boong Độ Thế Kim Thuyền, Hư Thiên Tôn điều khiển Thần kh�
 
 Sức mạnh của Thiên Đình quá lớn, ép vị thần khí này cũng không thể chống đỡ quá lâu, nhưng đối với Hư Thiên Tôn thế đã đủ rồi.
 
-Trong khoảng thời gian ngắn ngủi này, nàng đủ sức hạ sát Tần Phượng Thanh và Thiên Công chuyển thế, đoạt quyền khống chế U Đô!
+Trong khoảng thời gian ngắn ngủi này, ả đủ sức hạ sát Tần Phượng Thanh và Thiên Công chuyển thế, đoạt quyền khống chế U Đô!
 
 Lúc này pháp lực của Tần Phượng Thanh tăng vọt theo đường thẳng, đã có thể xem là tiểu Thiên Tôn. Pháp lực gần như ngang với Thiên Tôn cảnh giới Đế Tọa tu thành mười tám tòa Thiên Cung.
 
-Nhưng Tần Phượng Thanh còn quá non nớt, bất kể thủ đoạn chiến đấu hay kinh nghiệm giao chiến đều thua nàng rất xa.
+Nhưng Tần Phượng Thanh còn quá non nớt, bất kể thủ đoạn chiến đấu hay kinh nghiệm giao chiến đều thua ả rất xa.
 
-Người duy nhất tạo thành uy hiếp với nàng là Thiên Công, nhưng uy hiếp của Thiên Công đến từ uy năng năm mươi chí bảo Thiên Đạo. Muốn chống lại Thần khí Ngự Thiên Tôn có Thiên Đình hoàn mỹ thì vẫn còn kém vài phần.
+Người duy nhất tạo thành uy hiếp với ả là Thiên Công, nhưng uy hiếp của Thiên Công đến từ uy năng năm mươi chí bảo Thiên Đạo. Muốn chống lại Thần khí Ngự Thiên Tôn có Thiên Đình hoàn mỹ thì vẫn còn kém vài phần.
 
 Hư Thiên Tôn đang định hạ sát hai người, Kim Thuyền đột nhiên đổi hướng, dần dần tăng tốc. Hư Thiên Tôn vội nhìn lại, chỉ thấy chiếc Kim Thuyền này đang chạy về phía Tần Mục.
 
 Đồng thời, Tần Mục cũng đang lao tới Kim Thuyền.
 
-Hư Thiên Tôn không kịp nghĩ ngợi, vội nhảy khỏi Kim Thuyền. Ánh sáng Kim Thuyền rải xuống, định giữ nàng lại trên thuyền. Thần khí Ngự Thiên Tôn tung một quyền, đánh đứt kim quang. Hư Thiên Tôn đứng trên vai Thần khí Ngự Thiên Tôn, nhân cơ hội thoát thân.
+Hư Thiên Tôn không kịp nghĩ ngợi, vội nhảy khỏi Kim Thuyền. Ánh sáng Kim Thuyền rải xuống, định giữ ả lại trên thuyền. Thần khí Ngự Thiên Tôn tung một quyền, đánh đứt kim quang. Hư Thiên Tôn đứng trên vai Thần khí Ngự Thiên Tôn, nhân cơ hội thoát thân.
 
 Tần Mục rơi xuống Kim Thuyền, ánh mắt trống rỗng lướt khỏi khuôn mặt Hư Thiên Tôn.
 
 Trong lòng Hư Thiên Tôn không khỏi sinh ra một tia sợ hãi, không dám tiến lên.
 
-Đột nhiên, Hạo Thiên Tôn xuất hiện bên cạnh nàng, đưa tay kéo nàng ra.
+Đột nhiên, Hạo Thiên Tôn xuất hiện bên cạnh ả, đưa tay kéo ả ra.
 
 Thân hình Lăng Thiên Tôn hiện ra, một chỉ điểm vào khoảng không.
 

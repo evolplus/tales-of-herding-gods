@@ -1,6 +1,6 @@
 # Chương 1806: Đạo Cảnh ba mươi sáu tầng trời
 
-Nàng quả thật bị thương cực nặng. Ấn kết ấn dây đỏ của Chủ nhân Di La Cung đã bị nàng và Vô Nhai phá gần hết, nhưng phần sức mạnh còn sót lại bộc phát vẫn khiến nàng trọng thương!
+Ả quả thật bị thương cực nặng. Ấn kết ấn dây đỏ của Chủ nhân Di La Cung đã bị ả và Vô Nhai phá gần hết, nhưng phần sức mạnh còn sót lại bộc phát vẫn khiến ả trọng thương!
 
 Mắt dọc giữa mi tâm Tần Mục nhìn thấy rõ mồn một mọi thứ xảy ra dưới đáy Hỗn Độn Hải.
 
@@ -8,9 +8,9 @@ Công tử Vô Cực bị uy năng còn sót lại của chiêu ấn kết ấn 
 
 Vô Cực dùng mọi thủ đoạn chống cự, nhưng đều vô dụng.
 
-Một đòn của Chủ nhân Di La Cung gần như xóa sạch cả con người nàng. Biến hóa của ấn kết ấn dây đỏ không chỉ đơn giản là phong ấn. Biến hóa phù văn trong đó tinh diệu vô cùng, mỗi phù văn trong kết ấn gần như đều in dấu lên mỗi phù văn trong nguyên khí của Vô Cực, gắt gao áp chế tu vi của nàng.
+Một đòn của Chủ nhân Di La Cung gần như xóa sạch cả con người ả. Biến hóa của ấn kết ấn dây đỏ không chỉ đơn giản là phong ấn. Biến hóa phù văn trong đó tinh diệu vô cùng, mỗi phù văn trong kết ấn gần như đều in dấu lên mỗi phù văn trong nguyên khí của Vô Cực, gắt gao áp chế tu vi của ả.
 
-Nếu không phải ấn kết ấn dây đỏ đã bị mài mòn quá nửa, một ấn này của Chủ nhân Di La Cung có thể hóa sạch tu vi của Vô Cực, trực tiếp đánh chết nàng!
+Nếu không phải ấn kết ấn dây đỏ đã bị mài mòn quá nửa, một ấn này của Chủ nhân Di La Cung có thể hóa sạch tu vi của Vô Cực, trực tiếp đánh chết ả!
 
 Chính vì nhìn thấy cảnh này, Tần Mục mới dám chắc chắn như vậy. Nếu không, hắn nhất định sẽ ném Tam công tử, Tứ công tử ở lại đây, lập tức xoay người bỏ đi.
 
@@ -50,11 +50,11 @@ Lúc này, ai động trước đều có khả năng bị những người khá
 
 Công tử Vô Cực áp chế thương thế, nhìn quanh một vòng, cười lạnh nói: "Sư phụ không giết được ta, các ngươi càng đừng mơ. Các ngươi cho rằng sư phụ đã trọng thương ta, lại thêm hiến tế lão phế vật Vô Nhai này là có thể trừ khử ta, đúng là mơ mộng hão huyền, quá xem thường ta rồi."
 
-Dưới chân nàng, liên đài vỡ nát lại xuất hiện, không ngừng xoay tròn, tự tái tạo. Trên mặt biển, từng phiến lá sen tan nát cũng lại khôi phục.
+Dưới chân ả, liên đài vỡ nát lại xuất hiện, không ngừng xoay tròn, tự tái tạo. Trên mặt biển, từng phiến lá sen tan nát cũng lại khôi phục.
 
 Đạo thương trong tay công tử Lăng Tiêu dùng để trấn áp Hỗn Độn Hải không ngừng rung động, có phần trấn áp không nổi Hỗn Độn Hải, sắc mặt không khỏi nghiêm trọng.
 
-Dù công tử Vô Cực bị thương tới mức này, nàng vẫn có thực lực khiến hắn chỉ có thể ngước nhìn!
+Dù công tử Vô Cực bị thương tới mức này, ả vẫn có thực lực khiến hắn chỉ có thể ngước nhìn!
 
 Công tử Tử Tiêu vung tay vỗ lên cổ cầm của mình. Một đầu cổ cầm tách một tiếng mở ra, lộ ra một chuôi kiếm. Công tử Tử Tiêu nắm lấy chuôi kiếm, gân xanh trên mu bàn tay nổi lên.
 
@@ -158,7 +158,7 @@ Tần Mục thúc giục Bất Dịch thần thông tới cứu, vừa mới c�
 
 Đây là kiếp Sáng Sinh. Đối mặt loại thần thông đại kiếp này, ngay cả Tần Mục cũng khó lòng chống cự!
 
-Vô Cực đang định thúc giục thần thông kiếp Phá Diệt, một lần diệt luôn Tần Mục, thì công tử Tử Tiêu mang thương thế đánh tới, kiếm quang đâm vào hậu tâm nàng!
+Vô Cực đang định thúc giục thần thông kiếp Phá Diệt, một lần diệt luôn Tần Mục, thì công tử Tử Tiêu mang thương thế đánh tới, kiếm quang đâm vào hậu tâm ả!
 
 Vô Cực vung tay áo vỗ một cái. Thân xác công tử Tử Tiêu vặn xoắn, bị nén lại, thu nhỏ thành một điểm li ti, sau đó nổ tung, sắp hóa thành một vùng hỗn độn.
 
@@ -174,7 +174,7 @@ Tần Mục vừa rơi xuống đất, hai tiếng vật nặng rơi xuống tru
 
 Vô Nhai lão nhân lập tức ra tay với ba người. Nhưng chỉ thấy ba người áp chế thương thế, động tác nhanh như chớp, khoảnh khắc sau, Vô Nhai lão nhân đã ho ra máu, nằm sấp trên rễ cây thở dốc.
 
-Ba người đứng vững thân hình, nhìn về phía Vô Cực. Chỉ thấy trên mặt Vô Cực có một dấu bàn tay đỏ rực lõm sâu vào trong mặt, gần như ép mũi, mắt và miệng nàng vào trong đầu.
+Ba người đứng vững thân hình, nhìn về phía Vô Cực. Chỉ thấy trên mặt Vô Cực có một dấu bàn tay đỏ rực lõm sâu vào trong mặt, gần như ép mũi, mắt và miệng ả vào trong đầu.
 
 Đó là uy năng ấn kết ấn dây đỏ mà Tần Mục vừa học vừa dùng, tham ngộ ra.
 

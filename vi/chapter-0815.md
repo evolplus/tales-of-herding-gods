@@ -94,11 +94,11 @@ Tiểu nhân trong đèn đứng lên từ bậc cửa, nhìn kiếm quang lưu 
 
 "Vì sao lệnh chủ nói vậy?" Hắn khẽ hỏi.
 
-"Sau khi Thiên Đế chết, Đế hậu nương nương muốn chuyện mình làm không bại lộ, vậy nhất định phải xử lý Tuyệt Vô Trần. Nhưng Tuyệt Vô Trần và nhục thân của nàng đều còn có ích với nàng, nhất định phải giữ lại để phòng khi cần. Vừa muốn xử lý Tuyệt Vô Trần và nhục thân của mình, lại vừa muốn giữ các nàng lại, nơi tốt nhất chính là con Quỷ thuyền này."
+"Sau khi Thiên Đế chết, Đế hậu nương nương muốn chuyện mình làm không bại lộ, vậy nhất định phải xử lý Tuyệt Vô Trần. Nhưng Tuyệt Vô Trần và nhục thân của ả đều còn có ích với ả, nhất định phải giữ lại để phòng khi cần. Vừa muốn xử lý Tuyệt Vô Trần và nhục thân của mình, lại vừa muốn giữ chúng lại, nơi tốt nhất chính là con Quỷ thuyền này."
 
 Tần Mục cười nói:
 
-"Bây giờ nàng hẳn là đại nhân vật, không tiện đích thân làm chuyện này. Vì thế nàng cần một thân tín, một người đáng tin cậy giúp nàng làm chuyện này. Người này đưa nhục thân Tuyệt Vô Trần tới Quỷ thuyền, mở quan quách Đế hậu, đặt Tuyệt Vô Trần vào trong quan quách. Nhưng người này cũng không thể rời khỏi con Quỷ thuyền này. Hắn nhất định vẫn còn trên thuyền. Để bảo vệ bí mật này, hắn cần bảo đảm tất cả người lên thuyền đều không thể rời đi."
+"Bây giờ ả hẳn là đại nhân vật, không tiện đích thân làm chuyện này. Vì thế ả cần một thân tín, một người đáng tin cậy giúp ả làm chuyện này. Người này đưa nhục thân Tuyệt Vô Trần tới Quỷ thuyền, mở quan quách Đế hậu, đặt Tuyệt Vô Trần vào trong quan quách. Nhưng người này cũng không thể rời khỏi con Quỷ thuyền này. Hắn nhất định vẫn còn trên thuyền. Để bảo vệ bí mật này, hắn cần bảo đảm tất cả người lên thuyền đều không thể rời đi."
 
 Thôn trưởng nói:
 

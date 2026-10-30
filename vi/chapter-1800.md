@@ -1,10 +1,10 @@
 # Chương 1800: Lại xông vào Ngọc Kinh
 
-Nếu Tần Mục thật sự cứ lần lượt sửa phù văn kết ấn dây đỏ như vậy, nàng muốn thoát thân đúng là xa không biết ngày nào.
+Nếu Tần Mục thật sự cứ lần lượt sửa phù văn kết ấn dây đỏ như vậy, ả muốn thoát thân đúng là xa không biết ngày nào.
 
-Nàng không khỏi có chút hối hận.
+Ả không khỏi có chút hối hận.
 
-Mấy trăm năm trước, nàng tự nghĩ mình sắp thoát khốn, vì vậy không còn áp chế sức mạnh của mình, khiến thủy triều Quy Khư Đại Uyên dâng trào, trở nên kinh người hơn trước kia, điều này kinh động Tần Mục và những người khác.
+Mấy trăm năm trước, ả tự nghĩ mình sắp thoát khốn, vì vậy không còn áp chế sức mạnh của mình, khiến thủy triều Quy Khư Đại Uyên dâng trào, trở nên kinh người hơn trước kia, điều này kinh động Tần Mục và những người khác.
 
 Vì Tần Mục phải luyện chế Hồng Chung Vũ Trụ, không tới kiểm tra, nên hắn trồng hoa sen Quy Khư của mình trong Hỗn Độn Hải để trấn áp dị động thủy triều.
 
@@ -12,7 +12,7 @@ Sau đó lại xảy ra đủ loại đại chiến, Tần Mục càng không r�
 
 Vô Nhai lão nhân vì bị Di La Cung và Tần Mục đánh, thực lực và thế lực tổn thất nghiêm trọng, co đầu rụt cổ không ra. Di La Cung thì vì đạo binh của công tử sắp giáng lâm, cũng không rảnh tới kiểm tra.
 
-Ngược lại Tần Mục có thời gian. Sau khi tới đây, hắn liền một lần trấn áp nàng lần nữa.
+Ngược lại Tần Mục có thời gian. Sau khi tới đây, hắn liền một lần trấn áp ả lần nữa.
 
 Công tử Vô Cực hận tới nghiến răng: "Nếu ta thoát khốn, ta sẽ..."
 

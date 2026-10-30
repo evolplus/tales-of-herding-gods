@@ -4,13 +4,13 @@ Nhị công tử Vô Cực hoàn toàn không ngờ những Khai Thiên chúng n
 
 Người đời ai không biết Quy Khư hung hiểm, ai không biết hung danh của Nhị công tử Vô Cực?
 
-Ngay cả Tam công tử Di La Cung cũng không dám phóng túng trước mặt nàng. Khi cầu nàng ra tay cũng không thể không hạ thấp tư thái.
+Ngay cả Tam công tử Di La Cung cũng không dám phóng túng trước mặt ả. Khi cầu ả ra tay cũng không thể không hạ thấp tư thái.
 
 Hơn nữa, không ai dám xuyên qua Quy Khư để đến vũ trụ kỷ tiếp theo, ngoại trừ bậc thành đạo bằng Quy Khư như Tần Mục, Đế hậu. Bởi Quy Khư chi đạo không hợp với đạo hạnh của bậc thành đạo. Tiến vào Quy Khư chính là tiến vào nơi kiếp Phá Diệt nồng đậm nhất!
 
 Đạo Thụ, Đạo hoa, Đạo quả của người ấy, Đại La Thiên của người ấy, ba mươi sáu tầng trời Đạo Cảnh của người ấy, tất cả đều sẽ tan rã trong Quy Khư, biến thành dưỡng chất của Nhị công tử!
 
-Nhưng những Khai Thiên chúng này lại to gan như vậy, hoàn toàn không đặt nàng vào mắt. Xem ra bọn họ có chuẩn bị mà đến.
+Nhưng những Khai Thiên chúng này lại to gan như vậy, hoàn toàn không đặt ả vào mắt. Xem ra bọn họ có chuẩn bị mà đến.
 
 Ba mươi lăm vị Khai Thiên chúng lấy người mặt cười kia dẫn đầu, không ngừng rơi xuống từ lối vào Quy Khư kỷ thứ mười sáu. Vào khoảnh khắc bọn họ tiến vào Quy Khư Đại Uyên, kiếp Phá Diệt của kỷ thứ mười sáu lập tức trở nên khủng bố vô cùng!
 
@@ -20,7 +20,7 @@ Mà trong phong bạo, dưới những xiềng xích đỏ thẫm do kết ấn 
 
 Rất nhanh, năm xiềng xích của kết ấn dây đỏ đều biến thành màu trắng.
 
-Từ sau khi Tam công tử Lăng Tiêu giải phù văn đầu tiên của kết ấn dây đỏ cho Vô Cực, ấn kết dây đỏ mà Chủ nhân Di La Cung dùng để trấn áp nàng đã lỏng ra.
+Từ sau khi Tam công tử Lăng Tiêu giải phù văn đầu tiên của kết ấn dây đỏ cho Vô Cực, ấn kết dây đỏ mà Chủ nhân Di La Cung dùng để trấn áp ả đã lỏng ra.
 
 Có lỗ hổng đầu tiên, Vô Cực liền có điểm đột phá, không ngừng dùng Quy Khư chi đạo xâm nhập, liên tục mài mòn ấn kết dây đỏ của Chủ nhân Di La Cung.
 
@@ -50,11 +50,11 @@ Nhị công tử Vô Cực ở tận đáy Quy Khư, nằm ngửa trên biển H
 
 "Nhiều cao thủ như vậy tới tặng năng lượng cho ta, bồi bổ ta. Sư phụ ơi là sư phụ, người trấn áp ta trong biển Hỗn Độn, muốn mượn biển Hỗn Độn mài mòn tu vi thực lực của ta, mài chết ta. Sư phụ không ngờ chứ? Vậy mà còn có kẻ ngu đến mức định mượn đường Quy Khư lén vượt sang kỷ tiếp theo!"
 
-Nàng cười khanh khách thành tiếng: "Nuốt bọn họ, ta có thể khôi phục đến trạng thái đỉnh cao, thậm chí còn vượt qua thời kỳ đỉnh cao! Sư phụ, hôm nay chính là ngày ta thoát khốn! Ta sẽ hoàn thành lý niệm của sư phụ, nhưng cách làm của ta khác sư phụ!"
+Ả cười khanh khách thành tiếng: "Nuốt bọn họ, ta có thể khôi phục đến trạng thái đỉnh cao, thậm chí còn vượt qua thời kỳ đỉnh cao! Sư phụ, hôm nay chính là ngày ta thoát khốn! Ta sẽ hoàn thành lý niệm của sư phụ, nhưng cách làm của ta khác sư phụ!"
 
 "Ta sẽ nuốt chửng tất cả, nuốt sạch mọi thứ hủ bại trong toàn bộ vũ trụ, mở ra lại một thế giới hoàn mỹ trong mộng tưởng của sư phụ!"
 
-Nàng đột nhiên trở nên hưng phấn. Nhưng ba mươi lăm Khai Thiên chúng kia trong lúc rơi xuống đột nhiên lại sinh dị biến. Xung quanh những Khai Thiên chúng có Đại La Thiên vỡ nát kia, khí Hỗn Độn đột nhiên xảy ra dị biến!
+Ả đột nhiên trở nên hưng phấn. Nhưng ba mươi lăm Khai Thiên chúng kia trong lúc rơi xuống đột nhiên lại sinh dị biến. Xung quanh những Khai Thiên chúng có Đại La Thiên vỡ nát kia, khí Hỗn Độn đột nhiên xảy ra dị biến!
 
 Những khí Hỗn Độn ấy trong lúc rơi xuống vậy mà tự hóa thành từng vũ trụ cực nhỏ, phình to ra ngoài, rất nhanh đã hóa thành từng thế giới chư thiên hoàn chỉnh!
 
@@ -80,19 +80,19 @@ Từng sợi tóc trắng đâm vào ba mươi lăm chư thiên kia. Tóc trắn
 
 "Nhưng cũng chỉ là món khai vị đưa tới cửa cho ta mà thôi!"
 
-Nhị công tử Vô Cực vừa nói tới đây, đột nhiên từng sợi tóc trắng đứt đoạn. Đạo pháp thần thông của ba mươi lăm Khai Thiên chúng kia quỷ dị vô cùng, chém đứt tóc trắng của nàng. Tóc trắng của nàng rơi vào những chư thiên kia, vậy mà mất cảm ứng!
+Nhị công tử Vô Cực vừa nói tới đây, đột nhiên từng sợi tóc trắng đứt đoạn. Đạo pháp thần thông của ba mươi lăm Khai Thiên chúng kia quỷ dị vô cùng, chém đứt tóc trắng của ả. Tóc trắng của ả rơi vào những chư thiên kia, vậy mà mất cảm ứng!
 
-Nàng không những không thể hấp thu sức mạnh của Khai Thiên chúng, tóc trắng của nàng vậy mà trong những chư thiên ấy hóa thành sức mạnh của Khai Thiên chúng!
+Ả không những không thể hấp thu sức mạnh của Khai Thiên chúng, tóc trắng của ả vậy mà trong những chư thiên ấy hóa thành sức mạnh của Khai Thiên chúng!
 
-Nàng bị Khai Thiên chúng hấp thu!
+Ả bị Khai Thiên chúng hấp thu!
 
 Nhị công tử Vô Cực nổi giận bừng bừng, đột nhiên thúc động hoa sen Quy Khư của kỷ thứ mười sáu. Đài sen nhanh chóng chìm xuống, quét về phía ba mươi lăm Khai Thiên chúng, đánh từng thế giới chư thiên đến phá diệt.
 
-Quy Khư chi đạo là đại đạo thần bí nhất, đáng sợ nhất thiên hạ. Nàng là người đạt thành tựu cao nhất của Quy Khư chi đạo, tự nhìn mình rất cao, thậm chí cảm thấy mình là người duy nhất có khả năng vượt qua Chủ nhân Di La Cung!
+Quy Khư chi đạo là đại đạo thần bí nhất, đáng sợ nhất thiên hạ. Ả là người đạt thành tựu cao nhất của Quy Khư chi đạo, tự nhìn mình rất cao, thậm chí cảm thấy mình là người duy nhất có khả năng vượt qua Chủ nhân Di La Cung!
 
-Không ngờ chỉ va chạm nhẹ với Khai Thiên chúng, nàng vậy mà chịu thiệt nhỏ, đương nhiên không thể khoan nhượng!
+Không ngờ chỉ va chạm nhẹ với Khai Thiên chúng, ả vậy mà chịu thiệt nhỏ, đương nhiên không thể khoan nhượng!
 
-Uy lực của kết ấn dây đỏ bùng nổ, trấn áp sức mạnh của nàng. Nhị công tử Vô Cực mặc kệ, đột nhiên nhảy khỏi mặt biển Hỗn Độn, quát lớn một tiếng. Tóc trắng bay lên, trong biển Hỗn Độn, từng phiến lá sen lơ lửng. Trên mặt biển Hỗn Độn hiện ra vô số Quy Khư lớn nhỏ, như từng hố đen nuốt chửng tất cả, luyện hóa tất cả, dày đặc ào tới ba mươi lăm Khai Thiên chúng kia!
+Uy lực của kết ấn dây đỏ bùng nổ, trấn áp sức mạnh của ả. Nhị công tử Vô Cực mặc kệ, đột nhiên nhảy khỏi mặt biển Hỗn Độn, quát lớn một tiếng. Tóc trắng bay lên, trong biển Hỗn Độn, từng phiến lá sen lơ lửng. Trên mặt biển Hỗn Độn hiện ra vô số Quy Khư lớn nhỏ, như từng hố đen nuốt chửng tất cả, luyện hóa tất cả, dày đặc ào tới ba mươi lăm Khai Thiên chúng kia!
 
 Ba mươi lăm Khai Thiên chúng như tiến vào đại kiếp diệt thế. Các thế giới chư thiên của bọn họ lần lượt sụp đổ tan rã dưới công kích của Nhị công tử, bị từng Quy Khư nuốt chửng!
 
@@ -120,15 +120,15 @@ Mà bậc thành đạo bằng Quy Khư là người duy nhất có thể chư�
 
 Trong Di La Cung, người dám nói mình có thể vượt qua Kiếp Sáng Sinh chỉ có Chủ nhân Di La Cung và Đại công tử Thái Thượng, những người khác đều không được.
 
-Đây cũng là nguyên nhân điện chủ, công tử của Di La Cung sợ nàng như vậy.
+Đây cũng là nguyên nhân điện chủ, công tử của Di La Cung sợ ả như vậy.
 
-Dưới thần thông sáng sinh của nàng, Khai Thiên chúng tuyệt đối không có đạo lý may mắn thoát khỏi!
+Dưới thần thông sáng sinh của ả, Khai Thiên chúng tuyệt đối không có đạo lý may mắn thoát khỏi!
 
 Nhưng ngay trong quá trình từng vũ trụ cực nhỏ hình thành trên không biển Hỗn Độn, biến hóa Ngũ Thái đột nhiên đứt đoạn. Trong những vũ trụ cực nhỏ đang rơi xuống ấy, từng loại đại đạo dị chủng mà Nhị công tử trước nay chưa từng thấy, chưa từng nghe lần lượt sinh thành!
 
-Quá trình sáng sinh của các vũ trụ cực nhỏ này vậy mà căn bản không chịu nàng khống chế, nàng cũng không thể khống chế!
+Quá trình sáng sinh của các vũ trụ cực nhỏ này vậy mà căn bản không chịu ả khống chế, ả cũng không thể khống chế!
 
-Đường diễn hóa của từng vũ trụ cực nhỏ trở nên quỷ dị khó lường. Đợi đến khi các vũ trụ cực nhỏ này rơi xuống mặt biển Hỗn Độn, ba mươi lăm Khai Thiên chúng lần lượt đi ra từ trong những vũ trụ cực nhỏ ấy, vây nàng ở chính giữa, hình thành một trận thế kỳ dị.
+Đường diễn hóa của từng vũ trụ cực nhỏ trở nên quỷ dị khó lường. Đợi đến khi các vũ trụ cực nhỏ này rơi xuống mặt biển Hỗn Độn, ba mươi lăm Khai Thiên chúng lần lượt đi ra từ trong những vũ trụ cực nhỏ ấy, vây ả ở chính giữa, hình thành một trận thế kỳ dị.
 
 Trận thế của tế đàn Khai Thiên!
 
@@ -148,7 +148,7 @@ Biểu cảm trên mặt người mặt cười kia không có bất kỳ biến
 
 Người mặt cười cười nói: "Nhị công tử, ngươi đã chuẩn bị kiến thức đại tế Khai Thiên của Thiên Đô chúng ta chưa?"
 
-Sắc mặt Nhị công tử Vô Cực ngưng trọng. Mười sáu gốc sen Quy Khư đột nhiên hợp lại làm một, hóa thành đài sen mười sáu phẩm. Nàng chân trần đứng trên đài sen.
+Sắc mặt Nhị công tử Vô Cực ngưng trọng. Mười sáu gốc sen Quy Khư đột nhiên hợp lại làm một, hóa thành đài sen mười sáu phẩm. Ả chân trần đứng trên đài sen.
 
 Đúng lúc này, thân hình ba mươi lăm Khai Thiên chúng cao thấp xen nhau, đại tế Khai Thiên bùng nổ!
 

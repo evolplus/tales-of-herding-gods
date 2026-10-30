@@ -92,15 +92,15 @@ Tần Mục lập tức lên đường, thông qua Cầu Linh Năng Đối Chuy�
 
 Trứng Thái Thủy kích động khó tả, nói: "Lần này vào Tổ Đình, trước hết cướp khoáng mạch Thái Thủy, chúng ta chia sổ một chín, ngươi một ta chín!"
 
-Tần Mục bật cười nói: "Đạo huynh, Nghiên Thiên Phi là Đế hậu, nàng chiếm cứ lãnh địa của huynh, ta đâu phải đối thủ của nàng? Ta chín huynh một."
+Tần Mục bật cười nói: "Đạo huynh, Nghiên Thiên Phi là Đế hậu, ả chiếm cứ lãnh địa của huynh, ta đâu phải đối thủ của ả? Ta chín huynh một."
 
 Trứng Thái Thủy nổi giận, tức đến mức quả trứng tròn bay lên, giận như sấm.
 
-Tần Mục cười ha hả nói: "Ta lấy khoáng mạch của huynh cũng không có tác dụng, không cần lo, chỉ là một câu đùa thôi. Nhưng bên phía Nghiên Thiên Phi, ta quả thật không phải đối thủ của nàng, làm sao đoạt khoáng mạch Thái Thủy, e rằng phải tốn rất nhiều công sức."
+Tần Mục cười ha hả nói: "Ta lấy khoáng mạch của huynh cũng không có tác dụng, không cần lo, chỉ là một câu đùa thôi. Nhưng bên phía Nghiên Thiên Phi, ta quả thật không phải đối thủ của ả, làm sao đoạt khoáng mạch Thái Thủy, e rằng phải tốn rất nhiều công sức."
 
 Trứng Thái Thủy yên tĩnh lại, nói: "Ngươi có dự định gì?"
 
-Tần Mục trầm ngâm: "Đánh thì đánh không lại nàng, chỉ có thể trao đổi. Chỗ ta có nhục thân của nàng, có lẽ có thể đổi được bảo vật trong khoáng mạch Thái Thủy từ chỗ nàng, chỉ là..."
+Tần Mục trầm ngâm: "Đánh thì đánh không lại ả, chỉ có thể trao đổi. Chỗ ta có nhục thân của ả, có lẽ có thể đổi được bảo vật trong khoáng mạch Thái Thủy từ chỗ ả, chỉ là..."
 
 Hắn lộ vẻ đau lòng. Dù trứng Thái Thủy ẩn trong mắt dọc của hắn, cũng cảm giác được Tần Mục đau lòng đến mức khiến cả đại lục chữ Tần cũng đất rung núi chuyển.
 

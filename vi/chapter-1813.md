@@ -4,25 +4,25 @@ Thái Thủy không hiểu ý hắn, nhưng vẫn dừng tay.
 
 Tần Mục nhìn về nơi xa. Nơi đó từng Quy Khư Đại Uyên đang cuộn trào, trôi về phía bên này. Những đại uyên ấy là thần thông của công tử Vô Cực.
 
-Quy Khư Đại Uyên chân chính đã bị Tần Mục hủy diệt. Uy lực thần thông của công tử Vô Cực tuy không yếu, nhưng dù sao nàng cũng giống Đế hậu nương nương, đều là cổ thần sinh ra trong đại uyên.
+Quy Khư Đại Uyên chân chính đã bị Tần Mục hủy diệt. Uy lực thần thông của công tử Vô Cực tuy không yếu, nhưng dù sao ả cũng giống Đế hậu nương nương, đều là cổ thần sinh ra trong đại uyên.
 
-Không còn Quy Khư Đại Uyên làm nguồn sức mạnh, những năm này tu vi của nàng khôi phục vô cùng chậm chạp.
+Không còn Quy Khư Đại Uyên làm nguồn sức mạnh, những năm này tu vi của ả khôi phục vô cùng chậm chạp.
 
-Nàng có ba con đường để khôi phục tu vi. Con đường thứ nhất là tiến vào Hỗn Độn Điện của Tần Mục. Nơi đó có mười sáu đạo Hỗn Độn Trường Hà, nàng có thể hấp thu sức mạnh kiếp Phá Diệt để nhanh chóng khôi phục.
+Ả có ba con đường để khôi phục tu vi. Con đường thứ nhất là tiến vào Hỗn Độn Điện của Tần Mục. Nơi đó có mười sáu đạo Hỗn Độn Trường Hà, ả có thể hấp thu sức mạnh kiếp Phá Diệt để nhanh chóng khôi phục.
 
-Con đường thứ hai là mười sáu đạo Hỗn Độn Trường Hà trong Tổ Đình Ngọc Kinh Thành, cũng có thể khiến nàng nhanh chóng khôi phục tu vi.
+Con đường thứ hai là mười sáu đạo Hỗn Độn Trường Hà trong Tổ Đình Ngọc Kinh Thành, cũng có thể khiến ả nhanh chóng khôi phục tu vi.
 
 Con đường thứ ba là mười sáu đạo Hỗn Độn Trường Hà vây quanh Thế Giới Thụ.
 
-Nhưng ba con đường này đều không khả thi. Tần Mục không thể để nàng tiến vào Hỗn Độn Điện. Tam công tử, Tứ công tử cũng không thể để nàng mượn đường Ngọc Kinh Thành. Con đường thứ ba nhìn như có khả năng nhất, thực ra lại là con đường không thể nhất, bởi công tử Vô Cực không thể tới gần Thế Giới Thụ!
+Nhưng ba con đường này đều không khả thi. Tần Mục không thể để ả tiến vào Hỗn Độn Điện. Tam công tử, Tứ công tử cũng không thể để ả mượn đường Ngọc Kinh Thành. Con đường thứ ba nhìn như có khả năng nhất, thực ra lại là con đường không thể nhất, bởi công tử Vô Cực không thể tới gần Thế Giới Thụ!
 
-Hơn nữa, cho dù nàng có thể hấp thu sức mạnh trong kiếp Phá Diệt, cũng không thể lấy được sức mạnh của kiếp Sáng Sinh.
+Hơn nữa, cho dù ả có thể hấp thu sức mạnh trong kiếp Phá Diệt, cũng không thể lấy được sức mạnh của kiếp Sáng Sinh.
 
-Điều mấu chốt hơn là Tần Mục phong ấn Tổ Đình, luyện hóa Tổ Đình, khiến nàng không thể phá hủy Tổ Đình, biến Tổ Đình thành khí Hỗn Độn.
+Điều mấu chốt hơn là Tần Mục phong ấn Tổ Đình, luyện hóa Tổ Đình, khiến ả không thể phá hủy Tổ Đình, biến Tổ Đình thành khí Hỗn Độn.
 
-Nàng có thể tới Hỗn Độn Hải lơ lửng trên bầu trời, nhưng nơi đó có Lục Đạo Thiên Luân của Tần Mục, uy lực cực lớn. Nàng cũng không biết sau khi mình tới Hỗn Độn Hải sẽ có kết cục gì.
+Ả có thể tới Hỗn Độn Hải lơ lửng trên bầu trời, nhưng nơi đó có Lục Đạo Thiên Luân của Tần Mục, uy lực cực lớn. Ả cũng không biết sau khi mình tới Hỗn Độn Hải sẽ có kết cục gì.
 
-Sau trận Quy Khư, có thể nói Tần Mục đã áp chế nàng đến chết, khiến nàng không còn khả năng xoay người.
+Sau trận Quy Khư, có thể nói Tần Mục đã áp chế ả đến chết, khiến ả không còn khả năng xoay người.
 
 Ánh mắt Tần Mục sâu thẳm, giọng truyền đi rất xa: "Nhị tỷ, Vô Nhai lão nhân đã qua đời."
 
@@ -30,11 +30,11 @@ Vô số đại uyên đang bơi lượn trong không trung đột nhiên khựn
 
 Ánh mắt Tần Mục lóe lên. Thân hình hắn bay lên không, hóa thành một luồng sáng lao thẳng về Hỗn Độn Hải.
 
-Công tử Vô Cực cũng trí tuệ thông thiên, biết sau khi Tần Mục chém giết Vô Nhai lão nhân, mục tiêu tiếp theo chính là mình. Vì vậy nàng quyết đoán dị thường, lao thẳng về Hỗn Độn Hải.
+Công tử Vô Cực cũng trí tuệ thông thiên, biết sau khi Tần Mục chém giết Vô Nhai lão nhân, mục tiêu tiếp theo chính là mình. Vì vậy ả quyết đoán dị thường, lao thẳng về Hỗn Độn Hải.
 
-Chỉ cần nàng tới Hỗn Độn Hải trước Tần Mục, phá hủy Lục Đạo Thiên Luân, tái lập Quy Khư Đại Uyên, vậy thắng bại của trận này vẫn chưa thể biết!
+Chỉ cần ả tới Hỗn Độn Hải trước Tần Mục, phá hủy Lục Đạo Thiên Luân, tái lập Quy Khư Đại Uyên, vậy thắng bại của trận này vẫn chưa thể biết!
 
-Cho dù không thể tái lập đại uyên, chỉ cần nàng trồng Liên Đài Quy Khư của mình trong Hỗn Độn Hải, cũng có sức đánh một trận!
+Cho dù không thể tái lập đại uyên, chỉ cần ả trồng Liên Đài Quy Khư của mình trong Hỗn Độn Hải, cũng có sức đánh một trận!
 
 Vù...
 
@@ -48,17 +48,17 @@ Ngay khi Lục Đạo Thiên Luân vận chuyển, thân hình công tử Vô C�
 
 Công tử Vô Cực giơ tay vỗ về phía Lục Đạo Thiên Luân. Chỉ cần phá hủy Thiên Luân, tái lập Quy Khư, vậy Tần Mục chưa chắc đã là đối thủ của mình.
 
-Bàn tay nàng xuyên qua tầng tầng ánh sáng do Luân Hồi chi đạo hình thành. Trong khoảnh khắc, huyết nhục trên cánh tay nhanh chóng thối rữa mục nát, lộ ra xương trắng âm u, ngay sau đó huyết nhục lại sinh ra, nhưng khoảnh khắc tiếp theo lại hóa thành xương trắng trong ánh sáng luân hồi.
+Bàn tay ả xuyên qua tầng tầng ánh sáng do Luân Hồi chi đạo hình thành. Trong khoảnh khắc, huyết nhục trên cánh tay nhanh chóng thối rữa mục nát, lộ ra xương trắng âm u, ngay sau đó huyết nhục lại sinh ra, nhưng khoảnh khắc tiếp theo lại hóa thành xương trắng trong ánh sáng luân hồi.
 
-Không chỉ như vậy, xu thế thối rữa mục nát này còn theo pháp lực của nàng xâm thực bản thể nàng, lan tới cánh tay, bả vai nàng.
+Không chỉ như vậy, xu thế thối rữa mục nát này còn theo pháp lực của ả xâm thực bản thể ả, lan tới cánh tay, bả vai ả.
 
-Luân Hồi chi đạo đang nhanh chóng tiêu hao tu vi của nàng, muốn kéo nàng vào luân hồi, mài diệt hoàn toàn.
+Luân Hồi chi đạo đang nhanh chóng tiêu hao tu vi của ả, muốn kéo ả vào luân hồi, mài diệt hoàn toàn.
 
 Công tử Vô Cực nghiến răng, bất chấp tất cả đánh ra một đòn này!
 
 Ầm!
 
-Bàn tay nàng nặng nề vỗ lên Lục Đạo Thiên Luân. Lục Đạo Thiên Luân khổng lồ ầm ầm sụp đổ, hóa thành vô số đá vụn bay tung.
+Bàn tay ả nặng nề vỗ lên Lục Đạo Thiên Luân. Lục Đạo Thiên Luân khổng lồ ầm ầm sụp đổ, hóa thành vô số đá vụn bay tung.
 
 Trong lòng công tử Vô Cực vui mừng, đang định thúc giục pháp lực tái tạo Quy Khư, đột nhiên một viên Đạo quả bay tới, rơi vào giữa đống đá vụn. Đạo quang trong Đạo quả tràn ra, vô số đá Hỗn Độn bay lượn trong không trung, lại tự tổ hợp thành Lục Đạo Thiên Luân.
 
@@ -136,9 +136,9 @@ Nhưng đã không kịp nữa. Tại cửa vào mười sáu tòa Quy Khư Đ�
 
 Kết ấn dây đỏ do Chủ nhân Di La Cung khai sáng bùng nổ trong tay Tần Mục. Mười sáu bàn tay gần như đồng thời in lên người công tử Vô Cực!
 
-Công tử Vô Cực cố triệu hoán Vô Cực Điện của mình. Cửa vào của mỗi Quy Khư Đại Uyên đều tương ứng với bản thể nàng. Nhưng Tần Mục lại cao tay hơn một bậc, thông qua sơ hở lộ ra từ đại uyên do nàng xé rách thời không tạo nên, một lần đánh vào sơ hở này, thi triển đòn tất sát!
+Công tử Vô Cực cố triệu hoán Vô Cực Điện của mình. Cửa vào của mỗi Quy Khư Đại Uyên đều tương ứng với bản thể ả. Nhưng Tần Mục lại cao tay hơn một bậc, thông qua sơ hở lộ ra từ đại uyên do ả xé rách thời không tạo nên, một lần đánh vào sơ hở này, thi triển đòn tất sát!
 
-Đòn này không phải do Tần Mục khai sáng. Nếu đổi thành thần thông của chính Tần Mục, chưa chắc có thể giết chết Vô Cực. Nhưng kết ấn dây đỏ lại vừa khéo là thần thông do Chủ nhân Di La Cung khai sáng chuyên nhằm vào Vô Cực. Đòn này đủ lấy mạng nàng!
+Đòn này không phải do Tần Mục khai sáng. Nếu đổi thành thần thông của chính Tần Mục, chưa chắc có thể giết chết Vô Cực. Nhưng kết ấn dây đỏ lại vừa khéo là thần thông do Chủ nhân Di La Cung khai sáng chuyên nhằm vào Vô Cực. Đòn này đủ lấy mạng ả!
 
 Lục Đạo Thiên Luân xoay chuyển gần như điên cuồng, xé Hỗn Độn Hải thành vô số mảnh vụn!
 
@@ -152,7 +152,7 @@ Sau đầu Tần Mục, Lục Đạo Thiên Luân chậm rãi chìm xuống, m�
 
 Tần Mục nghĩ một chút, nói: "Tài hoa của Nhị tỷ tuyệt đại, nhưng e rằng vẫn không phải đối thủ của sư phụ. Người có thể một tay trấn áp tỷ, cũng có thể một tay giết tỷ, chỉ là người không nỡ."
 
-Công tử Vô Cực ngẩng đầu. Thứ nàng nhìn thấy không phải bầu trời, mà là Tổ Đình. Nàng tiêu điều nói: "Sư phụ chết rồi?"
+Công tử Vô Cực ngẩng đầu. Thứ ả nhìn thấy không phải bầu trời, mà là Tổ Đình. Ả tiêu điều nói: "Sư phụ chết rồi?"
 
 Tần Mục nhẹ nhàng gật đầu.
 

@@ -10,7 +10,7 @@ Dù sao hắn cũng là truyền nhân của Chủ nhân Di La Cung. Sau khi hi�
 
 Huyền cơ lớn nhất mà Chủ nhân Di La Cung để lại chính là sợi dây đỏ thứ sáu.
 
-Nhị công tử Vô Cực có lẽ không hiểu huyền cơ của sợi dây đỏ thứ sáu. Nàng đã vứt bỏ đạo pháp thần thông của Di La Cung từ rất sớm, chuyển sang nghiên cứu đạo pháp Quy Khư.
+Nhị công tử Vô Cực có lẽ không hiểu huyền cơ của sợi dây đỏ thứ sáu. Ả đã vứt bỏ đạo pháp thần thông của Di La Cung từ rất sớm, chuyển sang nghiên cứu đạo pháp Quy Khư.
 
 Nhưng Tam công tử lại có thể nhìn ra huyền cơ của sợi dây đỏ thứ sáu.
 
@@ -26,9 +26,9 @@ Tần Mục chỉ muốn ngăn Di La Cung giáng lâm kỷ thứ mười bảy. 
 
 Nhưng Nhị công tử Vô Cực lại khác.
 
-Nếu nàng được thả ra, e rằng sẽ diệt thế, hủy diệt tất cả, bất kể là Di La Cung hay Thế Giới Thụ, hoặc kỷ thứ mười bảy, tất cả đều hủy diệt!
+Nếu ả được thả ra, e rằng sẽ diệt thế, hủy diệt tất cả, bất kể là Di La Cung hay Thế Giới Thụ, hoặc kỷ thứ mười bảy, tất cả đều hủy diệt!
 
-Vô Cực làm việc cực đoan. Ở kỷ thứ mười sáu, nàng đã bắt đầu ra tay với bậc thành đạo của Di La Cung, ra tay với các bậc thành đạo khác!
+Vô Cực làm việc cực đoan. Ở kỷ thứ mười sáu, ả đã bắt đầu ra tay với bậc thành đạo của Di La Cung, ra tay với các bậc thành đạo khác!
 
 Người ngoài, thậm chí có vài điện chủ đều cho rằng Thương Quân đồ sát bậc thành đạo, nhưng ai cũng không ngờ kẻ ra tay đồ sát bậc thành đạo lại là Nhị công tử. Bậc thành đạo chết trong tay Thương Quân còn chưa bằng số lẻ những người chết trong tay Nhị công tử!
 
@@ -38,7 +38,7 @@ Tam công tử đáp xuống ấn kết dây đỏ, tiếng nói truyền vào Q
 
 Trong Quy Khư lặng ngắt, qua rất lâu, giọng Nhị công tử Vô Cực truyền tới, cười khúc khích: "Thì ra là lão Tam. Lăng Tiêu, ngươi đến gặp ta vì chuyện gì? À phải rồi, ngươi còn chưa giáng lâm kỷ thứ mười bảy, ngươi bị lão Thất chặn lại, cho nên ngươi đến gặp ta, muốn mượn lối đi này của ta để vào kỷ thứ mười bảy đúng không? Ngươi xuống đây..."
 
-Giọng nàng trở nên quỷ dị khó lường: "Ngươi hẳn phải biết, vật chất bất dịch trên đời này chỉ có hai thứ, một là Thế Giới Thụ, một là Quy Khư. Người đời ngu muội, chỉ nghĩ tới lén vượt qua từ Thế Giới Thụ, lại chưa từng nghĩ lén vượt từ Quy Khư mới là đơn giản nhất. Lão Tam, ngươi có thể men theo sen Quy Khư đi xuống, ta sẽ chỉ cho ngươi cuống sen nào mới là con đường thông tới kỷ thứ mười bảy."
+Giọng ả trở nên quỷ dị khó lường: "Ngươi hẳn phải biết, vật chất bất dịch trên đời này chỉ có hai thứ, một là Thế Giới Thụ, một là Quy Khư. Người đời ngu muội, chỉ nghĩ tới lén vượt qua từ Thế Giới Thụ, lại chưa từng nghĩ lén vượt từ Quy Khư mới là đơn giản nhất. Lão Tam, ngươi có thể men theo sen Quy Khư đi xuống, ta sẽ chỉ cho ngươi cuống sen nào mới là con đường thông tới kỷ thứ mười bảy."
 
 Tam công tử không hề lay động.
 
@@ -46,7 +46,7 @@ Vào Quy Khư chính là đánh đổi bằng việc hủy đi đạo hạnh c�
 
 Có lão quái vật Nhị công tử Vô Cực ở đó, ai dám vào Quy Khư?
 
-Chủ nhân Di La Cung chính là trấn áp nàng trong Quy Khư Đại Uyên của kỷ thứ mười sáu!
+Chủ nhân Di La Cung chính là trấn áp ả trong Quy Khư Đại Uyên của kỷ thứ mười sáu!
 
 "Ta đến nói cho sư tỷ biết, con của lão Thất sắp ra đời."
 

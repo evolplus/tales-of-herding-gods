@@ -22,11 +22,11 @@ Nguyên Mẫu phu nhân quay đầu, ngẩn ngơ nhìn vết rách của ba mư�
 
 Sức mạnh một đòn này của Tần Mục thật sự đáng sợ, hơn nữa lúc ra tay không có chút dấu hiệu nào. Hạo Thiên Đế mạnh mẽ cỡ nào? Vậy mà bị hắn một quyền đánh vào Chung Cực Hư Không!
 
-Tần Mục bước đôi chân ngắn tới trước mặt nàng, ngẩng đầu cười nói:
+Tần Mục bước đôi chân ngắn tới trước mặt ả, ngẩng đầu cười nói:
 
 “Nguyên Mẫu phu nhân, dưới luân hồi chi đạo của ta, ngươi ở trong tay ta không qua nổi một chiêu.”
 
-Nguyên Mẫu phu nhân cười khanh khách, lùi về phía sau. Quy Khư sau lưng nàng nứt ra, thân hình nàng đột ngột biến mất.
+Nguyên Mẫu phu nhân cười khanh khách, lùi về phía sau. Quy Khư sau lưng ả nứt ra, thân hình ả đột ngột biến mất.
 
 Tần Mục nghiêng đầu, nói:
 
@@ -176,11 +176,11 @@ Quy Khư Đại Uyên kéo thân hình Lăng Thiên Tôn xuống dưới. Nguyê
 
 “Nàng rơi vào Quy Khư, chắc chắn phải chết. Dù không chết, nàng cũng không bò ra được...”
 
-Nàng vừa nghĩ tới đây, Lăng Thiên Tôn đột nhiên điểm một chỉ vào vách đá Đại Uyên. Thánh địa Quy Khư ầm ầm chấn động, gần như muốn nổ tung!
+Ả vừa nghĩ tới đây, Lăng Thiên Tôn đột nhiên điểm một chỉ vào vách đá Đại Uyên. Thánh địa Quy Khư ầm ầm chấn động, gần như muốn nổ tung!
 
-Trong lòng Nguyên Mẫu phu nhân kinh hãi. Thánh địa này là nơi nàng sinh ra. Nếu bị hủy, thực lực của nàng cũng sẽ suy giảm rất lớn.
+Trong lòng Nguyên Mẫu phu nhân kinh hãi. Thánh địa này là nơi ả sinh ra. Nếu bị hủy, thực lực của ả cũng sẽ suy giảm rất lớn.
 
-Nàng cắn chặt răng, gào thét lao xuống. Từng đạo thần thông cách không oanh kích lên người Lăng Thiên Tôn!
+Ả cắn chặt răng, gào thét lao xuống. Từng đạo thần thông cách không oanh kích lên người Lăng Thiên Tôn!
 
 Hai nữ tử một trước một sau, nối tiếp nhau rơi vào nơi sâu nhất của Đại Uyên.
 

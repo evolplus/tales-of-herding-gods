@@ -46,7 +46,7 @@ Vân Tiệm Ly cười mà không nói, thầm nghĩ: "Rốt cuộc cô ấy là
 
 Tần Mục nói: "Không đi gặp Hạo Thiên Tôn nữa, giữa ta và hắn có chút hiềm khích, bất hòa với nhau. Có tới hắn cũng đuổi ta ra cửa. Nghe nói Đạo Tổ đã trở về Thiên Đình, vậy tới Đạo môn Thiên Đình một chuyến, bái phỏng lão đạo nhân này."
 
-Vân Sơ Tụ vốn chỉ sợ thiên hạ chưa loạn, nhưng nghe Tần Mục nói muốn đi gặp Đạo Tổ, nàng liền hơi thiếu hứng thú.
+Vân Sơ Tụ vốn chỉ sợ thiên hạ chưa loạn, nhưng nghe Tần Mục nói muốn đi gặp Đạo Tổ, ả liền hơi thiếu hứng thú.
 
 Mục đích của Tần Mục vốn là tới gặp Đạo Tổ, chỉ không ngờ lại xảy ra nhiều chuyện như vậy, làm Lang Hiên Thần Cung và Tổ Vương Cung náo loạn long trời lở đất, các Thiên Tôn khác cũng tránh không gặp hắn.
 

@@ -120,7 +120,7 @@ Tử khí mờ ảo, tử quang như nước gợn sóng, khiến hắn không t
 
 Nữ tử trong Đạo quả nói: “Chủ nhân Di La Cung cho phép ngươi vào gặp ông ấy, đi đi, Mục công tử.”
 
-Tâm thần Tần Mục chấn động mạnh, quay đầu nhìn nàng. Qua một lát, hắn khẽ hỏi: “Ta là mấy công tử?”
+Tâm thần Tần Mục chấn động mạnh, quay đầu nhìn nàng. Qua một lát, hắn khẽ hỏi: “Ta là công tử nào?”
 
 Nữ tử trong Đạo quả mặt không cảm xúc: “Thất công tử.”
 

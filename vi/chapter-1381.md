@@ -46,7 +46,7 @@ Hắn lặng lẽ dựng nên Cửu Ngục Đài Tổ Đình của mình. Tòa C
 
 Hư Thiên Tôn bay lên không trung, quan sát kỹ Cửu Ngục Đài, sắc mặt càng thêm nghiêm trọng.
 
-Thân hình nàng hạ xuống, đi thẳng về phía tầng đài thứ hai, chẳng mấy chốc lại tới tầng thứ ba, tầng thứ tư.
+Thân hình ả hạ xuống, đi thẳng về phía tầng đài thứ hai, chẳng mấy chốc lại tới tầng thứ ba, tầng thứ tư.
 
 "Mục Thiên Tôn làm gì ở đây?" Hồng Thiên Tôn nhíu mày hỏi.
 

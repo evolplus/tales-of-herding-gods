@@ -180,7 +180,7 @@ Bọn họ càng đi càng xa. Không lâu sau, tại nơi Tần Mục và Lạc
 
 "Mục Thiên Tôn, ngươi biến mất nửa năm, bản cung còn tưởng ngươi đã chết. Không ngờ lại cảm ứng được thần thông của ngươi. Hôm nay, bản cung sẽ dùng mười tám pháp diệt Mục của Hạo Thiên Tôn tiễn ngươi lên đường."
 
-Nàng rời đi không lâu, lại có một vực sâu Quy Khư hiện ra. Trong vực sâu, một đóa hoa nở rộ, Vân Sơ Tụ lười biếng nằm trong hoa, sau đó nhảy ra từ trong hoa, tung tăng men theo dấu chân của Liên Hoa Hồn mà đi. Hai bím tóc sau lưng nàng lắc qua lắc lại, mái tóc dài tới eo.
+Ả rời đi không lâu, lại có một vực sâu Quy Khư hiện ra. Trong vực sâu, một đóa hoa nở rộ, Vân Sơ Tụ lười biếng nằm trong hoa, sau đó nhảy ra từ trong hoa, tung tăng men theo dấu chân của Liên Hoa Hồn mà đi. Hai bím tóc sau lưng ả lắc qua lắc lại, mái tóc dài tới eo.
 
 "Mục Thiên Tôn biến mất nửa năm, nửa năm này hắn đi đâu? Cũng không dẫn người ta đi chơi. Keo kiệt! Hắn đã xuất hiện, vậy tỷ tỷ nhất định sẽ đối phó hắn. Sau khi giết hắn sẽ rơi ra quan tài thủy tinh của ta, còn rơi ra rất nhiều bảo bối!"
 

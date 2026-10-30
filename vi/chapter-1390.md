@@ -40,7 +40,7 @@ Nhưng chỉ cần ông ta bị thương, vậy sẽ vạn kiếp bất phục!
 
 "Sao Mục Thiên Tôn lại nổi cáu với Hồng Thiên Tôn vậy?"
 
-Vân Sơ Tụ đi tới. Hai bím tóc của nha đầu này lại tự đung đưa qua lại, nàng cười hì hì nói: "Lão già ấy xưa nay là người hiền lành. Ngươi đắc tội ông ta thế nào?"
+Vân Sơ Tụ đi tới. Hai bím tóc của nha đầu này lại tự đung đưa qua lại, ả cười hì hì nói: "Lão già ấy xưa nay là người hiền lành. Ngươi đắc tội ông ta thế nào?"
 
 Tần Mục đột nhiên máu chảy ra từ mắt, tai, mũi, miệng. Vân Sơ Tụ giật nảy mình, thất thanh nói: "Vừa rồi trông ngươi còn không có gì đáng ngại, bị đánh nát cũng có thể trọng sinh, sao bây giờ đột nhiên lại có dáng vẻ sắp mất mạng thế này?"
 

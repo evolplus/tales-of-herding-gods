@@ -128,7 +128,7 @@ Nữ tử mà ngay cả Thiên Đồ Họa Thánh cũng khó hạ bút vẽ, r�
 
 Hắn vốn tưởng Vân Sơ Tụ là vật tạo hóa, là mỹ nhân được tạo nên theo dung mạo của Lãng Uyển Thần Vương. Nhưng qua lời nhắc của Lão điếc, hắn bỗng phát hiện Lãng Uyển Thần Vương căn bản không có tình cảm phàm trần, không có thất tình lục dục.
 
-So ra, Vân Sơ Tụ do Nguyên Mẫu phu nhân hóa thành càng giống một người lanh lợi cổ quái hơn. Dù là vật tạo hóa, nàng lại có tính cách của con người, còn Lãng Uyển Thần Vương là thần nữ cao cao tại thượng, lòng không động bụi trần.
+So ra, Vân Sơ Tụ do Nguyên Mẫu phu nhân hóa thành càng giống một người lanh lợi cổ quái hơn. Dù là vật tạo hóa, ả lại có tính cách của con người, còn Lãng Uyển Thần Vương là thần nữ cao cao tại thượng, lòng không động bụi trần.
 
 Nàng chỉ có thần tính, mà không có nhân tính.
 

@@ -124,7 +124,7 @@ Trái tim hắn dần chìm xuống. Sen Quy Khư và Thế Giới Thụ không 
 
 Tần Mục hít một hơi thật dài. Xem ra còn có Nhị công tử Vô Cực cũng đang chờ một nhà ba người bọn họ!
 
-Nhị công tử Vô Cực tuy không thể phá kết ấn dây đỏ của Chủ nhân Di La Cung, nhưng sức mạnh của nàng đã có thể thẩm thấu ra, khiến hắn không thể mượn lực.
+Nhị công tử Vô Cực tuy không thể phá kết ấn dây đỏ của Chủ nhân Di La Cung, nhưng sức mạnh của ả đã có thể thẩm thấu ra, khiến hắn không thể mượn lực.
 
 Phía trước, Hỗn Độn Trường Hà đột nhiên sóng to gió lớn, trở nên dữ dội vô cùng. Một mảnh ánh sáng bắn ra từ kiếp Phá Diệt. Đó là một thế giới mới sinh ra trong kiếp Phá Diệt!
 
