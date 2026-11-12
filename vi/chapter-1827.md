@@ -172,17 +172,17 @@ Tần Mục cười nói: "Nhị tỷ, ta từng nói sẽ cho tỷ một cơ h�
 
 Thiếu nữ thẹn quá hóa giận: "Đây là Thất công tử, cái gì mà thanh niên xã hội nhuộm tóc? Cha, không có chuyện của cha, cha về đi!"
 
-Nàng quay đầu lại, giơ hai tay nắm lấy hai bím tóc rũ trước ngực, cười như không cười: "Ngươi không giết ta? Ngươi không sợ ta hủy thế giới mà ngươi vất vả bảo vệ sao?"
+Ả quay đầu lại, giơ hai tay nắm lấy hai bím tóc rũ trước ngực, cười như không cười: "Ngươi không giết ta? Ngươi không sợ ta hủy thế giới mà ngươi vất vả bảo vệ sao?"
 
-Nàng hưng phấn đến mức mắt phát sáng: "Ngươi tới gặp ta, chắc chắn là muốn trở về phải không? Sau khi ngươi đi, ai là đối thủ của ta? Lam Ngự Điền? Hư Sinh Hoa? Bọn họ đều là đàn em, không chịu nổi một đòn! Đợi khi ngươi trở về, ngươi sẽ thấy ta vắt chân ngồi trên Hỗn Độn Hải chờ ngươi!"
+Ả hưng phấn đến mức mắt phát sáng: "Ngươi tới gặp ta, chắc chắn là muốn trở về phải không? Sau khi ngươi đi, ai là đối thủ của ta? Lam Ngự Điền? Hư Sinh Hoa? Bọn họ đều là đàn em, không chịu nổi một đòn! Đợi khi ngươi trở về, ngươi sẽ thấy ta vắt chân ngồi trên Hỗn Độn Hải chờ ngươi!"
 
 "Nha đầu!"
 
 Tế tửu kia lại thò đầu ra, nói: "Nói lâu như vậy rồi, còn nói không phải yêu sớm?"
 
-Thiếu nữ nhảy chân sáo rời đi, hai bím tóc vung vẩy sau lưng. Nàng quay đầu làm mặt quỷ, cười nói: "Ta thắng chắc rồi!"
+Thiếu nữ nhảy chân sáo rời đi, hai bím tóc vung vẩy sau lưng. Ả quay đầu làm mặt quỷ, cười nói: "Ta thắng chắc rồi!"
 
-Tần Mục cười vẫy tay, tạm biệt nàng.
+Tần Mục cười vẫy tay, tạm biệt ả.
 
 Tế tửu kia hung dữ trừng hắn, hạ giọng nói: "Tránh xa con gái ta ra! Còn trẻ như vậy đã nhuộm tóc bạc, nhìn là biết không phải người tốt..."
 

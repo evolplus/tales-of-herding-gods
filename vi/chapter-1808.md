@@ -20,7 +20,7 @@ Các cường giả dưới trướng Vô Nhai lão nhân vốn còn hơi có l�
 
 "Lão Thất!"
 
-Công tử Lăng Tiêu tự biết không thể giữ bọn họ lại, lập tức hạ lệnh ngừng truy kích, đứng từ xa đối diện Tần Mục, lạnh lùng nói: "Nhị tỷ Vô Cực vẫn đã được thả ra. Cho dù ngươi hủy Quy Khư Đại Uyên, sớm muộn cũng có một ngày nàng khôi phục tới trạng thái đỉnh phong. Khi ấy chính là tai họa của tất cả sinh linh! Ác quả này phải tính lên đầu ngươi!"
+Công tử Lăng Tiêu tự biết không thể giữ bọn họ lại, lập tức hạ lệnh ngừng truy kích, đứng từ xa đối diện Tần Mục, lạnh lùng nói: "Nhị tỷ Vô Cực vẫn đã được thả ra. Cho dù ngươi hủy Quy Khư Đại Uyên, sớm muộn cũng có một ngày ả khôi phục tới trạng thái đỉnh phong. Khi ấy chính là tai họa của tất cả sinh linh! Ác quả này phải tính lên đầu ngươi!"
 
 Tần Mục gọi Hồng Chung Vũ Trụ về, treo trước Hỗn Độn Điện, từ xa đối diện hắn: "Lão Tam, Di La Cung giáng lâm sẽ phá hủy chư thiên vạn giới, khiến vũ trụ Kỷ thứ mười bảy trực tiếp rơi vào sụp đổ hủy diệt, vô số sinh linh tử vong. Ác quả này lại nên tính lên đầu ai? Mệnh lệnh của sư phụ là để các ngươi từng người trở về vũ trụ sinh ra mình, vậy mà các ngươi lại trái lệnh sư phụ, chuyện ấy tính thế nào?"
 

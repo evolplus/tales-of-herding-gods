@@ -124,7 +124,7 @@ Minh ước Di La Cung lần thứ hai, công tử Vô Cực nói:
 
 "Tu luyện đạo Quy Khư có thể khắc chế hư không. Như vậy mới có thể không ngừng nuốt chửng hư không đang mở rộng, khiến hư không ngừng mở rộng."
 
-Nàng không giữ lại chút nào, truyền thụ đạo Quy Khư của mình cho thế nhân.
+Ả không giữ lại chút nào, truyền thụ đạo Quy Khư của mình cho thế nhân.
 
 Lần thử thứ hai của các bậc thành đạo bắt đầu. Thế nhưng khi từng tòa Quy Khư Đại Uyên xuất hiện trong hư không, thử nuốt chửng hư không, Quy Khư Đại Uyên lại không ngừng tự bốc hơi, phân giải.
 

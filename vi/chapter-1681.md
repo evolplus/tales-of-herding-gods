@@ -98,9 +98,9 @@ Tần Mục nhíu mày. Độ Thế Kim Thuyền chạy về phía Vô Ưu Hươ
 
 Ánh mắt hắn rơi lên đại doanh Thiên Đình phía đối diện, có phần lo lắng âm thầm.
 
-“Loại pháp thành đạo thứ ba là do Nhị công tử Di La Cung sáng tạo. Nhị công tử Vô Cực là Quy Khư Thần Nữ, đạo của nàng là Vô Cực, mênh mông mịt mờ, không dấu không cùng, không tìm được căn cơ. Khi nàng thành đạo, nàng phát hiện pháp thành đạo bằng Đạo Cảnh và pháp thành đạo bằng Ngọc Kinh Thành mà sư phụ truyền, đối với nàng đều vô dụng. Đạo Quy Khư của nàng vĩnh viễn không thể khắc dấu trong hư không.”
+“Loại pháp thành đạo thứ ba là do Nhị công tử Di La Cung sáng tạo. Nhị công tử Vô Cực là Quy Khư Thần Nữ, đạo của ả là Vô Cực, mênh mông mịt mờ, không dấu không cùng, không tìm được căn cơ. Khi ả thành đạo, ả phát hiện pháp thành đạo bằng Đạo Cảnh và pháp thành đạo bằng Ngọc Kinh Thành mà sư phụ truyền, đối với ả đều vô dụng. Đạo Quy Khư của ả vĩnh viễn không thể khắc dấu trong hư không.”
 
-Chủ điện Linh Quan cùng Hạo Thiên Đế đi vào trong cung, ngồi xuống rồi nói: “Khi ấy, nàng khai sáng pháp thành đạo bằng Quy Khư, cuối cùng thành đạo, uy lực mạnh đến mức khiến sư phụ cũng khen ngợi không thôi. Ta thấy ngài có huyết mạch Quy Khư Thần Nữ, lại tu luyện đạo Quy Khư, chỉ là đạo Quy Khư không thể thành đạo, nên mới nhớ tới pháp thành đạo của Nhị công tử.”
+Chủ điện Linh Quan cùng Hạo Thiên Đế đi vào trong cung, ngồi xuống rồi nói: “Khi ấy, ả khai sáng pháp thành đạo bằng Quy Khư, cuối cùng thành đạo, uy lực mạnh đến mức khiến sư phụ cũng khen ngợi không thôi. Ta thấy ngài có huyết mạch Quy Khư Thần Nữ, lại tu luyện đạo Quy Khư, chỉ là đạo Quy Khư không thể thành đạo, nên mới nhớ tới pháp thành đạo của Nhị công tử.”
 
 Hạo Thiên Đế vái dài sát đất, nói: “Xin đạo huynh dạy ta!”
 

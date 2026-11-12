@@ -120,7 +120,7 @@ Hai mươi tám điện chủ cùng các bậc thành đạo thúc giục pháp 
 
 Đúng lúc này, trên cao nơi vòm trời, Hỗn Độn Hải đột nhiên chấn động dữ dội. Mọi người trong Ngọc Kinh Thành ngẩng đầu nhìn, chỉ thấy Hỗn Độn Hải bị sức mạnh khổng lồ xé rách. Hư ảnh mười sáu Quy Khư Đại Uyên xuất hiện, từ cửa vào những đại uyên ấy vậy mà có thể nhìn thấy cảnh tượng của mười sáu vũ trụ kỷ quá khứ!
 
-"Nhị tỷ đang tự mình triệu hoán Vô Cực Điện của nàng!"
+"Nhị tỷ đang tự mình triệu hoán Vô Cực Điện của ả!"
 
 Trong lòng công tử Lăng Tiêu khẽ động, vội nói: "Ngừng hoán chuyển Vô Cực Điện..."
 
